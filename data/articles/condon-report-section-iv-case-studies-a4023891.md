@@ -1,0 +1,8 @@
+# Condon Report Section IV: Case Studies
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/condonreport/full_report/sec-iv.htm
+
+In this section three kinds of specific cases are presented:
+In most instances, field investigation involved study of the sighting reports and, rarely, of the sighted object; in a few cases, only the analysis of purported UFO-related physical evidence was carried out. Information received regarding some older cases was reviewed but only when new information made new conclusions possible is it reported as a case. Examples are the 1952 sighting report of W. B. Nash and William Fortenberry and the l954 sighting of J. H. Howard, both of which are discussed in Section III, Chapter 5. The renowned 1952 radar sightings at Washington, D.C., are also discussed in that chapter. Weather data concerning the Washington sightings are presented in Appendix L. None of these are presented as case studies in this section.
+Many witnesses were willing to cooperate with the study only on the condition that their names be withheld. Consequently, a uniform policy of eliminating the name of the witness or witnesses in all cases has been followed, as their identities are irrelevant to the facts under study.
+The region in which the sighting occurred is designated by its location in the northern or southern half of a time zone. Thus the designation "South Pacific" refers to the southern portion of the Pacific time zone. At the request of some of the witnesses to and participants in sightings, the names of places and other descriptive data have been changed. These changes have been invariably made, however, in such a way that every significant fact has been accurately presented and the case, as a whole, described in all its essentials.

@@ -1,0 +1,128 @@
+# Breaking the Chain - Chapter 14
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/breakingthechain/svali-book-14.htm
+
+Chapter Fourteen
+Spiritual Programming
+**Note: this chapter includes discussion of both cult and Christian
+spirituality; do not read if these themes are triggering***
+Any discussion of Illuminati programming would be lacking if it did
+not address spiritual programming. Most of the previous chapters have
+dealt with scientifically based, organized, structured programming.
+But the Illuminati are first and foremost not scientists, but spiritual.
+The very foundation of the group is based on the occult. And they go
+to great lengths to grind in these occult beliefs in their people’s
+systems.
+The amount of spiritual programming in the person’s systems will
+vary from person to person, and depends on the individual group, their
+religious heritage, the leader’s beliefs, and the trainers in
+the group.
+All children go to rituals, where they are dedicated from before birth
+as well as at intervals throughout their life. In these rituals, demonic
+entities are invoked, to coerce the person into servant hood, loyalty,
+and secrecy; as well as reinforce the programming being done.
+Trainers will invoke demonic layering during programming sessions.
+This is done after acute trauma. The person is asked if they want more
+pain, and they will always say “no”. The trainer then offers
+them a way out: if they will accept a “protector” or “protectors”
+they won’t be hurt any more. The trainers will want this, knowing
+that with these “protectors’” they can shorten the
+training sessions. The protectors, or guardians, will reinforce the
+programming internally, without outside help. This concept will seem
+controversial to people who do not believe in spiritual realities, but
+I am only describing what the Illuminists believe, and their trainers
+practice.
+Spiritual programming will also include: being forced to memorize rituals,
+THE BOOK OF ILLUMINATION, and other books which contain cult beliefs.
+The person will be saturated from infancy on, in classes and training
+sessions, with cult beliefs. They will go to rituals where the adults
+participate in spiritual worship, wearing robes, and giving obeisance
+to the group’s particular guardian deity. Moloch, Ashtaroth, Baal,
+Enokkim are demons who are commonly worshipped. The child may see a
+sacrifice, either real or a set-up, to these deities; animal sacrifices
+are common. The child will be forced to participate in the sacrifices,
+and will have to go through blood baptism.
+They will be forced to take the heart, or other internal organs, out
+of an animal that has been sacrificed, and eat them. The adults, and
+leaders of the group, will place their hands on the child’s head,
+while it is drugged, and invoke demonic entities.
+One ritual which is actually programming is the “resuscitation
+ritual”. In this ritual, the child may be heavily drugged, and
+shocked or tortured, to the point that his heart may stop. The head
+priest will then “resuscitate “ the child, using drugs,
+CPR, and incantations. When the child comes back, and is awake, he or
+she will be told that they were “brought back to life” by
+the demonic entity that the particular group worships, and that now
+the child owes it their life. They are told that if they ever tell,
+or try to get the demon to leave, they will return to the lifeless state
+they were in prior to resuscitation.
+Spiritual “healings” due to the demonic are also common.
+Injuries caused by torture, or programming sessions, or even military
+exercises, will be healed almost instantaneously during invocations.
+Jewel programming will often have demons loyal to the generational
+family spirits layered in. These are called the “family jewels”.
+The demons “guard them” and help protect the programming
+surrounding them.
+In a sense, every ritual that a young child is part of, is an intense
+programming experience, as the child observes the adults around them,
+and imitates their behavior. The child will be severely punished if
+it falls asleep, and will be told that demons will kill it if it goes
+to sleep again during a ritual.
+They are taught to be completely silent, no matter what they witness
+during the rituals. The child will witness things that seem utterly
+unbelievable, including faces appearing transformed by the demonic,
+channeling, other voices coming out of a leader’s mouth, reading
+of members, telling the future. Group guidance will often be given through
+channeling of a strong spirit or principality; members who can channel
+powerful spirits and survive are respected, and their guidance will
+be looked for.
+Some groups will use scriptures negatively or program the child to
+hate Christian symbols and theology. Other groups will encourage the
+amnesic front to embrace a Christian lifestyle, while forcing the back
+alters to renounce and blaspheme the choices the front has made, to
+separate the two alter groups even further. The cult alters will be
+told that since they renounced Christianity, they have committed the
+“unpardonable sin” and can never be forgiven. They will
+be shown scriptures that supposedly back this up.
+In moments of despair, during intense torture or isolation, a person
+will often cry out to God for help. The trainers or other cult members
+will often mock the person, telling the person that God has forgotten
+them, or ask “where is God now? He must hate you.....”
+Any negative experience the person undergoes, will be used to reinforce
+the concept that they have been abandoned by God. The cult will gleefully
+point out the contradictions between what the person experiences, and
+what Christianity teaches should happen to them.
+They may distort scriptures, or use false scriptures. They may distort
+Christian hymns, or use them in programming. A favorite hymn is “may
+the circle be unbroken”, since it can have two meanings.
+Suggestions:
+Spiritual programming can be some of the most damaging programming
+within a person’s systems, since it attempts to cut them off from
+the source of real healing. It is an intentional distortion of truth,
+with events calculated to teach and reinforce wrong concepts of God.
+Many survivors are unable to hear Christian terms, or are intensely
+triggered by any religious discussion.
+The survivor and therapist need to realize that these negative reactions
+are the result of years of false teaching, pain, punishment, distortion
+and set-ups. It is important not to judge the parts of the person that
+are negative towards spirituality, or come out, proclaiming the power
+and benefits of cult spirituality. The survivor’s front may be
+horrified to hear or learn about parts that have these feelings, especially
+if they are a strong Christian. These parts inside are sharing the only
+reality they have ever known, and need time and patience to ground,
+and experience reality outside of the cult setting.
+Demonic oppression may need to be dealt with, and even deliverance,
+to bring relief to a system that is being terrorized by the demonic.
+Each therapist and survivor will need to come to terms with their own
+spiritual beliefs. I personally believe that a therapist needs to consider
+the possibility of the demonic, since this is what the survivor has
+been exposed to all their life. The cult certainly does believe it is
+real, and anyone who has been involved in a cult setting will have had
+experiences that are in-explainable by normal rational scientific principles.
+The survivor needs hope, and healing. A positive spirituality based
+on love, gentleness, forgiveness, that is the opposite of the coercing,
+punitive, negative spirituality the survivor has known, will help immensely
+in the healing process. A spiritual belief system that offers hope,
+healing, grace, mercy, and affirmation will often give the survivor
+the support they need to go on during the often difficult process of
+healing.

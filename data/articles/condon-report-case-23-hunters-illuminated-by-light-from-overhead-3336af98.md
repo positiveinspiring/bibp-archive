@@ -1,0 +1,29 @@
+# Condon Report, Case 23: Hunters Illuminated by Light from Overhead
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/condonreport/full_report/case23.htm
+
+Abstract:
+Three couples hunting raccoons at night reported that an aerial object approached them, played a brilliant light on them briefly, then turned it off and flew away. Individual versions of the incident differed substantially as to motion, appearance, duration of sighting, and the object's identity. Investigation attributed the sighting to a prank by the crew of an airplane with a searchlight that had flown over the hunt area at the reported time.
+Background:
+Witness A reported the incident to an AFB two days afterward. A week later he wrote a report to NICAP, which sent a copy of his letter to the Colorado project. A telephone conversation with Witness A resulted in sending investigators to the area late in June.
+Investigation:
+The investigators interviewed seven witnesses and visited the site of the incident with one of them. They also visited the AFB to check on aircraft activity on the night of the incident.
+Witnesses' versions of what had happened differed rather widely. For that reason, the situation as developed by the witnesses will be outlined, followed by a summary of the disparities in their stories.
+Three couples were hunting raccoons on a ranch. Mr. A. was a professional man, Mr. B an administrator, and Mr. C a rancher. Witness D was another rancher who was keeping an eye on the hunters. "About 11:30 p.m." the men were about 0.5 mi. W of their truck, in which the women were waiting. They carried powerful flashlights that they turned on only briefly as needed.
+All of the men and women saw a lighted aerial object approach as if gliding down toward them. When immediately over them, it turned a brilliant beam of light on the men for a short time, then turned it off and proceeded on its way. Witness D also saw the light.
+However, the details of the individual accounts differed widely. (On some points, some witnesses did not comment.)
+Five witnesses reported that the object came from the NW; one from the N; and one from the E.
+Three reported that it flew a straight course; two thought it turned 90° as it departed.
+Three reported that it hovered while the bright light was on; two, that it kept moving.
+All reported the light was blue, bluish-white, or white except D, who said it was yellowish.
+One witness reported the object was about 50 ft. in diameter, alternately glowing dimly or brilliantly. Two reported several small red lights; one, small white and red lights; one, small blinking red, white, and green lights; one, no lights.
+Four witnesses reported that the light from bright spotlight did not move over the ground. Two of the other three thought a second spotlight might have done so. All agreed that the beam was conical, emanating from a narrow source. Witnesses disagreed widely as to the location of the beam on the ground; each of those in the light path tended to think it was aimed directly at him.
+Three witnesses reported a sound similar to that of a small airplane engine as the object approached; four noticed it some time after the bright light was turned on.
+Total duration of the sighting was estimated by two witnesses as one to three minutes of the bright light; two to three minutes, one and a half minute, "a minute or so," a half minute, 30-45 sec., five seconds, and 1 sec., off briefly, then on again momentarily. Only one witness ventured a guess at the time the sighting occurred, "approximately 11:30 p.m."
+One witness reported that he recognized the sound as that of a small twin-engine airplane, and thought he saw its outline as it departed. He suggested that the crew might have seen the hunters' blinking flashlights and turned the spotlight on them.
+At the AFB, the investigators learned that on the date of sighting a rather slow twin-engine Navy airplane equipped with a powerful searchlight had departed at 10:34 p.m. on a course to the SE that would have taken him almost directly over the location of the sighting. The pilot was flying "visual," not on instruments. Further, an airman at the AFB reported that he had heard some conversation between the pilot and co-pilot before takeoff, indicating that they intended to use the searchlight to set off some UFO stories. Evidently the rancher's surmise was right: they had seen the blinking flashlights of the hunters and taken the opportunity to startle them.
+Comment:
+Unlike many comparable cases in which a mystifying apparition has generated widely different versions of the experience, this one was convincingly explained. It therefore affords an unusually good opportunity to study the reactions of witnesses to an unfamiliar and unexpected situation. The most obvious inference, already familiar to the legal profession, it that eyewitness testimony in such circumstances in inherently unreliable.
+It is significant also that the only witnesses who recognized the object as an airplane were the two ranchers and the wife of one of them. They were in a familiar situation. The two couples from the city were on unfamiliar ground, were disoriented as to directions, and may have felt a bit of latent uneasiness that made them emotionally oblivious of this possibility. Witness A reported that, when the brilliant light came on, the rancher (Witness C) exclaimed to him: "My god, what's that?" A: "I don't know." C: "Do you suppose it's one of those flying saucers?"
+Witness C, who said he had recognized the object as an airplane, commented in his interview: "It seemed to me the light came right out of the plane--after I got over tellin' it was a flyin' saucer!"
+Mrs. C., who had been in the truck with the other women, commented in an interview: "We talked about it. First it was a plane--then I said, 'Was that a flying saucer?' and we just got to thinking..."

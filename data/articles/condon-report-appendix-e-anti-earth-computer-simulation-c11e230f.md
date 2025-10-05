@@ -1,0 +1,20 @@
+# Condon Report, Appendix E: "Anti-Earth" Computer Simulation
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/condonreport/full_report/appndx-e.htm
+
+BY DR. R. L. DUNCOMBE,
+U.S. NAVAL OBSERVATORY
+To experimentally determine the dynamical effects of a planet located on the other side of the Sun from the Earth, an extra body was introduced at this position in the initial conditions for a simultaneous numerical integration of the equations of motions for the major planets of the solar system.
+The numerical integration used was the Stumpf-Schubart program, described in Publications of the Astronomischen Rechen-Institut, Heidelberg, No. 18 (1966). The calculations were performed on an IBM 36O/40 computer at the U. S. Naval Observatory.
+The initial coordinates and velocities were derived from those given in the above reference by integrating the system to the desired epoch. All the planets from Venus to Pluto were included; the mass of Mercury was included with that of the Sun. On runs in which the anti-Earth planet, Clarion, was included, its initial coordinate and velocity vectors were taken to be the negative of those for the Earth-Moon barycenter at epoch.
+The initial epoch was J.D. 21424 0000.5 and the integration, using a 2 day step length, was done backward to J.D. 2240 0000.5, a period of approximately 112 years. From the integrated coordinates an ephemeris was generated at a 240 day interval.
+Four integrations were made. The first was the solar system alone, for use as a comparison standard. The other three included Clarion with three different mass values: Earth + Moon, Moon, and zero. These three integrations were then compared to the solar system standard integration and the differences for all the planets were expressed in ecliptic longitude, latitude, and radius vector. In addition, the separation of Clarion from a straight line through the perturbed Earth-Moon barycenter and Sun was computed in longitude, latitude, and radius vector.
+Since the principal perturbations occur in longitude, the following discussion of the three cases is confined to a description of the amplitude of the differences in this coordinate.
+Case 1. Mass of Clarion equals Earth + Moon mass.
+Separation of Clarion from the center of the Sun exceeded the mean solar radius of 960" after about 10,000 days and reached an amplitude of 10,000" in 112 years. Perturbations of Venus exceeded 1" after 80 days, while perturbations of the Earth and Mars exceeded 1" after 100 days. At the end of 112 years the perturbations induced by Clarion in the motions of Venus, Earth, and Mars reached 1200", 3800", and 1660" respectively.
+Case 2. Mass of Clarion equals mass of Moon.
+Separation of Clarion from the center of the Sun exceeded the mean solar radius after 17,600 days and in 112 years had reached 3470". Perturbations of the Earth exceeded 1" after 5120 days and reached 26" in 112 years. Perturbations of Venus and. Mars exceeded 1" after 2160 days and 2800 days respectively, and reached 15" and 20" respectively in 112 years.
+Case 3. Clarion assumed to have zero mass.
+As expected there was no effect on the motions of the other planets, but the separation of Clarion from the Sun was very nearly the same amplitude as for Case 2.
+Conclusions:
+The separation of Clarion from the line joining the Earth and the Sun shows a variation with increasing amplitude in time, the effect being most pronounced for the largest assumed mass. During the 112 years covered by the integration the separation becomes large enough in all cases that Clarion should have been directly observed, particularly at times of morning or evening twilight and during total solar eclipses. The most obvious effect of the presence of Clarion, however, is its influence on the positions of the other planets. During the past 150 years precise observations by means of meridian circles have been made of the motions of the principal planets of the solar system. Differences introduced, by the presence of an anti-Earth (Clarion) of non-negligible mass, in the motions of Venus, Earth, and. Mars could not have remained undetected in this period.

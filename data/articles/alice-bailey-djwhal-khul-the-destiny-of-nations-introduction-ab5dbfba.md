@@ -1,0 +1,7 @@
+# Alice Bailey & Djwhal Khul - The Destiny of Nations - Introduction
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/desnat/dest1002.html
+
+You have, therefore, in the present field of divine expression the following energies manifesting:
+I am anxious to have you realize the potency and the effect of these five energies as they play upon our planet, evoke response - good and bad - and produce the turmoil [7] and chaos, the warring forces and the beneficent influences. They, therefore, account in their totality for all that we see happening around us at this time. In the books which are being written today in an effort to solve the problems of the why and the wherefore of present world conditions, the writers are necessarily dealing only with effects. Few there are that can penetrate into the distant world of causes or look back into that ancient past and see past and present in their true perspective. I, however, seek to deal with causes - predisposing, effective, determining, and productive of those events which cause the present state of affairs. I deal with energies; they are concerned with resultant forces. I would remind you here that these effects which are producing so much fear, foreboding and concern are but temporary and will give place to that ordered, rhythmic imposition of the needed idealism which will be applied eventually by love, motivated by wisdom in cooperation with intelligence. All will be actuated by a dynamic (not a passive) will-to-good.
+We will divide what I have to say under two points:
