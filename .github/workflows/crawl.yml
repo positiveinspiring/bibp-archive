@@ -2,22 +2,49 @@ name: Crawl Biblioteca Pleyades
 
 on:
   schedule:
-    - cron: "17 5 * * *"
-  workflow_dispatch:
+    - cron: "17 5 * * *"    # daily at 05:17 UTC
+  workflow_dispatch:        # allow manual runs
+
+# Prevent two runs from committing at the same time
+concurrency:
+  group: crawl-main
+  cancel-in-progress: true
+
+permissions:
+  contents: write
 
 jobs:
   crawl:
     runs-on: ubuntu-latest
-    permissions:
-      contents: write
+
     steps:
-      - uses: actions/checkout@v4
-      - uses: actions/setup-python@v5
+      # Full history so pull/rebase works
+      - name: Checkout
+        uses: actions/checkout@v4
+        with:
+          fetch-depth: 0
+          persist-credentials: true
+
+      - name: Setup Python
+        uses: actions/setup-python@v5
         with:
           python-version: "3.11"
-      - run: pip install -r scraper/requirements.txt
+
+      - name: Upgrade pip & install deps
+        run: |
+          python -m pip install --upgrade pip
+          pip install -r scraper/requirements.txt
+
       - name: Run scraper
+        env:
+          # You can tune these without changing the script
+          BATCH_LIMIT: "600"        # max new/updated articles per run
+          SLEEP_SEC: "0.15"         # politeness delay between requests
+          DISCOVER_LIMIT: "20000"   # cap discovery frontier per run
+          TIMEOUT: "30"
+          RETRY_TRIES: "3"
         run: python scraper/scraper.py
+
       - name: Commit changes
         run: |
           if [[ -n "$(git status --porcelain)" ]]; then
@@ -25,7 +52,22 @@ jobs:
             git config user.email "github-actions[bot]@users.noreply.github.com"
             git add -A
             git commit -m "chore: update archive ($(date -u +'%Y-%m-%d %H:%M:%S') UTC)"
-            git push
+
+            # Rebase on top of latest main to avoid non-fast-forward errors
+            git pull --rebase --autostash origin main || true
+
+            # Push (retry once in case of transient race)
+            git push origin HEAD:main || { sleep 3; git push origin HEAD:main; }
           else
             echo "No changes to commit."
           fi
+
+      # Always keep a downloadable backup from this run
+      - name: Upload scraped data as artifact
+        if: always()
+        uses: actions/upload-artifact@v4
+        with:
+          name: scraped-data
+          path: |
+            data/index.json
+            data/articles/
