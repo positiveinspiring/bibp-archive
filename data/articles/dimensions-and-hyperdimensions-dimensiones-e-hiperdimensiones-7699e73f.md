@@ -1,0 +1,200 @@
+# Dimensions and Hyperdimensions - Dimensiones e Hiperdimensiones
+
+> Source: https://www.bibliotecapleyades.net/ciencia/ciencia_dimensionshyperdimensions.htm
+
+Contents
+- Across the 4D Bridge to the 5D World
+- As Above So Below - What Can Other or Higher "Dimensions" Really Mean?
+- Así Como es Arriba es Abajo - ¿Qué Quiere Realmente Decir Otras o Superiores 'Dimensiones'?
+- Beyond the 3rd Dimension
+- Cosa è la 5D? - Spiegazione della strabiliante 5ta Dimensione
+- Descripción de la Tercera, Cuarta y Quinta Dimensiones
+- Description of The Third, Fourth, And Fifth Dimensions
+- Dimensional Shifting Process - Commentary
+- Dimensiones - de 'Las Cronicas del Gírkù'
+- Dimensiones y Densidades según Fuentes Canalizadas
+- Dimensions and Densities According to Channeled Sources
+- Dimensions - from 'The Chronicles of The Gírkù'
+- El Nuevo Paradigma - El Universo Es Multidimensional, Según lo Demuestran Las Mentes Científicas...
+Español
+- Entendiendo la 5ª Dimensión
+- Examining Extra-Dimensional Life and Worlds that may exist within Our Own
+- ¿Existen Portales a otras Dimensiones en la Tierra?
+- Hints of the 4th Dimension have been Detected by Physicists
+- Hyperdimensions - Main File
+- Indicios de la 4ª Dimensión han sido Detectados por Físicos
+- Is Synchronicity a Glimpse into the 4th Dimension?
+- La Densidad Física y las Dimensiones - Aclarando Ambos Conceptos
+- Las Dimensiones - La Experiencia de la 3ª, la 4ª y la 5ª Dimensión
+- Living Multiple Realities - Teachings from The Arcturian Mothership
+- Lo que Místicos y Profetas Revelaron sobre las Entidades Hiper-Dimensionales
+- Multidimensionalidad - Main File
+- Multidimensionality - Main File
+- Multiverse - Main File
+- Planetary Transition from 3D to 5D
+- Proceso de Cambio Dimensional
+- ¿Pueden las Entidades Extradimensionales ingresar a otras Dimensiones, incluida la Nuestra?
+- ¿Qué es El 'Cambio'?
+- Reflections on Occult Entity Interferences and the Hyperdimensional Matrix Control System
+- Reflexiones sobre Interferencias de Entidades Ocultas y el Sistema Hiperdimensional de Control de la Matrix
+Italiano
+- Riflessioni sulle Interferenze delle Entità Occulte e l'Iperdimensionale Sistema di Controllo della Matrix
+- Steve Fossett and The Fourth Dimension
+- Teleportation - Main File
+- The 12 Dimensions of Creation
+- The Hyperdimensional Manipulation of Mankind
+- ¿Una Nueva Teoría del Tiempo? - Científicos proponen que el Universo tiene más de una Dimensión Temporal
+- Understanding the 5th Dimension
+- Vision of the Fifth-dimensional Inhabitants
+- Viviendo Múltiples Realidades
+- What is 5D? - The amazing 5th Dimension explained
+- What is the Fifth Dimension?
+- What is the Interdimensional Hypothesis?
+- What is The "Shift"?
+- What Mystics and Prophets Revealed about Hyper-Dimensional Entities
+Additional Information
+- 11.11.11 and The Facts About Life as A 4th Dimensional Human - Andromeda Council
+- 4D Consciousness Is Now Our Playground and The Realm of Ideas and Imagination
+- 5th Dimension Consciousness
+- ¿Abrirá el Gran Colisionador de Hadrones un Portal a otra Dimensión?
+- Agujeros Negros, Agujeros de Gusano y la Décima Dimensión - ¿Podrán éstos Conceptos ser Probados...
+- Alien Mind - A Primer - The Verdants
+- Alien Mind - The Thought and Behavior of Extraterrestrials
+- Amoeboid Bioform 'Critter' - Trevor James Constable's 1957
+- Anomalous Realities - The Cosmic Crack
+- Blackholes, Wormholes and the Tenth Dimension - Will These Concepts be Proven by a Theory of...
+- Chamanismo - Main File
+- Científicos Observan que UNA Partícula Existe en MÚLTIPLES Estados - ¿Cómo es esto Posible?
+- Conciencia de 5ª Dimensión
+- Cuarta y Quinta Dimensión: 2013 AD - extraído del Capitulo 7 - Defendiendo Tierra Sagrada - El Compen...
+- Depuración Hiperdimensional - 'Ultores' e Implantes
+- Desde Arriba y desde Abajo - Revelaciones Hiperdimensionales
+- El 11.11.11 y los Hechos Acerca de la Vida como Ser Humano de 4ª Dimensión - Concejo de Andrómeda
+- El Proyecto Apoteosis
+- Exploradores de Dimensiones Superiores - El Poder de la Conciencia Activa
+- Explorers of Higher Dimensions - The Power of Active Consciousness
+- Extraterrestrial Contact - Political and Social Implications of Going Multi-Dimensional
+- Formas de Vida Conocidas dentro de la Vía Láctea y Más Allá
+- From Above and Below - Hyperdimensional Revelations
+- Grays and Reptilians May be Interdimensional
+- Great Cycle, Global Grid And Multidimensional Physics - The Historical Perspective
+- Hostile Characters
+- Hypercommunication - Main File
+- Known Life Forms within the Milky Way and Beyond
+- La Conciencia 4D Es Ahora Nuestra Arena y El Reino de Las Ideas y La Imaginación
+- La Estructura de Nuestro Universo - Una Introducción a la Matriz del Tiempo de 15 Dimensiones
+- Las Dinámicas de Los Reinos
+- La Inminente División de La Línea de Tiempo
+- La Separación de Los Mundos
+- La Vida en la Tierra 3D - Una Simulación por Computadora
+- Leonardo da Vinci could Visually Flip between Dimensions - Neuroscientist Claims
+- Leonardo da Vinci podía visualmente Cambiar entre Dimensiones - Afirma Neurocientífico
+- Life Forms and The Mirrors of Self
+- Life on 3D Earth - A Computer Simulation
+- Matrix - Main File
+- Mente Alienígena - Un Detonador - Los Verdants - Main File
+- Phone Calls From Beyond The Veil
+- Quantum Surfing the Matrix, Cyber Space and the Fifth Dimension
+- ¿Qué es La Conciencia Multidimensional?
+- Realidades Anómalas - La Grieta Cósmica
+- Realm Dynamics
+- Scientists Observe ONE Particle Exist in MULTIPLE States - How is this Possible?
+- Shamanism - Main File
+- Sincronicidad y Manipulación de la Realidad
+- Surfeando Quánticamente la Matrix, el Ciber Espacio y la Quinta Dimensión
+- Synchronicity and Reality Manipulation
+- Tecnología del Anclaje Dimensional - Marielalero
+- The Apotheosis Project
+- The Approaching Timeline Split
+- The Astral Plane - Main File
+- The Fractal Matrix - A Paradigm For Multidimensional Reality
+- The Hutchison Effect
+- The Meaning Behind Alien Abductions
+- The Structure of Our Universe - An Introduction to the 15-Dimensional Time Matrix
+- The Universal Seduction
+- T. Lobsang Rampa - Main File
+- Tolec del Concejo de Andrómeda - Preguntas Mas Frecuentes
+- Tolec from The Andromeda Council - Frequently Asked Questions (FAQs)
+- Transformación a Una Vida de 4ª Dimensión en La Tierra
+- Transformation to a 4th Dimensional Earth Life - Andromeda Council
+- Trevor James Constable's 1957 Amoeboid Bioform 'Critter'
+- UFOs - The Psychic Dimension
+- Visitantes de La Dimensión Desconocida
+- Visitors From The Twilight Zone
+- What is Multidimensional Consciousness?
+- Will the Large Hadron Collider Open Up a Portal to Another Dimension?
+Densities - Densidades
+- 4th Density Earth Is Allowing Us To Put Relationships and Judgment Into Perspective
+- Densidades, SAO y SAS
+- Densities
+- Densities, STO and STS
+- Density/Dimension Scale
+- Dominar el Mundo y Controlar las Vidas y el Pensamiento - Soy Yo soy Libre - Guía del Robot para la Libertad
+- Escala de Densidades/Dimensiones
+- Fifth Density and The Energy Trap
+- La Quinta Densidad y la Trampa de Energía
+- La Scala delle Dimensioni e delle Densità
+- La Tierra de La 4ª Densidad Nos Está Permitiendo Poner las Relaciones y Los Juicios en Perspectiva
+- The High Strangeness of Dimensions, Densities, and The Process of Alien Abduction
+- The High Strangeness of Dimensions, Densities, and The Process of Alien Abduction - Book Review
+Elementals - Elementales
+- Biología de las Sirenas - Un Encuentro entre la Ciencia y el Mito
+- Elementals - from "War in Heaven - The Invisible College"
+- Elementals and Diminution - from "The Origin of The Dragon Lords of the Rings"
+- Elementales - de "Guerra en El Cielo - El Colegio Invisible"
+- El Mundo de los Elementales - Las Hadas de los Cinco Reinos
+- Il Regno degli Elementali
+- Joseph Kerrick and The Esoterrestrials
+- La Naturaleza de la Realidad Espiritual - Preguntas a Kyle Griffith sobre el significado de 'La Guerra en...
+- Manly P. Hall on Elementals
+- Mermaids - Their biology, culture and demise
+- Metaphysics and Grids
+- Seven Types of Spirit Guides and how to Connect with Them
+- Siete Tipos de Guías Espirituales y cómo Conectarse con Ellos
+- Sylphs and Chemtrails - Main File
+- The Elemental Kingdom
+- The Elementals
+- The Formulae of The Elemental Weapons - from "Magick in Theory and Practice"
+- The Nature of Spiritual Reality - Alain Gossens (Karmapolis) Questions Kyle Griffith On the Meaning of...
+- The Secret Life of Melusine - Mysterious Mermaid and Serpent Mother of European Nobility
+- The World of Elementals - Faeries of the Five Realms
+- Thought Elementals and Fire Elementals - from "A Treatise on Cosmic Fire"
+- Thoughts on The Elementals - Archons
+Parallel Universes - Universos Paralelos
+- Can Parallel Universes Explain The Déjà Vu Phenomenon?
+- El Efecto Mandela - Fusión de las Líneas de Tiempo y Alienígenas Ancestrales del Futuro
+- El Misterio del 'Efecto Mandela' - ¿Son 'Falsos Recuerdos' o Prueba de Universos Paralelos?
+- Mystery of the Mandela Effect - Are 'False Memories' Proof of Parallel Universes?
+- Parallel Worlds Exist and Interact with Our World - Say Physicists
+- ¿Pueden Los Universos Paralelos Explicar El Fenómeno de Déjà Vu?
+- Scientists Propose Existence and Interaction of Parallel Worlds - Many Interacting Worlds theory Challen...
+Books-Treatises
+- Astral Dynamics - A New Approach to Out-of-Body Experience - by Robert Bruce
+- A Treatise on Astral Projection - by Robert Bruce
+- Dimensions - A Casebook of Alien Contact - by Jacques Vallee
+- The Computer Inside You - The Caretakers - by Kurt Johmann
+- The Crack in The Cosmic Egg - by Joseph Chilton Pearce
+- The Mothman Prophecies - by John A. Keel
+Multimedia
+- Alien Abduction - Corrado Malanga
+- Are There More Than Three Dimensions?
+- Dr.Quantum Visits Flatland
+- Imagining the Tenth Dimension
+- John Hutchison and The Hutchison Effect
+- Laugh All You Like - Possession and Reptilians are REAL
+- Multiple Dimensions
+- Prenderne Coscienza - Rapimenti Alieni - Corrado Malanga
+Related Reports
+- Altered States Experiences - Main File
+- Consciousness and Human Energy - Main File
+- Consciousness and The Conscious Universe - Main File
+- Stargate - Main File
+- The Ascension-Transformation-Evolution Process - Main File
+- The Psychic Universe - Main File
+- The Saga of Flying Objects - Main File
+- The Work of David Pratt - Main File
+- Time - Main File
+- Vida en El Universo - Life in The Universe - Main File
+Return to The Universe of The New Physics
+Return to Holographic Universe
+Return to Temas / Main Files

@@ -1,0 +1,215 @@
+# Los Cambios Geneticos - Genetic Changes
+
+> Source: https://www.bibliotecapleyades.net/ciencia/ciencia_cambio.htm
+
+Contents
+- 12 Strand DNA - Changes Evidence and Remedies
+- ADN de 12 Hebras - Evidencia de Cambios y Remedios
+- Are We Physically Changing Our DNA Beyond Our Current Density?
+- Birthing The DNA of Light
+- DNA Repair, Dreams and Crop Circle Formations
+Español
+- ¿Estaremos Cambiando Físicamente Nuestro ADN Más Allá de Nuestra Actual Densidad?
+Genetics
+- Alteración de las Especies - ¿Están los OMG Re-cableando Nuestro ADN?
+- Altering Human Genetics through Vaccination
+- Ascensión-Transformación-Evolución - ¿Los Rayos Cósmicos Evolucionan la Conciencia y Transforman...
+- Ascension-Transformation-Evolution - Do Cosmic Rays Evolve Consciousness and Transform DNA?
+- A Single Splice Site Mutation in Human-Specific ARHGAP11B causes Basal Progenitor Amplification
+- Cápsula Genética de Lenta Liberación Para Accionar su Conciencia Cósmica
+- ¿Cómo Podemos Cambiar Nuestro ADN en Este Momento?
+- De Cómo el ADN es Reprogramado por Palabras y Frecuencias
+- Deep DNA Memory Theories - Can We Remember Our Ancestors Lives?
+- Descubrimientos Rusos del ADN Explican Acontecimientos Humanos 'Paranormales' - El ADN es...
+- DNA - Gateway to Scalar Energy based Healing - A Physicists Perspective
+- DNA - Genetica Humana
+- DNA's Hyper Communication - The "Living Internet" Inside of Us
+- Do You Hear Perpetual High Pitched Frequencies?
+- El ADN Basura - Nuestro Portal Interdimensional a la Transformación
+- El ADN en la Evolución Biológica y Espiritual a Nivel Individual y Planetario
+- El Gran Salto Quántico - Supremacía de La Especie Humana
+- ¿Está Naciendo Una Nueva Raza de Súper Terrestres o Es El Fin de La Raza Humana? - Se Preguntan...
+- First Life Forms to Pass on Artificial DNA Engineered by U.S. Scientists
+- Four Strand DNA in Human Cells - Scientists Discover Quadruple Helix
+- Four-Stranded Quadruple Helix DNA Structure Proven to Exist in Human Cells
+- Gene Therapy and the Trans-Human Agenda - Cure Disease or Alter Humans
+- Genetic Changes
+- Genetic Engineering In Ancient Times
+- Genetic "Time-Release Capsule" to Trigger your Cosmic (Universal) Awareness
+- Habilidades Extraterrestres Para Modificar el ADN a Través Una "Internet Biológica" - Proyecto Ruso del...
+- Hiper Comunicación del ADN - El Internet Vivo Dentro de Nosotros
+- History, War and Human Physiology - from LFA Vol 2 No.4
+- How Can We Change Our DNA Right Now?
+- How DNA is Reprogrammed by Words and Frequencies
+- Human Cloning about to be Unleashed upon the World
+- Humanity is Evolving into Galactic Humans!
+- Humans Will See a Dramatic Change in Our Cellular Structure Over The Next Two Years
+- Ingeniería Genética en La Antigüedad
+- Is A New Race of Super Earthlings Being Born or Is this The End of The Human Race? - Scientists Ask
+- Junk DNA
+- La Humanidad está Evolucionando en Humanos Galácticos
+- La Inteligencia Superior es Fruto de una 'Pequeña' Mutación Genética
+- La Realidad de la Vida Alienígena en el Universo y el Nuevo ADN Activado en la Humanidad
+- Los Cambios Geneticos
+- Los Codigos Geneticos
+- Los Seres Humanos Veremos un Dramático Cambio en Nuestra Estructura Celular Durante Los...
+- Manipulacion Genética en Épocas Ancestrales
+- Nueva Investigación sobre ADN muestra Verdadera Ruta de Primeros Agricultores en Europa hace 8.000...
+- Pruebas Científicas que Nuestro ADN Está Mutando
+- Retrotransposons as Engines of Human Bodily Transformation
+- Russian DNA Discoveries Explain Human 'Paranormal' Events - DNA Is Reprogrammable by Words and...
+- Russian Human Genome Project Discovers Extraterrestrial Abilities to Modify DNA Through a Biological...
+- Science Theory Shows We Can Reprogram our DNA to Heal Ourselves with Vibration
+- Scientific Proof that Our DNA is Mutating
+- Scientists Close to Controlling all Genetic Material on Earth
+- Species Alteration - Is GMO Rewiring our DNA
+- The Biological Chip in Our Cells - Revolutionary Results of Modern Genetics
+- The DNA Phantom Effect
+- The Reality of Alien Life in The Universe and The Newly Activated DNA in Humanity
+- Todos Están Trayendo Luz al Planeta
+Italiano
+- Una nuova Ricerca sul DNA dimostra la Vera Rotta dei Primi Agricoltori in Europa 8.000 Anni fa
+- What Caused the Unexplained Change in Europeans' DNA 4000-5000 Years Ago? - Scientists Say the Genetic...
+- Why ET's Genetic Code Could Be Just Like Ours - A New Thermodynamic Analysis Suggests That 10 of...
+- You are all Pulling Light Onto the Planet
+Additional Information
+- Accelerating Earth's Evolution - from 'The Only Planet of Choice'
+- Accelerating World Events Are Assisting in The Shift of Human Consciousness
+- Agenda Reptiliana Frustrada - Catástrofe Galáctica en La Vía Láctea, Año 2370
+- An Ancient and Occult Genetic Code
+- A Scientific Blueprint for Ascension
+- Biological Immortality - Intelligence Briefing
+- Brainwave Frequency Listing
+- Chemtrails Explained - Putting the Pieces Together
+- Chemtrails Explicados - Poniendo Las Piezas Juntas
+- Chemtrails - Suppressing Human Evolution
+- Científicos Encuentran Genes Extraterrestres en ADN Humano - ¿Existen Civilizaciones de Seres...
+- De Cómo Las Recientes Llamaradas Solares Están Afectando a Los Seres Humanos
+- El Concejo Extraterrestre Sembró al Homo Sapiens Como un Ser Inteligente Con el ADN de 12 Hebras
+- El Lado Brillante del 2012
+- Emergiendo de La Negación
+- Emerging From Denial
+- Engineering A Visionary Race - Entheogenetics and the Future of Mind
+- ¿Es el Grupo Sanguíneo Rh Negativo Igual a Patrimonio Alienígena?
+- Estelas Químicas - Suprimiendo la Evolución Humana
+- ET Council Seeded Homo Sapiens as Intelligent Beings With 12-Strand DNA
+- Evidencia Científica Que Las Energías Galácticas Han Provocado Una Expansión de La Consciencia en...
+- Excerpts from "Gods, Genes, and Consciousness" - Nonhuman Intervention in Human History
+- From Cthulhu to Cloning
+- From Mad Scientist to Bad Scientist - Richard Seed as Biogovernmental Event
+- Giants - A Result of Genetic Warfare
+- Gigantes - Resultado de Una Guerra Genética
+- How Recent Solar Flares Are Affecting Humans
+- Humans Have Already Been Cloned
+- If Chemtrails and HAARP Didnt Disturb You Enough, Wait Until You Hear About Morgellons
+- Immer häufiger auftretende Ereignisse weltweit helfen bei der Veränderung des menschlichen...
+- Indigo Children - Crystalline Children - Main File
+- Insights Into the Convergence of Science and Spirituality - Mind Over Genes
+- Is 2012 Earth's Real Golden Age?
+- Is The Transhumanist Movement a Threat to Our Survival?
+- Junk DNA Possible ET Origin? - Scientists From Human Genome Project
+- La Reforma Planetaria - Cambio Global en La Conciencia Colectiva del Humano 3D - Marielalero
+- Lemuria and Homo Atlantis
+- Los Acontecimientos Mundiales en Aceleración Están Ayudando en El Cambio de La Conciencia Humana
+- Más Terremotos Por Venir Señalarán el Re-Nacimiento Del Planeta Tierra y de Una Nueva Humanidad
+- Modern Human Variation - An Introduction to An Introduction to Contemporary Human Biological Diversity
+- More Earthquakes to Come Will Signal The Re-Birth of a New Humanity and Planet Earth
+- Moving from 3D Body to 5D Light Body
+- Neolithic Mitochondrial Haplogroup H Genomes and the Genetic Origins of Europeans
+- Organ Transplants and Cellular Memories
+- Pasando de un Cuerpo 3D a un Cuerpo de Luz 5D
+- Por Las Venas Corre... ¡Luz!
+- Punto Cero y la Resonancia Shumman - El Cambio de Las edades Ya Comenzó
+- "¿Quien Eres Tú?"
+- Reptiles, Sacerdotisas y Genes Extraños
+- Reptilian Agenda Thwarted - Milky Way Galaxy Catastrophe, Year 2370
+- Reptilians, Priestesses, and Strange Genes
+- Scientific Proof That Galactic Energies Have Triggered Worldwide Consciousness Expansion
+- Scientists Find Extraterrestrial Genes in Human DNA - Do Civilizations of Advanced Human Being...
+- Scientists just Broke the Technical Barrier to Cloning Primates, Including Humans
+- ¿Será el 2012 Realmente la Edad Dorada de La Tierra?
+- Síntomas de Transformación-Evolución - Cambios Corporales
+- Teilhard de Chardin and Transhumanism
+- The 33 Arks of Soul Resonance - Investment Futures
+- The Bigger Picture
+- The Bright Side of 2012
+- The Emerging 'Sunspot Cycle 24' and A Weakening Magnetic Field - What Does This Mean For Our...
+- The Human Brain - Main File
+- The Sun's Magnetic Effect on Weather and Humans
+- The Template - Awakening to What We Really Are
+- The Wisdom of Your Cells
+- Tipos de Sangre Humana y la Evolución Humana
+- Tolec del Concejo de Andrómeda - Preguntas Mas Frecuentes
+- Tolec from The Andromeda Council - Frequently Asked Questions (FAQs)
+- Transformation-Evolution Symptoms - Body Changes
+- Transition to The Age of Frequencies - Schumann Waves, Weather and Mind Control
+- Un Patrón Científico Para la Ascensión
+- Vaccines and Production of Negative Genetic Changes in Humans
+- Vacunas y la Producción de Cambios Genéticos Negativos en Humanos
+- "Who Are You?"
+Blood - La Sangre
+- 13 Bloodlines of The Illuminati
+- Blood Victory - Hope for the Future of Our Race and Civilization
+- Blue Blood, True Blood - Conflict and Creation - Selected Excerpts
+- Does Rh Negative Blood Type Equal Alien Heritage?
+- Found Evidence that 'Blood Type' plays a Role in COVID-19
+- Human Blood Types and Human Evolution
+- In Defense of Kingship and Divine Right
+- ¿Influyen los Tipos de Sangre en la Gravedad del COVID-19? - Coronavirus
+- Le Basi Biologiche dell'Elitismo e del "Diritto Divino" di Governare
+- Let Us Make Man in Our Image - Who is 'US' and 'OUR'? - Bloodlines
+- ¿Modificaron los Antiguos Astronautas (AA) el ADN Humano hace Miles de Años?
+- Poisoning of Mankind - Blood Types, Copper Deficiency, Evolution Theory & Illuminati
+- Relationship between the ABO Blood Group and the COVID-19 Susceptibility
+- RH-Negative Blood and the Reptilian Connection
+- Se encuentran por Primera Vez Microplásticos en la Sangre Humana
+- Testing the Association between Blood Type and COVID-19 Infection, Intubation, and Death
+- The ABO Blood Group Locus and a Chromosome 3 Gene Cluster Associate with SARSCoV-2 Respiratory...
+- The Biological Basis of Elitism and "The Divine Right" Rule
+- The Black Nobility - Main File
+- The Reptilian Blood Legacy
+Epigenetics
+- Biobots arise from the Cells of Dead Organisms - Pushing the Boundaries of Life, Death and Medicine
+- Epigenetic Memories are Passed Down 14 Successive Generations - Game-Changing Research Reveals
+- Epigenetics - The Science of Change
+- Epigenomics and How Natural Nutrients Heal Genes
+- Hybridization vs. Epigenetics
+- Las Memorias Epigenéticas son pasadas a 14 Generaciones Sucesivas - Revela innovadora Investigación
+- ¿Qué Significa la Epigenética para el Despertar de la Humanidad?
+- Science Discovers Intelligent Life-In Every Cell! - An Interview with Bruce H. Lipton
+- What Does Epigenetics Mean for Humanity's Awakening?
+Multimedia:
+- Epigenetics - How Does Your Mind Reprogram Your Genes?
+- The Truth About Cancer - Cannabis, Nature's Epigenetic Switches, Peptides and Healing with Micro...
+Books-Treatises
+- ETs y La Atlántida - Manipulación Genética
+- Genetic Manipulation - ETs and Atlantis
+- The Biology of Belief - by Bruce H. Lipton
+Multimedia
+- Anunnaki Mining Operations and Advanced Stone Technologies in Southern Africa
+- La Activación de Nuestro ADN en Esta Transmutación TransDimensional
+- Indigo Incarnations - DNA Upgrade and Volunteer Souls - Dolores Cannon
+- Revolucion en La Ciencia - Los Transhumanos y El Perfeccionamiento Humano
+- Supra-Consciousness - Human Transformation, Earth Changes & The New World
+- Temor-Amor - Emociones Vinculadas al ADN
+- The Real Superhumans - Quest for The Future Fantastic
+- The Three Waves of Volunteers and The New Earth - Dolores Cannon
+Related Reports
+- 2012 - Main File
+- Dragons of Eden - Speculations On The Evolution Of Human Intelligence
+- El Cinturon de Fotones - The Photon Belt - Main File
+- El Universo de La Nueva Fisica - Main File
+- Hypercommunication - Main File
+- La Memoria del Agua - Main File
+- Las Ondas Shumann - Main File
+- Organic Portals - Main File
+- Synthetic Life - Robotoids, Parasites and Artificial Humans - Main File
+- The Ascension-Transformation-Evolution Process - Main File
+- The Memory of Water - Main File
+- The Psychic Universe - Main File
+- Transhumanism - Main File
+Return to The Singularity - La Singularidad
+Return to Origen de la Vida y del Hombre
+Return to Consciousness and Science
+Return to Temas / Main Files
+Return to Genoma

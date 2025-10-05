@@ -1,0 +1,1100 @@
+# Consciousness and The Conscious Universe - La Consciencia y El Universo 
+Consciente
+
+> Source: https://www.bibliotecapleyades.net/ciencia/ciencia_consciousuniverse.htm
+
+There are states, levels or qualities of consciousness that can be developed within us.
+What is more, the implication is that this development is the purpose of both the Cosmos and Great Teachings.
+Source
+La humanidad no está, y nunca ha estado,
+separada o desconectada de un contexto cósmico.
+Humanity is not, and never has been, separated
+or cut off from a cosmic context.
+Contents
+- 12-12-12 to 12-21-12 - The Wave of Energy You've All Been Waiting For Has Begun
+- 12 Strands of DNA - Our Spiritual Heritage
+- 2012 - A Dismantling of Old Codes and Programs
+Español
+- 2012 - Desmantelamiento de Viejos Códigos y Programas
+- 2012 Visionaries - Old Systems Are Breaking Down to Make Way for The New Earth
+- 2016 - The Year of Transformation
+- 4D Consciousness Is Now Our Playground and The Realm of Ideas and Imagination
+- 4th Density Earth Is Allowing Us To Put Relationships and Judgment Into Perspective
+- 5th Dimension Consciousness
+- A Bridge Between Worlds
+- Accelerating World Events are Assisting in The Shift of Human Consciousness
+- Across the 4D Bridge to the 5D World
+- A Great Initiation Called 'Death'
+- Ahora Es El Momento de Prestar Atención a Quien Es Usted y Hacia Donde Se Dirige
+- A la Sombra de la Indiferencia - Inmerso en la Matrix
+- Algo Extraordinario Está Ocurriendo en El Mundo
+- Algunas Señales que Usted está Hecho para Algo Más Grande en este Planeta
+- A Neuroscientist's Radical Theory of How Networks Become Conscious
+- An Expansive Consciousness
+- Aquí Está el Poder de Vivir Concientemente la Vida Después de la Muerte
+- A Revolution in Human Consciousness
+- Are you Unknowingly Part of the "Cosmic Call to Action?"
+- Ascensión-Transformación-Evolución - ¿Los Rayos Cósmicos Evolucionan la Consciencia y Transforman...
+- Ascension-Transformation-Evolution - Do Cosmic Rays Evolve Consciousness and Transform DNA?
+- A Time for New Beginnings
+- Autenticidad
+- Authenticity
+- Bailando en La Vorágine del Cambio
+- Before The 'Beginning' of The Universe, You Were Still There
+- Being Our Experience
+Deutsch
+- Bewusstsein und die Neue Physik
+- Boldly Engaging the Ongoing Adventure
+- Cambia el Campo Mórfico ¡Cambia el Mundo!
+- Cambiando en el Río del Cambio
+- Cambiando en Tiempos de Cambios Acelerados
+- Cambiarse a Uno Mismo
+- Cambios en la Consciencia que Estamos Experimentando Ahora
+- Caminando Sin Muletas Espirituales
+- Change the Morphic Field Change the World!
+- Changing in the River of Change
+- Changing in Times of Accelerating Change
+Italiano
+- Chi Siamo Gli Esseri Umani Della 3D? - Marielalero
+- Ciclos Cósmicos y el Cierre de la Edad, Época y Era Actual
+- Científicos afirman que tu Consciencia puede Conectarse con Todo el Universo
+- Circling the Wormhole
+- Co-Creation - 5 Paths Toward Personal Power
+- Cómo Creamos la Realidad
+- Cómo Crear la Nueva Tierra
+- ¿Como es Arriba es Abajo?
+- Cómo fue Introducido este Universo
+- Cómo Manejar el Concepto de Dios sin recurrir a la Religión
+- Computer Simulation - MAIN FILE
+- Consciencia, Causalidad y Física Quántica
+- Consciencia, Cosmos, Propósito
+- Consciencia de 5ª Dimensión
+- ¿'Consciencia' o 'Ser Programado'? - Más sobre la Conciencia
+- Consciencia Universal
+- Consciencia y Compasión en Nuestro Universo (Simulado)
+- Consciencia y Consciencia - El Ser y su Estado
+- Consciencia y Evolución
+- Consciousness and Compassion in Our (Simulated) Universe
+- Consciousness and Evolution
+- Consciousness and The New Physics
+- Consciousness, Causality, and Quantum Physics
+- Consciousness - Here, There and Everywhere?
+- Consciousness in the Universe - A review of the 'Orch-OR' theory
+- Consciousness is Everywhere - Buddhists and Leading Neuroscientists Agree
+- Consciousness is the Key to World Change
+- Consciousness - The Beginning and The End
+- Cracking The Fortress of Delusion
+- Crossroads, Off-Ramps and the Time of Transition
+- Cruce de Caminos, Rampas y el Tiempo de Transición
+- Cuadrando el Círculo de Dios
+- Cuando los Mundos Colisionan - Comprendiendo los Desafíos de la Vida en el Planeta Tierra
+- Cuídate...
+- Dancing in The Vortex of Change
+- David Topí y la Conciencia - Main File
+- De Cómo el Materialismo, Posando como Misticismo Subvierte la Espiritualidad y los Límites de la...
+- Dejando Ir a un Mundo en Colapso - La Conversación que Tenemos Demasiado Miedo de Hacer
+- Del 12.12.2012 al 12.21.2012 - La Ola de Energía Que Todos Ustedes han Estado Esperando ha Empezado
+- Del Porqué la Verdad es Siempre Nueva
+- Des-Conectados
+- Desde Arriba y desde Abajo - Revelaciones Hiperdimensionales
+- Die Visionäre 2012 - Alte Systeme gehen unter um Platz zu machen für die Neue Welt
+- Dismantling The Structure
+- Does Consciousness Pervade the Universe?
+- ¿Dónde Está La Verdad?
+- Don't Be Attached to the Shitstorm
+- Dove Sta La Verita?
+- Dreams, Timelines and Parallel Worlds
+- El Campo Magnético de la Tierra y la Consciencia
+- El Comienzo Está Cerca
+- El Desenredo
+- El Dolor del Gran Humor
+- El Duro Camino de El Descubrimiento Honesto
+- El Ego No Es el Enemigo
+- El Evento - Si No Cambias No habrá Cambio para Ti
+- El Gran Salto Quántico - Supremacía de La Especie Humana
+- El Juego de la Existencia
+- El Lado Oscuro de la 'Iluminación Espiritual'
+- El Mundo tal como lo Conocemos ha Cambiado y No Hay Vuelta Atrás a lo que Fue - Seis Predicciones
+- El Origen, Propósito y Destino del Juego de la Tierra
+- El Peligro de Convertirse en La Oscuridad Cuando se Lucha Contra el Lado Oscuro
+- El Pensamiento y El Sentimiento Creador
+- El Poder de La Intención - Dr. Wayne W. Dyer
+- El Poder de La Soledad
+- El Principio de NO Intervención sobre los Demás
+- El Proyecto de la Consciencia Global - The Global Consciousness Project
+- El Punto de Inflexión es Aquí Y es Todo Acerca de Usted
+- El Ser Integral
+- El Tiempo - ¿Nuestra Mejor Excusa para Vivir y Morir?
+- El Todo No es Mente, es Consciencia
+- El Universo es Inteligente - Tu Cerebro está conectándose a él para formar tu Conciencia
+- El Universo Físico es Un Sistema de Información
+- ¿El Universo Responde a tus Preguntas y tú Escuchas?
+- El Valor de 'Los Raros'
+- El Vínculo Crucial entre Pensamiento y Sentimiento
+- Energía Galáctica Ha Provocado en Todo el Mundo una Expansión de Consciencia - Pruebas Científicas
+- Enfrentando la Oscuridad - Transformándose a la Luz
+- Esiste Vita sulla Terra? Uno 'Sperimento Mentale' - Il Covid-19, una "Scossa" come Ultima Opportunità per...
+- ¿Es la Consciencia la que Produce la Realidad a Nivel Quántico?
+- ¿Es que la Conciencia Impregna el Universo?
+- 'Estamos Viviendo en El Más Importante Momento en La Historia del Universo' - Dolores Cannon Discute...
+- ¿Está Usted Despierto? O Sólo Informado...
+- Esto es Suyo, Esto es Mío - La Propiedad de Las Cosas está Cambiando
+- Estructura Energética de Andamios y Puntos de Apoyo que han Permitido el paso de Nivel Evolutivo de la Vía...
+- ¿Es Universal la Consciencia?
+- Existence - By a 16 Years Old Human Being
+- ¿Existe un Propósito Coherente de Consciencia Planetaria? - Implicaciones de Una Visión No-local de...
+- Explorando los Niveles de Consciencia
+- Exploring the Levels of Consciousness
+- Facing the Darkness - Transforming Self to The Light
+- Fear and The Everyday Mind
+- Feel Lost, Disconnected, Without Passion or Purpose? Unexplained Physical Pain? Here's Why... You Are...
+- From Above and Below - Hyperdimensional Revelations
+- Fruit Loops and Perilous Pitfalls
+- Girando Alrededor del Agujero de Gusano
+- God-Hacking - Blurring the Line between Humanity and Immortality
+- God Killer
+- Golpea el Hierro Mientras está Caliente
+- Gregg Braden y Su "Mensaje" - Main File
+- Guía Espiritual para Sobrevivir los Cambios en la Tierra que Vienen
+- Guise of Divinity
+- Hablemos de lo Invisible - Es hora de Hablar del Campo Unificado
+- Haciendo el Siguiente Gran Cambio
+- Have You Realized the Profundity of Our True Nature?
+- ¿Hay Vida en la Tierra? - Un 'Experimento Mental' - Covid-19 ¿una "Sacudida" como Última Oportunidad...?
+- Here's the Power of Living in Awareness of Life Beyond Death
+- How Materialism Posing as Mysticism Subverts Spirituality and Limits Consciousness
+- How this Universe was Introduced
+- How to Conquer Death
+- How to Discover Yourself through Your Own Philosophy
+- How to Handle God without turning to Religion
+- How We Create Reality
+- How We Create the New Earth
+- Humanos Construidos a Propósito
+- Humans of Manufactured Purpose
+- Identities - A Fine Balance - How Does Identification Work in the Inner World?
+- Il Tao - Sette Profonde Lezioni per una Filosofia Radicalmente Saggia
+- Immer häufiger auftretende Ereignisse weltweit helfen bei der Veränderung des menschlichen Bewusstseins
+- Immortality as Consciousness
+- Inmortalidad como Consciencia
+- Inorganic Intelligent Beings may Dominate the Universe
+- Insights Into the Convergence of Science and Spirituality - Mind Over Genes
+- In The Shadow of Indifference - Steeped in The Matrix
+- Is Consciousness Individual or Universal?
+- Is Consciousness Universal?
+- Is There a Connection between Quantum Physics and Positive Thinking?
+- Is There Life on Earth? - A 'Thought Experiment' - Is Covid-19 a 'Shock' for Humanity's Final Chance?
+- Is the Universe Conscious?
+- Jerarquías Solares que están a Cargo del "Desmontaje" de Estructuras en nuestro Planeta - Proceso Limpieza
+- Journey Into Self
+- La Base Evolutiva para la Condición de la Conciencia Humana
+- La Batalla del Armagedón ha Estado Violenta Durante Siglos
+- La Biología de La Creencia
+- La Búsqueda del Conocimiento te Aleja de tu Conocimiento y tu Consciencia
+- La Ciencia de El Amor - La Evolución de la Conciencia y el Campo de Higgs
+- La Ciencia de Elevar Su Vibración
+- La Consciencia 4D Es Ahora Nuestra Arena y El Reino de Las Ideas y La Imaginación
+- La Consciencia de Seres Universales y el "Big Picture"
+- La Consciencia Experiencial del Ser
+- La Consciencia Humana se Rige por un Principio que Explica el Universo Entero - Científicos Confirman
+- La Consciencia Lineal y la Consciencia Lateral
+- La Cortina de Humo de la Simbología
+- La Glándula Pineal - Main File
+- La Gran Ilusión - ¿Cuán Fácilmente Podemos Ver La Verdad?
+- La Guerra Interna - Escape de la Ilusoria Matrix Holográfica Temporal
+- La Infección Espiritual a Través de la Falsa Luz
+- La Masa Crítica Ha Sido Alcanzada - Permaneciendo Aquí "Abajo", Las Energías Humanitarias y...
+- La Matrix Cósmica
+- La Mente Crédula Explicada
+- La Metafísica de un Paradigmático Cambio en La Consciencia
+- La Primera Señal de que Usted está Viviendo Más Allá de los Cinco Sentidos
+- La Producción de Consciencia a partir de Estados de Consciencia
+- La Programación de Nuestra Consciencia
+- La Realización Espiritual Pasa por Descubrir que "Dios" No Existe
+- La Revolución de La Consciencia - Urano en Aries
+- La "Soledad" de los Despiertos
+- Las Oportunidades del Nanosegundo y La Desaparición de Un Cáncer Que Nos Asola Llamado "Miedo"
+- La Separación Ha Comenzado
+- La Teoría de que el Universo podría ser como un Ser Pensante - "El Cambio de Paradigma más profundo de...
+- La Tierra de La 4ª Densidad nos está Permitiendo Poner las Relaciones y Los Juicios en Perspectiva
+- Let's Speak of the Unseen - Time to Talk of the Unified Field
+- Letting Go of a World in Collapse - The Conversation We're Too Afraid to Have
+- Levels of Consciousness
+- Life Is A Demonstration...
+- Life - The Ultimate Deception
+- Linear and Lateral Consciousness
+- Looking Beyond the Issues to the Causes of the Problems Facing Humanity
+- Lo que Realmente Importa
+- Los Acontecimientos Mundiales en Aceleración Están Ayudando en El Cambio de La Consciencia Humana
+- Los Ángeles Caídos
+- Los Efectos del Fluoruro en La Consciencia y La Voluntad de Actuar
+- Los Individuos son 'Personalidades Disociadas' de la Conciencia Universal - ¿La Mejor Teoría de Conciencia?
+- Los Jardineros de la Tierra
+- Los "Yoes Globales" y las partes de nosotros que Participan en la Co-creación de los Procesos Mundiales...
+- L'Umanità si sta Trasformando e sta Cambiando - Il Grande Risveglio
+- L'Universo Risponde alle tue Domande, e Tu Ascolti
+- Making the Next Big Shift
+- Meaning of Life vs. Purpose of Life - The Difference...!
+- Moving from 'Service To Self' to 'Service To Life' - The New Paradigm
+- Multidimensionality - Multidimensionalidad - Main File
+- Nadie Escapa al Cambio
+- Nine Key Components of The Shift Towards Higher Consciousness
+- Ningún Ser es una Isla
+- No One Escapes the Shift
+- No te Apegues a la Sucia Tormenta
+- No todas las Tormentas vienen a Perturbar tu Vida - Algunas llegan para Despejar tu Camino
+- Now Is The Time to Pay Attention to Who You Are and Where You Are Going
+- Nuestra Búsqueda de Sentido
+- Nueve Componentes Clave del Cambio hacia Una Consciencia Superior
+- Nunca Estamos Solos
+- Overcoming God - From Man to Overman and Beyond
+- Overcoming Ownership-based Love
+- Participando Audazmente en la Continua Aventura
+- Permaneced Fuertes, Transformadores del Mundo
+- Personalism and its Enemies
+- Personal Transformation Through the Cultivation of One Practice
+- Pineal Gland - Main File
+- Planets As Consciousness Unit Formations
+- Porqué La Humanidad Tiene que Avanzar
+- ¿Porqué se Está Acelerando la Resonancia de Schumann de la Tierra?
+- Properties of The Earth as A "Consciousness Unit"
+- Quantum Consciousness
+- ¿Qué es la Consciencia Multidimensional?
+- ¿Qué es la Soberanía?
+- Qué es la Intuición - Una Simple Técnica para Percibir su Intuición
+- Realidad Simulada - MAIN FILE
+- Resultados Sinuosos y Trampas Peligrosas
+- Rompiendo La Fortaleza del Engaño
+- Saber vs. Creer - La Importancia del Conocimiento en tu Crecimiento
+- Scientific Proof That Galactic Energies Have Triggered Worldwide Consciousness Expansion
+- Scientists Now Believe the Universe Itself May Be Conscious
+- Señales de Advertencia del Universo
+- Señales de la Vida - Escuchar los Mensajes del Espíritu
+- Separation Has Begun
+- ¿Se Siente Usted Perdido, Desconectado, Sin Pasión o Propósito? He Aquí el Porqué Usted se Está...
+- Seven Reasons why Doubt is the Origin of Wisdom
+- Seven Simple Ways to Live Your Own Destiny
+- Shifts in Consciousness We are Experiencing Right Now
+- Siendo Nuestra Experiencia
+- Singularidad en El Universo Está Ahora Emanando Una Pre-Onda de Energía Para La 'Unidad de...
+- Solo un Dios puede Salvarnos
+- Some Major Shifts in Consciousness You Might Be Experiencing
+- Some Signs You've Had a Mystical Experience
+- Something Extraordinary is Happening in The World
+- Some Ways to Become More Conscious
+- Sophia-Christ Consciousness Creating Global Transformation
+- Sopor Eterno...
+- So You've Woken Up Now What?
+- Spiritual Answers to Global Conspiracies
+- Spiritual Guidance for Surviving the Coming Earth Changes
+- Squaring the Circle of God
+- Starseed Traits - Are You a Starseed?
+- Stay Strong, World Changers
+- Stephen Hawking's Final Book says "There's 'No Possibility' of God in Our Universe"
+- Streaming Universality
+- Strike While the Iron is Hot
+- Sueños, Líneas de Tiempo y Mundos Paralelos
+- Superando a Dios - Del Hombre al Superhombre y Más Allá
+- Terraformando al Planeta Tierra y a la Consciencia Humana con Interferencia Electromagnética
+- Terraforming Planet Earth and Human Consciousness with Electromagnetic Interference
+- The 9 Personalities which are Changing the World
+- The Ache of High Humor
+- The Battle of Armageddon Has Been Raging for Centuries
+- The Beginning Is Near
+- The Consciousness Revolution
+- The Conscious Universe
+- The Consequence of Consciousness
+- The Cosmic Matrix
+- The Council of Elders
+- The Critical Mass Has Been Reached - Staying "Down," The Humanitarian Energies, And Finding Our...
+- The Danger of Becoming the Darkness When Fighting the Dark Side
+- The Dark Side of 'Spiritual Enlightenment'
+- The Earth's Magnetic Field and Consciousness
+- The Effects of Fluoride on Consciousness and the Will to Act
+- The Ego is Not the Enemy
+- The Evolutionary Basis for the Condition of Human Consciousness
+- The Evolution of Consciousness on Earth
+- The Experiential Awareness of Being
+- The Fallen Angels
+- The First Sign You're Living Beyond the Five Senses
+- The Four Layers of Consciousness
+- The Global Butterfly Effect
+- The God Within - Exposure of The False Philosophical Foundations of Modern Science
+- The Grand Illusion - How Easily Can We See The Truth?
+- The Gullible Mind Explained
+- The Metaphysics of A Paradigm Shift in Consciousness
+- The Origin, Purpose and Destiny of the Earth Game
+- The Physical Universe is An Information System
+- The Power of Self-overcoming
+- The Power of Solitude
+- The Production of Consciousness out of States of Consciousness
+- The Programming of Our Consciousness
+- There has Never Been a Time when this Article didn't Exist
+- "There is no God, no One directs the Universe" - Stephen Hawking
+- The Revolution of Consciousness - Uranus in Aries
+- The Rough Road of Honest Discovery
+- The Science of Love - The Evolution of Consciousness and the Higgs Field
+- The Science of Raising Your Vibration
+- The Self-Aware Universe - An Interview with Amit Goswami
+- The Self-Aware Universe - A Synopsis of Amit Goswami's Theory of Physics & Psychic Phenomena
+- The Self is Pure Consciousness
+- The Self-Simulation Hypothesis Interpretation of Quantum Mechanics
+- The Smokescreen of Symbology
+- The Spiritual Battle for Our Humanity - Transhumanism, DNA, AI and our Forgotten Past - Gregg Braden
+- The Tao - Seven Deep Lessons from a Radically Wise Philosophy
+- The Theory of Consciousness that is 600 Years Ahead of its Time
+- The Tipping Point is Here - And it's All About You
+- The Unravelling
+- The War On Consciousness - The Talk that Gave TED Indigestion
+- The War Within - Escape the Temporal Illusory Holographic Matrix
+- The World as We Know it has Changed and There is No Going Back to What We Were - Six Predictions
+- This is Yours, That is Mine - The Ownership of Things Is Changing
+- Todos Están Trayendo Luz al Planeta
+- Traits of Star People and Starseeds
+- Transcending Self
+- Transformación Personal a Través del Cultivo de la propia Práctica
+- Trascendiendo el Yo
+- Tú Eres el Big Bang
+- Tú Eres el Campo de Batalla
+- Una Consciencia Expansiva
+- Una Fabula de Transformación
+- Una Gran Iniciación llamada 'Muerte'
+- Una Investigación Pionera dice que la Conciencia Humana podría conectar con Todo el Universo
+- Una Opción Distinta - La Nada...
+- Una Revolución en la Conciencia Humana
+- Universal Consciousness
+- Universal Consciousness - True Preparedness for Uncertain Times
+- Universalidad de Transmisión
+- Universe May Be a "Strange Loop" of Self-Simulating Consciousness - Says Physicist...
+- Universe Singularity Now Emanating Pre-Wave Energy For 'Enlightened Unity Consciousness'
+- Un-Plugged
+- Un Puente Entre Mundos
+- Upgrade to the Next Level of "Now"
+- Usted está Pasando a Través de Algunos Cambios - ¿Verdad?
+- Visionarios del 2012 - Los Viejos Sistemas se Están Quebrantando Para Abrir Paso a La Nueva Tierra
+- Warning Signs from The Universe
+- "We are Living in The Most Important Time in The History of The Universe" - Dolores Cannon Discusses...
+- We Are Never Abandoned
+- We Have it Within Ourselves to Raise our Conscious Level and That of Humanity
+- What if Everything You Believe is Wrong?
+- What is Consciousness? - by Bharati Sarkar
+- What is Consciousness? - by Konstantin Eriksen
+- What is Christ Consciousness?
+- What is Sovereignty?
+- What Really Matters?
+- When Seeing Isn't Believing
+- When Worlds Collide - Understanding the Challenges of Life on Planet Earth
+- Which Way Is Truth?
+- Why Feeling Lost is Normal
+- Why Humanity Must Come Through
+- Why is Earth's Schumann Resonance Accelerating?
+- Why 'Seeking Meaning' is Healthier than 'Seeking Happiness'
+- Why Truth is Always New
+- You are all Pulling Light Onto the Planet
+- You are Going Through Some Changes - Are You?
+- You are the Battlefield
+- You are the Universe
+- You are the Universe - Discovering Your Cosmic Self and Why it Matters
+- Your Consciousness can Connect with the Whole Universe - Quantum Theory
+Additional Information
+- Abstruse Sovereignty
+- A Call to Arms - To Touch Fingers, Not Triggers
+- Accessing Ancient Knowledge
+- A daily Temperature Rhythm in the Human Brain predicts Survival after Brain Injury
+- Advice for Newbies - Running List of Suggestions for Those With a Sense of Mission in Their Hearts...
+- A Fable of Transformation
+- Agencia Sagrada - El Propósito Humano en el Orden Sagrado
+- A Higher Conscious Conversation
+- ¿Alguien Más Está Sintiendo Las Extrañas Vibraciones?
+- Algunas Cosas que se Pierden cuando uno se Despierta Espiritualmente
+- Algunas Razones que Dejan en Claro Porqué No Deberías Dejar que la Sociedad Dicte Cómo te Sientes
+- Algunas Reglas para Ser Humano
+- Algunos Hechos Sobre la Consciencia
+- Algunos Increíbles Descubrimientos que tocan Todos los Aspectos de la Humanidad y Cambian el Mundo...
+- An Enormous Cosmic Evolutionary Step
+- Anyone Else Feeling The Strange Vibes?
+- Aprisionamiento de La Mente-Consciencia
+- Aquarius Rising - Crossroads in Time
+- Are Cosmic Forces at Work on Earth? - 'As Above, So Below'
+- Are Stars Celestial Water Springs?
+- Are We All Living in The Future Now? - New Studies Suggest...
+- Are We All Multiple Personalities of Universal Consciousness?
+- ¡Ármate Para Los Tiempos Venideros!
+- As It Is, So Are We
+- Aspects, Fractals and the Golden Thread
+- A surprising Explanation for the Global Decline of Religion
+- A Wandering Mind is an Unhappy Mind
+- A Word of Encouragement during this Shift
+- A World in Crisis - A Time to Rethink the Definition of Reality
+- Balance Cero - La Conciencia como Ultimo Reducto
+- Between The Lines
+- Beyond the 3rd Dimension
+- Blowing The Western Mind
+- Breaking Free from Ego
+- Breaking The Barriers of Belief
+- Bringing the "Overview Effect" Down to Earth - Seeing the Earth from a Distance changes the Perception
+- Calendario de Pensamientos Valiosos para el 2018
+- Cambio Planetario del Polo Terrestre que impulsa el Cambio Dimensional de Conciencia
+- Can Panpsychism Become an Observational Science?
+- Can the Universe Exist if there's No Consciousness around to Observe It? - The 'Participatory Anthropic...
+- Cayendo por El Borde del Mundo
+- Change Your Thinking, Change The World
+- Científicos identifican la "Puerta de Entrada" en el Cerebro que conduce a la Percepción Consciente
+- Clima Tormentoso en los Altos Mares Cósmicos
+- ¿Cómo Perciben Los Seres Humanos La Realidad y Qué Es lo Que Importa?
+- Cómo salir de La Matrix - según Philip K. Dick
+- Consciencia, Resonancia y Lo Paranormal - Nadando Sincronizadamente en El Océano Quántico
+- Consciousness As Seer
+- Consciousness in the Universe is Scale Invariant and Implies an Event Horizon of the Human Brain
+- Consciousness, Reality and Science
+- Consciousness, Resonance and The Paranormal - Synchronized Swimming in The Quantum Sea
+- Consensus Decision Making in Human Crowds
+- Contemplar la Impermanencia de Todas las Cosas - El Principio de todo Camino Espiritual
+- Cosmic Drama - God's Dream
+- Could Multiple Personality Disorder Explain Life, the Universe and Everything?
+- Cowans and Cowards...
+- Counter Corruption In Our World With Five Powerful Methods
+- Creando Cambios Conscientes
+- Creando un Futuro Positivo - La Ciencia del Tiempo Muestra que la Tierra está en una Línea de Tiempo...
+- Crear Silencio - Kierkegaard y la Cura para la Enfermedad Moderna
+- Creating a Positive Future - Time Science Shows Our Earth is on a Positive Timeline in our Time Space...
+- Creating Conscious Change
+- Critical Mass Approaching - The Shift Has Hit The Fan
+- Cuando se Derrumban nuestras más Profundas y Queridas Creencias
+- Cuán Importante es Nuestra Relación con el Silencio
+- Cultivando la Resiliencia para un Bienestar Total
+- Cultivating Resilience for Total Well-Being
+- Cultural an Spiritual Causes of Fukushima Disaster Explained
+- David Icke and Consciousness - Main File
+- Death of a Planet
+- De Cómo la Iluminación es el Proceso de Creación en El Universo en Reversa
+- Deep Green Resistance - Strategy to Save The Planet
+- De Guachos, Brujos y Bodhisattvas
+- Del Porqué es Tan Importante Elevar su Vibración de Energía
+- Del Porqué La Espiritualidad Es Una Forma de Vida Que Conduce a La Claridad
+- Der Gürtel, die Blase, die Verwirrung
+- Desprendiéndote de la Piel Obsoleta - Construyendo el Puente del Hombre al Súper-Hombre
+- Detrás de Las Palabras - Marielalero
+- Die Alterversum der willigen Unwissenheit
+- Disonancia Cognitiva
+- Disposición a El Cambio - Pasaporte a tu propio Paraíso Mental
+- Divine Cosmos
+- Donde pones tu Atención pones tu Intención
+- Don't Believe Everything You Think
+- Don't Seek Education, Seek Knowledge
+- Drenaje del Espíritu - De Cómo Los Manipuladores Roban Nuestra Lucha
+- Earth Planetary Pole Shift that drives Dimensional Consciousness Shift
+- Echo Down and the Tunnel Men
+- El Amanecer de Acuario - Cruce de Caminos en El Tiempo
+- El Arte de Vivir y Morir
+- El Astral - Holograma para Mantener Presa tú Consciencia
+- El Asunto de la Consciencia
+- El Cerebro estaría Conectado con el Cosmos a Escala Quántica
+- El Cinturón, La Burbuja y El Desconcierto
+- El Cuerpo Humano es la Fábrica donde el Universo se Recapitula a cada Momento
+- Electronic Energy Migration in Microtubules
+- El Efecto Mariposa
+- El Estudio de La Consciencia Fundamental Entra en El Mainstream
+- El Hombre con el Cerebro más Pequeño del Mundo Descubre el Secreto de la Consciencia
+- El Impostor
+- El León Se Despierta - Consciencia Global
+- El Maestro zen Dogen sobre Hacer el Cuerpo como el Universo
+- El Mapa Final del Tesoro - Desenterrando el Camino para Unir al Universo en el Respeto Mutuo
+- El Misterio del YO - Una Ilusión Espectacularmente Útil
+- El Pecado Original - Un Mito cuyo Tiempo Caducó
+- El Poder No Tiene Vida Propia
+- El Retorno de los Gnósticos y La Matrix
+- El Silencio Hace al Chamán
+- El Surgimiento de una Humanidad Intuitiva - Acceder a la Inteligencia Viviente
+- El Tercer Hombre
+- El Transhumanismo - La Trampa para la Consciencia
+- El Tránsito de Venus y Las Civilizaciones Perdidas de La Tierra
+- El Universo Como una Entidad Rítmica
+- El Viaje a Vidas Pasadas Pudiera Ser La Clave Para La Curación
+- En las Trincheras del Campo de Batalla Tierra
+- Entangled Biphoton Generation in the Myelin sheath
+- Entre Las Líneas
+- ¿Es el Ser Humano la Forma en la que una Divinidad Inconsciente alcanza Consciencia de Sí Misma?
+- Espiritualidad versus Religiosidad Dogmática - Una Guía para los Confundidos Espiritualmente
+- Está Bien que Usted No 'Encaje' en la Sociedad
+- ¿Está Consciente Nuestro Sol?
+- Estamos Cambiando Frecuencias Globales - Importantes Victorias le Esperan en Esta Década a La...
+- Estamos Navegando por Mares Cósmicos Inexplorados
+- Este es Nuestro Reino
+- Esto es lo que Significa 'Practicar lo que Uno Predica' y 'Ser el Cambio'
+- Eternal Damnation Doesn't Seem to Work
+- Exploradores de Dimensiones Superiores - El Poder de la Consciencia Activa
+- Explorers of Higher Dimensions - The Power of Active Consciousness
+- Falling Off The Edge of The World
+- Fascismo Espiritual
+- Faux Spirituality
+- Fear Itself
+- Fear of Death Means a Partially-Lived Life
+- Fear of The Unknown is Still Dividing The Planet - It's Time to Let Others Just Be
+- Feeling Unsafe? Your Gut Feeling May Be Right
+- Finding Peace in The Midst of Chaos
+- Five Reasons to Push Past your Comfort Zone
+- Five Signs the Global Engine of Deceit, Lies and Control are Coming to End
+- Fluoride, Aluminum, and a Global Society that Seems Unable to Wake Up
+- For Those Who Are Interested In Truth
+- Fringe Knowledge - For Beginners
+- From Extortion to Generosity, Evolution in the Iterated Prisoner's Dilemma
+- Funnel Vision - Is It Closing In On You?
+- Getting Ready for The Paradigm Shift - What is Singularity University?
+- Global Transmutation is Here - Let's Make Our Lives Epic!
+- Good Doesn't Always Win
+- Gnawing on Time... with Respect... a Bit of Advice
+- Harvard Scientists think they've Pinpointed the Physical Source of Consciousness
+- Has Something Shifted? Entering The Twilight Zone?
+- Hay Una Belleza Aquí que No Podemos Negar
+- HeartHealth - The Vulnerability of Being
+- Hemos Dejado de Percibir lo Divino - No porque Sepamos Más sino porque Sabemos Menos
+- Hooks, Hoops and Letting It Go
+- How Enlightenment is The Process of Creation in The Universe in Reverse
+- How Higher Levels of Consciousness May Appear in our Life
+- How Important is Our Relationship With Silence?
+- How Silence Awakens Your World
+- How to Know if You are a Lightworker or a Lightwarrior - And What They Are
+- How to Practice 'Dream Work' and Decipher your Psyche
+- How Wealth Reduces Compassion
+- Human Race, Take Your Power Back!
+- Hypogeums... The Politics of Secrecy
+- Imprisonment of Mind-Consciousness
+- In 2 Worlds - Waking Up to Another Layer of Reality
+- Inception and Consciousness
+- Information Fixation and the True Breakaway Civilization
+- In the Trenches of Battlefield Earth
+- Is Depression Actually Good For You?
+- Is Our Sun Conscious?
+- Is the Truth Toxic?
+- It's Okay to NOT 'Fit In' With Society!
+- It Was Nice Knowing You, America
+- Keep an Even Keel and Your Hand Upon the Wheel
+- "Know Thy Self" as Eternal Spirit - From the Ancient Greeks
+- La Anatomía de 'Dios'
+- La Autenticidad nos Hace Seres Felices - Entrevista a Jorge Carbajal
+- La Caída Interna
+- La Ciencia Ha Sido La Fuente de Nuestro Retroceso, y No Progreso
+- La Conciencia es el Colapso de la Función de Onda
+- La Condena Eterna Parece No Funcionar
+- La Depresión Puede Ser Benéfica Si Logras Atravesar El Fango Emocional
+- La Diferencia que Poseen las Personas de Mente Abierta
+- La Evolución Espontánea Ha Llegado
+- La Fijación en la Información y la Verdadera Civilización Disidente
+- La Flecha Envenenada - La Parábola Budista que nos pone Frente a Frente con Nuestro Mayor Error
+- La Gran Ilusión del Yo - No Eres La Persona que Piensas que Eres
+- La Ley Universal Apoya Colapso de La Economía en 2011, la Ascensión en 2012 - Dice Científico
+- La Llegada de Las Eras
+- La Mecánica de La Oración
+- La No Dualidad es la Nueva Realidad
+- La Ola Final de Almas está aquí y va a Cambiar Todo
+- La Onda - The Wave - Main File
+- La Perversión de la Gnosis
+- La Propiedad Privada y Las Mafias de La Privatización ante El Cambio de Ciclo y El Nuevo Paradigma...
+- La Proprietà Privata e Le Mafie della Privatizzazione di fronte al Cambiamento del Ciclo e il Nuovo...
+- Las Ciudades Internas del Futuro
+- Las Frecuencias Cerebrales y Los Estados de Consciencia que las Caracterizan
+- Las Trampas del "Más Allá"
+- Las Tres Oleadas de Voluntarios - con Dolores Cannon
+- La Triada de La Evolución
+- La Última Hora de Vida
+- La Urgencia de la Transformación
+- La Vida como Oportunidad de Evolución
+- La Vida Interior
+- Lessons in Stillness from One of the Quietest Places on Earth
+- 'Let's Start A War' - An Alternative View
+- Liberándonos del Ego
+- Libertad - Un Estado del Corazón Humano
+- Life Forms and The Mirrors of Self
+- Lo Mágico Nunca Murió - Lo Sagrado Sigue Vivo
+- Los Cambios Anunciados... ¡Toman Su Tiempo!
+- Los Científicos Plantean Nuevos Términos a la Ecuación Humana
+- Los 'Pequeños' y la Edad Dorada
+- Mantenga la Quilla Nivelada y la Mano sobre el Timón
+- Más de 2.000 Años Después los Científicos Ratifican la Teoría de la Consciencia de Platón
+- Medical Intuitive Observations about Fukushima Radiation
+- Metafísica en Un Planeta Brutal
+- Metaphysics on A Brutal Planet
+- Microtubule-Stabilizer Epothilone B delays Anesthetic-Induced Unconsciousness in Rats
+- Mitología Polar - La Gnosis Según Montalk
+- Modern Kali Yuga and the Full Spectrum War against Consciousness
+- Motion Integration and Postdiction in Visual Awareness
+- My Open Letter to Every Kid in America
+- Never Not Broken - The Power of Falling Apart and Coming Back Together Again
+- New Evidence for the 'Necessity' of Loneliness
+- New Science's Paradigm
+- ¡No Bajes Los Brazos!
+- No Creas en Todo lo que Piensas
+- Non Duality is The New Reality
+- No Queda Tiempo - La Dinámica de La Nueva Resistencia
+- Nos Acercamos a La Masa Crítica - El Cambio Está Aquí
+- Nosotros Somos El Cambio
+- No Time Left - The Dynamics of The New Resistance
+- Nuevo Paradigma de la Ciencia
+- On Consciously bringing Heaven-on-Earth into Existence
+- One Small Shift for Earth, One Large Shift for Mankind
+- Orchestrated reduction of Quantum Coherence in Brain Microtubules - A model for Consciousness
+- Ouspensky - Extracts from "In Search of the Miraculous"
+- Polar Mythology - The Gnosis by Montalk
+- ¿Porqué Creemos lo Que Creemos?
+- Porqué el Silencio nos hace Percibir Más y Mejor
+- Porqué el Silencio y la Quietud son los Requisitos de la Sabiduría
+- Porqué en los Mejores Momentos de la Vida deja de haber un "Yo" Separado del Mundo
+- ¿Porqué está el Mal tan Apurado? - La Muerte de La Luz
+- ¿Porqué Paré de Buscar mi Propósito? - Y Porque Pienso que Deberías Hacer lo Mismo...
+- Porqué Toma Tiempo el Proceso de Iluminación
+- Porqué un científico 'Genio' piensa que nuestra Consciencia se Origina en el Nivel Quántico
+- Power and Choice Are Interchangeable - It's All About Controlling Your Life
+- Power Has No Life of Its Own
+- Pristine Consciousness - The Canvas Upon Which Life Expresses Itself
+- Proof that Cooperative, Forgiving and Generous Populations Succeed in The Long-Term while Selfish...
+- Pronósticos Para el 2010 de La Consciencia Cósmica
+- Pronósticos Para el 2011 de La Consciencia Cósmica
+- Pronósticos Para el 2012 de La Consciencia Cósmica
+- ¿Puede el Universo Existir si no hay Consciencia Alrededor para Observarlo? - 'Principio Antrópico Participativo'...
+- ¿Pueden las Entidades Extradimensionales ingresar a otras Dimensiones, incluida la Nuestra?
+- Qué Eres ¿"Normal" o "Anormal"? - Humanidad Promedio Estadístico
+- ¿Qué es El 'Cambio'?
+- Qué Esperar en El 2012 y Qué Detonadores Emocionales se Deberán Evitar
+- ¿Qué se Llevaría Usted al Más Allá? - Vida, Muerte, Experiencias Fuera del Cuerpo y el Viaje de La...
+- ¿Quién Es Usted? - El Significado Más Profundo
+- Raza Humana, ¡Retoma tu Poder!
+- Readers Stunned to Learn That Conventional Scientists Don't Believe in Mind, Spirit, Free Will or...
+- Realidades Convergentes - Arte, Tecnología, Consciencia, Desde La Perspectiva Planetaria
+- Reality Creation Redux
+- Recuerdo de Cosas Pasadas - El Nuevo Ciclo Galáctico Post-Ascensión
+- Regreso a La Creación de La Realidad
+- Reincarnation:
+- Remembrance of Things Past - The New Galactic Cycle Post-Ascension
+- Research Links Power and Tendency to Punish Harshly
+- Research on Consciousness, PSI Effects and Precognition
+- Rethinking The Nature of Life
+- Reuniting The Spiritual and The Practical Through Activism
+- Reverse Engineering to ONE
+- Sailing The Uncharted Cosmic Sea
+- Scientists Monitored the Brains of 4 Dying Patients - Here's what they Found
+- Sei "Normale" o "Anormale"?
+- Seis Señales de que puedes ser un 'Chamán de Desastres'
+- Seven Things they Never Told Me at School - But Could Have
+- Shedding Outdated Skin - Building the Bridge from Man to Overman
+- Silence - The Journey Within
+- Síntomas de Transformación-Evolución - Cambios Corporales
+- Six Signs you may be a 'Disaster Shaman'
+- Sobre La Ascensión, La Cólera y Guénon
+- Some Compelling Reasons Why the Only Answer is to Question
+- Some Facts About Consciousness
+- Some Mind-Blowing Discoveries that Would Touch All Aspects of Humanity and Change the World Forever
+- Some Pieces of Wisdom and Quotes from Native American Elders
+- Some Reasons that Make it Clear why You should not Let Society Dictate How You Feel
+- Some Reasons why People don't Want The Conspiracy to Die
+- Some Rules for Being Human
+- Somos Polvo de Estrellas - Y Polvo del Big Bang...
+- ¿Somos Todos Múltiples Personalidades de una Conciencia Universal?
+- So Much Power in Words
+- Spirit of Rebellion - Rebellion of The Spirit
+- Spirit Tap - How The Manipulators Steal Your Fight
+- Spiritual Fascism
+- Spirituality vs. Dogmatic Religiosity - A Guide for the Spiritually Perplexed
+- Spontaneous Evolution Has Arrived!
+- Spontaneous Evolution - Humanity is On the Brink of Spontaneous Evolution
+- Spread Your Wings! - Some Benefits of Living Outside Your Comfort Zone
+- Stealth Oneness - Crap! I'm Confused
+- Stormy Weather on High Cosmic Seas
+- Swearing The Dysphemism - Prisoners Living in A Cave
+- Systemic Change, New Technology and Conscious Governance - Where Do We Begin?
+- Talking to Bill Ryan and Kerry Cassidy - Paranexus Radio Interview Transcript
+- Teniendo Acceso al Conocimiento Antiguo
+- The Alterverse of Willful Ignorance
+- The Anatomy of 'God'
+- The Approaching Timeline Split
+- The Art of Living and Dying
+- The Battle of The Bilge - An Spiritual Smog Attack...
+- The Belt, The Bubble and The Bewilderment...
+- The Breath of Brahma
+- The Butterfly Effect
+- The Coming of Ages
+- The Conscious and Unconscious Mind
+- The Cosmic Awareness Forecast for 2011
+- The Cosmic Awareness Forecast for 2012
+- The Cosmic Laws of Creation and Destruction
+- The Cosmic Laws of Creation and Destruction - Why and How the World Economic Order Will Collapse...
+- The Critical Mass of Enlightenment
+- The Dangerous Mind - Flat Earth Fundamentalism and the Archon Agenda
+- The Difference that Open-minded People Possess
+- The Empowering Truths of Mahatma Gandhi
+- The Era of Programming The Mind
+- The Fall Inside
+- The Fate of the Universe - Heat Death, Big Rip or Cosmic Consciousness?
+- The Final Wave of Souls is here and it's going to Change Everything
+- The Game of Earth Is Yours to Play
+- The Grand Illusion of Self - You're Not The Person You Think You Are
+- The Great Gathering of Humanity - The Time for Global Change is Now
+- The Hero Within
+- The Imposter
+- The Interviews with Jack True - One of The Most Innovative Hypnotherapists of Our Time - by J. Rappoport
+- The Last Hour of Life
+- The Lion Wakes - Global Consciousness
+- The Little Sweeties and The Golden Age
+- The Mechanics of Prayer
+- The Mystery of the Self - A Spectacularly Useful Illusion
+- The Next Big Bang - Human Consciousness and the Universe's Ultimate Secret
+- The Original Sin - A Myth Whose Time is Up
+- The Question of Consciousness
+- There Is a Tipping Point for The Spread of Ideas and It Has Finally Arrived
+- There May Be a Rapture, But It Won't Be This Saturday
+- There's a Beauty Here We Cannot Deny
+- The Return of the Gnostics and The Matrix
+- The Rise of an Intuitive Humanity - Accessing the Living Intelligence
+- The Self-Illuminated Human
+- The Shift of The Ages
+- The Soul - El Alma
+- The Study of Fundamental Consciousness enters The Mainstream
+- The Taoist View of the Universe
+- The Three Waves of Volunteers - An Edge Interview with Dolores Cannon
+- The Truth is Out There
+- The Tyranny of "What Already Exists"
+- The Unfolding of The Divine
+- The Universe in Consciousness
+- The Venus Transit and The Lost Civilizations of Earth
+- The Wisdom of Alan Watts
+- The World As It Could Be If We Only Stand Together
+- This Is Our Realm
+- This Is what "Practicing What You Preach" and "Being the Change" really Means
+- ¿Tienes una Relación con algo Infinito o no? - Esta es la Pregunta Decisiva para un Ser Humano según Jung
+- Transformando La Mentalidad Occidental
+- Transformation-Evolution Symptoms - Body Changes
+- Transhumanism - The Consciousness Trap
+- Travel Back in Life - It May Be The Key to Healing
+- Triad of Progress
+- Truth or Denial in The Age of Information Overload
+- Tu Vida es tu Obra Maestra - La Vida como Arte y el Arte como Vida
+- Una Oportuna Llamada Desde "El Más Allá" - Los "Sermones" de Wilcock
+- Una Palabra de Aliento Durante este Cambio
+- Un Pequeño Cambio Para La Tierra, Un Gran Cambio Para La Humanidad
+- Volver a Encantar el Mundo
+- Volviendo a Pensar Sobre La Naturaleza de La Vida
+- We Are Shifting Global Frequencies - Major Victories Await for Humanity in This Decade
+- We Are Stardust - And Big Bang Dust...
+- We Are Star Seeds - Born from The Universe
+- We Are The "Delta" Types of Huxley's 'Brave New World'
+- We May Be Less Happy - But Our Language Isn't
+- We're Sailing In Uncharted Cosmic Seas
+- We Want to Live in A World That Is...
+- What I Learned from Dolores Cannon's Work and How it Changed My Life
+- What is Spiritual Oneness or "Wholeness"?
+- What is The Fifth Dimension?
+- What is The "Shift"?
+- What Would you Take with You to The Afterlife? - Life, Death, Out-of-Body Experiences and the Journey...
+- When 'Bad' Manifestations Happen to 'Good' Light Workers
+- When We Grow Up, We Will Fall in Love with Earth
+- Where Did All the Gods Go? - Seeking Our Mythologies
+- Where Do We Come From?
+- Who's Winning The War On You?
+- Why a "Genius" Scientist thinks our Consciousness Originates at the Quantum Level
+- Why Cosmology Matters Beyond Science
+- Why do we Feel we can't Escape a System that we Created?
+- Why Enlightenment Takes Time
+- Why I am increasingly Persuaded by Idealism - Or more simply, why Materialism is Obviously Wrong
+- Why is Evil in Such a Hurry? - The Dying of the Light
+- Why Raising Your Energy Vibration is so Important
+- Why Spirituality is a Way of Life Leading Towards Enlightenment
+- Winter Blues and the Canvas of Reality
+- Y Después de Todo Este Tiempo...
+- Your Life is Your Masterpiece - Life as Art and Art as Life
+Collective Consciousness - Conciencia Colectiva
+- Actualización de la Estructura de SC - El Sistema de Control 2024
+- A Modern Age and the Modern Seeker
+- Aquel a Quien los Dioses quieren Destruir...
+- Are we Having a Collective Precognitive Memory of Going Home to The Stars?
+- Are we Shifting into Group Consciousness?
+- Beyond Kingdoms and Empires...
+- Collective Awareness and Spiritual Evolution - Why a Rewrite of History is Needed
+- Collective Consciousness will Change the World! - Spread the Word
+- De los Dioses que se Aferran al Inconsciente Colectivo
+- Diferentes Niveles de Profundidad en la Programación del Arquetipo Religioso - Logos y el Origen de la Fuente
+- ¿Estamos Cambiando a una Conciencia de Grupo?
+- Experiencing a Collective Shift through Personal Transformation
+- Experimentando un Cambio Colectivo a Través de la Transformación Personal
+- Flight of the Black Thunderbird
+- French General says Unvaccinated are "Superheroes"
+- General francés dice los No Vacunados son "Superhéroes"
+- Jerarquías "Demiurgas" - Las Categorías de Entes que existen en nuestro Planeta
+- La Consciencia no sería solo Individual y Privada sino también Grupal
+- La Gran Herejia
+- La Perspectiva Demiúrgica y el Dios Artificial
+- Nuestra Iniciación - Atravesando el Inframundo
+- Our Initiation - Passing Through the Underworld
+- ¿Por qué la Mayoría de los Entes bajo Gestión del 'Demiurgo' funcionan en "Automático"?
+- Pure Human - The Hidden Truth of Divinity, Power and Destiny
+- The Demiurge Perspective and the Artificial God
+- The Grand Heresy
+- The Living Work - The Modern Seeker
+- The Truth Market - The Scum also rises...
+- Una Era Moderna y el Buscador Moderno
+- Untangling the Quantum Entanglement
+- Whom The Gods would Destroy
+- Why Collective Consciousness will soon Render all Forms of Government Obsolete
+- Yap - La pequeña Isla con Dinero tan Grande y Pesado que nadie podía Mover... ni Robar
+Multimedia:
+- Hacia la Nueva Tierra - Un llamado a Despertar en un Mundo Programado
+- Los Dioses y sus Fronteras Culturales
+Consciousness' Expressions - Expresiones de la Conciencia
+- Consciousness and Alien Life - Main File
+- Consciousness and Awakening - Main File
+- Consciousness and Human Energy - Main File
+- Consciousness and Nature - Main File
+- Consciousness and Science - Main File
+- Consciousness and Sociopolitics - Main File
+- La Consciencia y El Despertar - Main File
+- La Consciencia y La Ciencia - Main File
+- La Consciencia y La Energía Humana - Main File
+- La Consciencia y La Naturaleza - Main File
+- La Consciencia y Sociopolitica - Main File
+- La Consciencia y Vida Alienígena - Main File
+Freedom - Libertad
+- A Life Free of Burden - Why Are We Not Able to Progress Quickly?
+- Balance, Purga y Liberación
+- "Caerse no es un Fracaso. El Fracaso llega cuando te Quedas donde has Caído" - Sócrates
+- Consciousness is Key to your Liberation
+- Does Humanity Even Want Freedom?
+- El Solitario Camino del Librepensador
+- Epictetus - The Stoic-Slave who taught the World to be Free
+- Freedom - A Condition of The Human Heart
+- How to Avoid turning Freedom into Enslavement
+- Human Will - The Forgotten Freedom Faculty
+- Il Cammino Solitario del Libero Pensatore
+- La Consciencia es la Clave de tu Liberación
+- La Imparable Liberación de La Humanidad
+- Our Quest for Freedom and Other Essays - by Paul Cudenec
+- Our Quest for Freedom - Inspiring Ectract
+- Soy Yo - Soy Libre - Guía del Robot para la Libertad - por David Icke
+- The 11-11-11 Energy Wave - What Awaits is Empowerment, Embodiment and Liberation
+- The Lonely Road of The Free Thinker
+- The Unstoppable Liberation of Humanity
+- We Need Free Thinkers or Society Will Shrivel Up and Die
+- Why The Hell would Anyone want to Be Free?
+Free Will - Libre Albedrío
+- A Neuroscientist Explains the Radical Theory that our Free Will is just an Illusion
+- Brain Makes Decisions Before you even Know It
+- Cambiando Las Líneas de Tiempo, el Libre Albedrío y el Poder de Elección
+- Cómo funciona el Mecanismo del Libre Albedrío en el Ser Humano
+- 'Deep State' Neuroscientists Believe they can Turn Off Free Will
+- El Inconsciente Propone
+- El Libre Albedrío en Los Antiguos Textos Sánscritos
+- El Libre Albedrío es Una Ilusión
+- El Libre Albedrío parece ser una Fantasía - Tu Inconsciente toma Decisiones incluso Antes de que lo Sepas
+- ¿Existe el Libre Albedrío?
+- ¿Existe el Libre Albedrío o somos Títeres de Procesos Inconscientes?
+- Fate and Free Will - The Stoic Perspective
+- Free Will, Determinism and the War on Consciousness
+- Free Will, Fate, and Causality in Matrix Reloaded - Essay on The Philosophy of The Matrix Sequel
+- Free Will in The Ancient Sanskrit Texts
+- Free Will is an Illusion
+- How to Get Out of Your Own Way
+- Is Everything Predetermined or Do We Have a Free Will?
+- Is Free Will an Illusion?
+- Is There such a Thing as Free Will? - And if not, What are the Consequences?
+- La Ilusión del Libre Albedrío - Los Científicos estudian cómo Encajar la Voluntad en la Realidad del Mundo...
+- Libre Albedrío, Determinismo y la Guerra a la Consciencia
+- Los Cerebros 'Hackeados' Votan
+- Memories in the Free Will Zone
+- Neurocientíficos del 'Estado Profundo' creen que Pueden Desactivar el Libre Albedrío
+- Porqué las Fuerzas Negativas Parecen Respetar el Libre Albedrío
+- Recuerdos en la Zona del Libre Albedrío
+- Scientists Spot Brain's "Free Will" Center
+- Shifting Timelines, Free Will and the Power of Choice
+- Toma tu Libre Albedrío
+- Unconscious Determinants of Free Decisions in the Human Brain
+- Why Negative Forces Seem to Respect Free Will
+Intuition - Intuición
+- A Deeper View of Intuition
+- Cómo Confiar en tu Intuición para Tomar Grandes Decisiones
+- How to Hit a Target No One Else Can See
+- How to Trust Your Intuition to Make Big Decisions
+- La Ciencia de la Intuición - Cómo Sintonizarnos con la Nuestra...
+- Sovereign - Reclaim your Freedom, Energy and Power in a Time of Distraction, Uncertainty, Chaos - by E. Seppälä
+- The Science of Intuition - And How to Tune into Your Own...
+- Una Visión más Profunda de la Intuición
+- What is Intuition - Simple Technique to Sense Your Intuition
+Law of Attraction
+- Atrayendo el Mañana - Consciencia Mas Alta se Expande Entre la Humanidad
+- Attracting Tomorrow - Higher Awareness Unfolding Among Mankind
+- Cómo Hacer que 'La Ley de Atracción' Realmente Funcione para Usted
+- Creating Reality from Thought - Blowing the Whistle of Enlightenment
+- How to ACTUALLY Make 'The Law of Attraction' Work for You
+- Law of Attraction vs. Law of Awareness
+- Ley de Atracción versus Ley de Consciencia
+- Soul Resonance and the Law of Attraction
+- Synchronicity - The Law of Attraction and Manifestation
+- The Nutrition Secret Behind 'The Secret'
+- El Secreto
+- The Secret
+Sounds, Music and Consciousness
+- 440Hz Music - Conspiracy to Detune Us from Natural 432Hz Harmonics
+- Composing for the Media - Eisler and the Rockefeller Foundation Music Projects
+- Control del Culto Musical - Guerra a la Conciencia de la Fundación Rockefeller a través Imposición de A=440 Hz
+- El Fenómeno de Ondas de La Cimática - Main File
+- El Sonido es la Medicina del Futuro
+- Estasi Musicale - Un Regalo per Guarire l'Umanità
+- Éxtasis Musical - Un Regalo de Sanación para La Humanidad
+- La Canción de los Condenados
+- La Controlada Industria de la Música - MK Ultra
+- La Frecuencia A=432 Hz - Afinamiento del ADN y la Bastardización de la Música
+- La Resonancia del Alma y la Música
+- Música de 440 Hz - Conspiración para Desintonizarnos de los Armónicos Naturales de 432 Hz
+- Musical Cult Control - The Rockefeller Foundation's War on Consciousness through the Imposition of...
+- Music - A Channeled Dialogue with Beings from Lyra
+- Musical Rapture - A Healing Gift for Humanity
+- Not a Slippery Slope or Sudden Subversion - German Medicine and National Socialism in 1933
+- Soul Resonance and Music
+- The A=432 Hz Frequency - DNA Tuning and the Bastardization of Music
+- The Controlled Music Industry - MK Ultra
+- The Music Industry Exposed
+- The Wave Phenomena of Cymatics - Main File
+- What is 432 Hz Tuning?
+Books-Treatises
+- A New Science of Heaven - by Robert Temple
+- Aurobindo o La Aventura de La Consciencia - por Satprem
+- Autobiography of A Yogi - by Paramahansa Yogananda
+- Cosmic Consciousness - A Study in the Evolution of the Human Mind - by Richard Bucke
+- Dark Night, Early Dawn - Steps to a Deep Ecology of Mind - by Christopher M. Bache and Stanislav Grof
+- El Poder del Ahora - por Eckhart Tolle
+- El Reino de la Cantidad y los Signos de los Tiempos - por René Guénon
+- El Rostro Verde - por Gustav Meyrink
+- Far Journeys - by Robert Monroe
+- 'Gnosis' - Study and Commentaries on The Esoteric Tradition of Eastern Orthodoxy - by Boris Mouravieff
+- Handbook for The New Paradigm - by George Green
+- Ho'Oponopono - Proceso de Cura Hawaiano
+- In Search of the Miraculous - Fragments of a Forgotten Teaching - by P.D. Ouspensky
+- Kinds of Minds - The Origins of Consciousness - by Daniel Dennett
+- La Biología de La Creencia - La Liberación del Poder de La Consciencia... - por Dr. Bruce H. Lipton
+- La Literatura y los Dioses - por Roberto Calasso
+- Left In The Dark - by Graham Gynn and Tony Wright
+- Manual Para El Nuevo Paradigma - por George Green
+- Mind Mastery Meditations - A Workbook for the "Infinite Mind" - by Valerie V. Hunt
+- Mother's Agenda - Vol. 1 - by Satprem - LARGE FILE
+- Messages for The Ground Crew - Personal Realities - by George Green
+- New Revolutions for a Small Planet - How the Coming Years will Transform Our Lives - by Kingsley Dennis
+- Pedagogía del Oprimido - por Paulo Freire
+- Pedagogy of The Oppressed - by Paulo Freire
+- Power vs. Force - The Hidden Determinants of Human Behavior - by David R. Hawkins
+- Return to Source - How Enlightenment is the Process of Creation... - by Belsebuub & Angela Pritchard
+- Sacred Economics - by Charles Eisenstein
+- Sri Aurobindo o La Aventura de La Consciencia - por Satprem
+- The Biology of Belief - by Bruce H. Lipton
+- The David Icke Guide to The Global Conspiracy - And How to End It
+- The Fourth Way - by P.D. Ouspensky
+- The Joyous Cosmology - Adventures in The Chemistry of Consciousness - by Alan W. Watts
+- The Lost Symbol - by Dan Brown
+- The Power of Now - by Eckhart Tolle
+- The Reflexive Universe - Evolution of Consciousness - by Arthur M. Young
+- The Self-Aware Universe - How Consciousness Creates the Material World - by Amit Goswami et.al.
+- Thinking and Destiny - by Harold W. Percival
+- Views From The Real World - Early Talks - by G.I. Gurdjieff
+- War in Heaven - The Invisible College - A Completely New And Revolutionary... - by K.Griffith
+- You Are the Universe - Discovering Your Cosmic Self and Why It Matters - by Deepak Chopra and Menas Kafatos
+Multimedia
+- 2012 Crossing Over - A New Beginning
+- 21st Century Enlightenment - RSA Animates
+- Alan Watts - A Conversation With Myself
+- Alan Watts - Conversaciones Conmigo Mismo
+- A Message - The Pleiades...
+- A Molecule Found Throughout Nature - The Spirit Molecule
+- Architects of Control - Michael Tsarion
+- Are You Normal? - Or Abnormal
+- Atravesando el 2012 - Un Nuevo Inicio
+- Brain, Mind and Consciousness
+- Change for A Dollar - Actions Like This Are The Real CHANGE!
+- Changing Vibrations - David Icke Talking to Meria Heller
+- Consciencia - Extractos de La Entrevista a George Kavassilas por Global Transformer - Junio 2011
+- Consciousness and Spirituality - David Icke
+- Consciousness - Global Transformer Meets George Kavassilas - June 2011
+- Consciousness - People Are Wakening Up, Humans Are Changing! - David Icke Interview October 2010
+- Consuming Kids
+- David Icke - Melbourne 2009 - Human Race Get Off Your Knees!
+- Deprogramming Yourself - The Parting of The Ways
+- Ego and Compassion
+- El Derrame de Iluminación - Jill Bolte Taylor
+- El Ego y La Compasión
+- El Futuro de La Humanidad - Arquitectos del Control
+- El Manifiesto Wayseer - El Video Que No Quieren Que Miremos!
+- Entheogenic Shamanism Ancient Astronauts History
+- ¡Eres Increíble...!
+- Escucha a Tu Corazón - Una Bocanada de "Aire Fresco"
+- Follow Your Virtue
+- Habitantes del Mundo de Hoy
+- Humanity has Reached a Vital Crossroads... - Five Gateways Remastered 2015
+- Human Life is An Experience - David Icke
+- Human Resources - Social Engineering In The 20th Century
+- In Conversation With David Icke
+- La Belle Verte - Verde Hermoso - The Green Beautiful
+- La Consciencia Total - Enric Corbera
+- La Ghiandola Pineale e la Battaglia per le nostre Anime - Dr. Dietrich Klinghardt
+- La Glándula Pineal y la Batalla por nuestras Almas - Dr. Dietrich Klinghardt
+- La Herencia Universal - La Educación Prohibida - Ater Tumti - Matías De Stefano
+- La Realidad Es Una Ilusión
+- Listen to Your Heart - A Bit of "Fresh Air"...
+- Lucha No Violenta - Gandhi y La Marcha de La Sal
+- Matriz de La Vida
+- Mind Programming, Brainwashing and Mass Hypnosis - David Icke
+- Mundos Internos, Mundos Externos
+- Nos Dijeron Que...
+- Nuestro Viaje Cósmico - Te Reconoceré...
+- Nuevas Energías Espirituales de La Tierra en Latinoamérica - Drunvalo Mechizedek en Argentina 2008
+- Para el Juan Salvador Gaviota que Todos Somos
+- Para el Pedro Gaviota que Todos Somos
+- Planeta Prisión - Nosotros Los Esclavos
+- Reality and The Extended Mind
+- Reclaiming Dominion - Santos Bonacci
+- Renegade - The Life Story of David Icke
+- Sanación - Ancestros e Inteligencias
+- Slavery by Consent
+- Stroke of Insight - Jill Bolte Taylor
+- Supra-Consciousness - Human Transformation, Earth Changes & The New World
+- Take a Step Back, Look at It Again - David Icke
+- The Collective Evolution
+- The Extended Mind - New 2005 Paranormal Experimental Evidence
+- The Global Brain
+- The God Within
+- The Lost Generation
+- The Madness of A Lost Society
+- The Pineal Gland and the Battle for our Souls - Dr. Dietrich Klinghardt
+- The Primacy of Consciousness - by Peter Russell
+- The Secret Powers of Our Mind
+- The War on Consciousness - Banned TED Talk
+- The Wayseer Manifesto - The Video They Don't Want Us to See!
+- This Has the Capacity to Tremendously Alter Life on Earth
+- Thrive 1 - Cosa diavolo ci vorrà?
+- Thrive 1 - ¿Cuánto le Costará al Planeta?
+- Thrive 1 - What on Earth Will It Take?
+- Thrive 2 - This is What it Takes
+- Top Ten Documentaries Every Activist Must Watch
+- Toward Integral Consciousness
+- Tranquility - Music for Meditation and Relaxation for Your Mind, Body and Soul
+- ¡Tú Creas tu Propia Realidad! - David Icke
+- Tu Ultima Llamada Para La Inspiración
+- Una Realidad Paralela
+- UNGRIP
+- Un Mensaje - Las Pleyades...
+- Un Messaggio - Le Pleiadi...
+- Vibrations and The Power of Human Emotions
+- Viva La Vida - David Garrett
+- Why Are We Here? - Graham Hancock
+- Why do intelligent People avoid People...?
+Related Reports
+- 2012 - Main File
+- Abductions and Abductees - Main File
+- David Bohm y El Paradigma Holografico - Main File
+- Dimensions and Hyperdimensions - Main File
+- El Universo de La Nueva Fisica - Main File
+- Las Canalizaciones de Marielalero - Main File
+- Lucid Dreaming - Main File
+- Organic Portals - Main File
+- Quantum - Main File
+- Shamanism - Main File
+- Synchronicity - The Key of Destiny - Main File
+- The Astral Plane - Main File
+- The Holographic Universe - Main File
+- Vida en El Universo - Life in The Universe - Main File
+Return to The Ascension-Transformation-Evolution Process
+Return to Temas / Main Files
+Return to Cosmos
