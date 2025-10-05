@@ -21,6 +21,8 @@ def fetch(url):
     return r.text
 
 def discover_article_links():
+    # Many sections use index pages ending with /indice_*.htm or /index.htm
+    # We’ll crawl the home page and follow internal links, collecting *.htm/*.html
     seen, to_visit, articles = set(), [BASE], set()
     domain = urlparse(BASE).netloc
 
@@ -28,10 +30,9 @@ def discover_article_links():
         p = urlparse(u)
         return p.netloc == "" or p.netloc == domain
 
-    while to_visit and len(articles) < 200:   # limit exploration for safety
+    while to_visit:
         url = to_visit.pop()
-        if url in seen: 
-            continue
+        if url in seen: continue
         seen.add(url)
         try:
             html = fetch(url)
@@ -39,43 +40,52 @@ def discover_article_links():
             continue
         soup = BeautifulSoup(html, "lxml")
 
+        # collect candidate pages
         for a in soup.select("a[href]"):
             href = a.get("href")
-            if not href: 
-                continue
+            if not href: continue
             absu = urljoin(url, href)
-            if not is_internal(absu): 
-                continue
-            if not absu.startswith(BASE): 
-                continue
+            if not is_internal(absu): continue
+            if not absu.startswith(BASE): continue
+            # keep only HTML pages
             if not re.search(r"\.(?:html?|shtml)$", absu, re.I):
                 continue
+            # Skip obvious nav assets
             if any(x in absu.lower() for x in ["/images/", "/img/", "/js/", "/css/"]):
                 continue
 
+            # Heuristic: treat leaf pages not obviously index-like as articles
             if not re.search(r"(index|indice|contents)\.html?$", absu, re.I):
                 articles.add(absu)
 
-            if len(seen) < 500 and len(to_visit) < 1000:
+            # BFS-ish: also crawl further (limits)
+            if len(seen) < 4000 and len(to_visit) < 8000:
                 to_visit.append(absu)
 
-        time.sleep(0.05)
+        # politeness
+        time.sleep(0.1)
 
-    print(f"✅ Discovered {len(articles)} possible articles")
-    # Limit for test
-    sample = sorted(list(articles))[:20]
-    print(f"⚙️  Limiting to {len(sample)} articles for quick test")
-    return sample
+    return sorted(articles)
 
 def extract_main_text(url, html):
+    # Try robust auto-extraction first
     downloaded = trafilatura.extract(html, url=url, include_tables=False, include_comments=False)
     if downloaded and downloaded.strip():
         return downloaded
+
+    # Fallback: simple main-content grab
     soup = BeautifulSoup(html, "lxml")
-    node = soup.find("body")
-    if not node:
-        return soup.get_text("\n", strip=True)
-    return node.get_text("\n", strip=True)
+    # Try common containers
+    candidates = [
+        "#content", "#main", ".content", ".post", ".entry", "td[width='600']", "td[width='650']",
+        "table table table"  # many legacy layouts
+    ]
+    for sel in candidates:
+        node = soup.select_one(sel)
+        if node and node.get_text(strip=True):
+            return node.get_text("\n", strip=True)
+    # last resort
+    return soup.get_text("\n", strip=True)
 
 def meta_from_html(url, html):
     soup = BeautifulSoup(html, "lxml")
@@ -91,8 +101,8 @@ def meta_from_html(url, html):
     return {"title": title}
 
 def write_article(url, title, text):
-    slug = slugify(title)[:100] or slugify(urlparse(url).path)[:100] or "article"
-    sha = hashlib.sha1(url.encode("utf-8")).hexdigest()[:8]
+    slug = slugify(title)[:120] or slugify(urlparse(url).path)[:120] or "article"
+    sha = hashlib.sha1(url.encode("utf-8")).hexdigest()[:10]
     fname = f"{slug}-{sha}.md"
     path = ART_DIR / fname
     md = f"# {title}\n\n> Source: {url}\n\n{text}\n"
@@ -111,19 +121,20 @@ def save_index(idx):
 def main():
     idx = load_index()
     existing = {a["url"]: a for a in idx["articles"]}
-    links = discover_article_links()
-    updated = False
 
+    links = discover_article_links()
+    print(f"Discovered {len(links)} candidate articles")
+
+    updated = False
     for url in links:
         if url in existing:
             continue
         try:
-            print(f"🔗 Fetching: {url}")
             html = fetch(url)
             meta = meta_from_html(url, html)
             body = extract_main_text(url, html)
+            # Skip very short bodies
             if not body or len(body.split()) < 80:
-                print("⚠️  Skipping (too short)")
                 continue
             relpath = write_article(url, meta["title"], body)
             entry = {
@@ -135,18 +146,19 @@ def main():
             }
             idx["articles"].append(entry)
             updated = True
-            print(f"✅ Saved: {meta['title']}")
+            print(f"Added: {url}")
             time.sleep(0.2)
         except Exception as e:
-            print("❌ Error:", url, e)
+            print("ERR", url, e)
             continue
 
+    # sort by title for stability
     idx["articles"].sort(key=lambda x: x["title"].lower())
     if updated:
         save_index(idx)
-        print("📁 Index updated.")
+        print("Index updated.")
     else:
-        print("ℹ️  No new articles this run.")
+        print("No new articles.")
 
 if __name__ == "__main__":
     main()
