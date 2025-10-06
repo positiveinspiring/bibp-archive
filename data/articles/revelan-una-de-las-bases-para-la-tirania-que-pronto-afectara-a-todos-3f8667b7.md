@@ -1,0 +1,57 @@
+# Revelan una de las Bases para la Tiranía que Pronto Afectará a Todos
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/esp_sociopol_nwo209.htm
+
+13 Octubre 2015
+del Sitio Web ElRobotPescador
+Atención a lo que vamos a contar en este artículo:
+el nivel de tiranía y control al que nos estamos acercando es tan terrorífico que parece propio de una película de ciencia ficción.
+Y como veremos en este artículo, todo apunta a que nos afectará a todos. Según informa la Web Techdirt:
+China va a crear un método para clasificar a los ciudadanos según su obediencia y sumisión a las autoridades.
+El gobierno chino ha ordenado un sistema de calificación para todos sus ciudadanos conectados a la Web (internet).
+Se parece a una calificación crediticia, pero es algo mucho más profundo que simplemente una medición del riesgo financiero ligada a una cifra. Es una manera de definir a las personas en términos de los objetivos del gobierno. Todos los ciudadanos recibirán una puntuación de entre 350 y 950, que estará vinculada a su documento nacional de identidad. Actualmente esta puntuación será voluntaria, pero el gobierno chino ya ha anunciado que va a ser obligatoria a partir del año 2020. Esta calificación numérica servirá para medir la conformidad de cada ciudadano con el gobierno. Las cosas que harán que la puntuación de una persona baje, serán la publicación en las redes sociales de opiniones políticas sin la autorización previa de las autoridades, o la publicación de información que al régimen no le guste, como por ejemplo, hablar de la masacre de la Plaza Tiananmen o del colapso de la bolsa de Shanghai, por poner dos ejemplos. Para mantener la "puntuación", el gobierno necesitará vincular los carnets de identidad con la actividad en línea.
+Esto permitirá que el gobierno alcance un control casi total de Internet y de sus ciudadanos.
+Estos ránkings no afectarán solo la actividad en la red, sino que afectará casi todos los aspectos de sus vidas. Se cree que muchos ciudadanos considerarán las puntuaciones más altas como símbolos de estatus social. Tristemente, muchos chinos parecen estar abrazando la puntuación como medida de valor social, con casi 100.000 personas presumiendo de sus puntuaciones en el equivalente chino de Twitter. Este programa gubernamental se alimenta de los deseos competitivos naturales de los seres humanos.
+Puede que no haya tabla de clasificación oficial, pero no sería descartable que en un futuro se publicaran estas "puntuaciones de los ciudadanos", para que cualquier persona pudiera participar en este concurso de puntaje de medición no oficial.
+Examen escolar en China
+El gobierno, obviamente, se da cuenta de esto, ya que ha vinculado determinadas ventajas a determinados niveles de puntuación. Las personas con puntuaciones más altas serán recompensadas con beneficios concretos. Los que llegan a 700, por ejemplo, obtienen un fácil acceso a un permiso de viaje a Singapur, mientras que los que llegan a 750 obtener consiguen visados aún más valiosos. Una forma tremendamente efectiva de controlar los corazones y las mentes de una gran parte de la población. ¿Y quién va a administrar y ejecutar este sistema enfermizo de control social? Pues bien, el programa será administrado por Alibaba (la respuesta de China a Amazon) y Tencent (la enorme red social compatible con el gobierno del país). Dos grandes corporaciones.
+La puntuación de cada ciudadano será generada no sólo por sus actividades, sino por las actividades de los amigos en su gráfico social, es decir, las personas que se identifican como amigos en las redes sociales.
+Su puntuación bajará por hacer cosas como especular sobre la corrupción oficial, criticar a las autoridades o participar en las actividades que en estos momentos el Estado chino quiere combatir, como por ejemplo, jugar a videojuegos. Esta idea, propia de una distopia de ciencia ficción, permitirá controlar a la población mediante un paternalismo estatal, una vigilancia completa a nivel tecnológico y social y asociar la desobediencia a las autoridades a un sentimiento de desprestigio social y culpa.
+Quizás mucha gente crea que esta idea disparatada solo puede aplicarse en una dictadura comunista como la china, pero que nadie se engañe:
+los primeros pasos hacia la instauración social de estos conceptos en las sociedades occidentales ya existen y los vemos reflejados en las visitas, los followers o los likes en Facebook.
+Todos ellos representan un nuevo y sutil sistema de clasificación social y llevan asociado algo parecido a un "estatus social" y a una "popularidad".
+Solo hace falta cambiar los términos utilizados para construir un artefacto similar en cualquier país considerado "democrático". Por ejemplo, para instaurar en occidente un sistema de puntuación de los ciudadanos parecido al chino, lo único que debería hacerse sería cambiar la nomenclatura, es decir que en lugar de asociar explícitamente la puntuación a la "obediencia al gobierno", la calificación fuera asociada con "la actitud cívica o convivencial" de cada ciudadano. Nuestra puntuación de "prestigio social" podría ser rebajada si insultamos, si faltamos al respeto a alguien, si nos mostramos políticamente incorrectos con algún colectivo que sea considerado "vulnerable" (mujeres, gays, gente de otras razas, etc...)
+Y una vez conseguido esto, también podría bajar si nos ponen multas de tráfico, si cometemos actos incívicos como escupir en el suelo o no recoger las cacas de nuestros perros, si no pagamos a tiempo nuestros impuestos o si compartimos opiniones consideradas inadecuadas, como,
+"teorías de la conspiración", "creencias no apoyadas por la ciencia oficial", o ideologías que sean consideradas "anti-sistema" o "extremistas".
+¿A alguien le parece una locura todo esto?
+Pues está a la vuelta de la esquina y será un proceso que se irá desarrollando de forma progresiva sin que nos demos cuenta de ello. Lo que nos muestra esta iniciativa china es que las posibilidades son infinitas y que la mente de muchas personas ya está convenientemente sembrada para establecer la pero tiranía que jamás habrá existido: una tiranía psicológico-social. Como ya hemos dicho otras veces, China no es más que un enorme campo de experimentación donde se ponen a prueba las características del Nuevo Orden Mundial del futuro, regido por una élite tecnocrática
+Y si alguien cree que este tipo de iniciativas de control ciudadano solo se limitarán a la "malvada dictadura comunista china", está muy equivocado. Lo siguiente ha sido extraído de la Web "Washington Examiner"
+CHINA PIDE AL MUNDO IMPONER UN "CÓDIGO DE CONDUCTA" EN INTERNET Un funcionario chino pidió a las Naciones Unidas que se imponga un código internacional de conducta en Internet. "Es muy necesario y urgente para la comunidad internacional que de manera conjunta se cree un código internacional de conducta para el ciberespacio en una fecha próxima", dijo Wang Qun, director general del Departamento de Control de Armas del Ministerio de Relaciones Exteriores chino, en la Asamblea General de la ONU."China, por su parte, continuará en su compromiso de establecer un ciberespacio pacífico, seguro, abierto y cooperativo y presionará por un código internacional de conducta aceptable para todos", añadió Wang.
+CHINA PIDE AL MUNDO IMPONER UN "CÓDIGO DE CONDUCTA" EN INTERNET Un funcionario chino pidió a las Naciones Unidas que se imponga un código internacional de conducta en Internet.
+"Es muy necesario y urgente para la comunidad internacional que de manera conjunta se cree un código internacional de conducta para el ciberespacio en una fecha próxima", dijo Wang Qun, director general del Departamento de Control de Armas del Ministerio de Relaciones Exteriores chino, en la Asamblea General de la ONU."China, por su parte, continuará en su compromiso de establecer un ciberespacio pacífico, seguro, abierto y cooperativo y presionará por un código internacional de conducta aceptable para todos", añadió Wang.
+La ONU va a considerar las normas relacionadas con la seguridad del ciberespacio este mes. El consejo asesor de la ONU ha pedido,
+"una cooperación efectiva entre los Estados para reducir los riesgos para la paz y la seguridad internacionales", y dice que los actores estatales "no deberían conducir o tolerar el crimen cibernético".
+A raíz de los ciber-ataques de alto perfil recibidos por el Departamento de Estado de EE.UU., por parte de hackers de China y Rusia, los funcionarios han expresado el deseo de establecer normas sobre la materia. Sin embargo, al mismo tiempo, el presidente Obama ha estado impulsando un plan para transferir el control de las funciones de nombres de dominio de Internet a un cuerpo de múltiples partes interesadas.
+Junto con Rusia, China ha sido el país que más ha urgido por una conclusión rápida de ese proceso, y por la creación de una estructura de gestión que asegure que los gobiernos retienen poder sobre los actores privados.
+Como resultado, los observadores estarán atentos para ver qué significa exactamente ese "código de conducta" que China trata de impulsar.
+Como vemos, la excusa para impulsar estos "códigos de conducta", íntimamente relacionados con la "calificación de los ciudadanos", será la presunta persecución del ciber-crimen. Y es obvio que todos los gobiernos del mundo irán a una a la hora de establecer estos controles, porque Internet es un gran peligro para las autoridades y los poderes fácticos. Durante una primera fase, se ha impulsado el desarrollo de Internet para que todo el mundo acabe dependiendo de esta herramienta para vivir en sociedad.
+Esta primera fase ha sido caracterizada por unos ciertos niveles de libertad de movimiento, opinión y publicación y todos hemos acudido a Internet como moscas atraídas por la miel, hasta que todos nos hemos quedado "enganchados" y ya no sabemos vivir sin ello. A lo largo de esta fase de libre desarrollo, se ha impulsado la creación de diversos gigantes que han empezado a monopolizar el control de la red, entre los que destacan, obviamente, Google y Facebook.
+Pues bien, terminada esta fase de implantación de Internet, que nos ha convertido a todos en dependientes de la red, ahora llega la fase de control. Internet será controlado y será la principal herramienta de control de nuestras vidas y nuestras mentes. Las excusas para implantar el control y la tiranía serán infinitas:
+luchar contra el terrorismo el tráfico de drogas el bullying el racismo el extremismo el ciber-crimen la pedofilia el maltrato a las mujeres u otros colectivos...
+luchar contra el terrorismo
+el tráfico de drogas
+el bullying
+el racismo
+el extremismo
+el ciber-crimen
+la pedofilia
+el maltrato a las mujeres u otros colectivos...
+Todos hemos caído en la trampa y si no buscamos soluciones urgentes (todas implicarían grandes sacrificios), lo vamos a pagar muy caro
+Fuente
+Ranking the Peasants - China Introduces Orwellian "Citizen Scores" China Looks to Quell Dissent with 'Citizen Scores' - A Number that Tracks Purchases, Opinions and Social Circles China asks World to Impose 'Code of Conduct' on Internet
+Ranking the Peasants - China Introduces Orwellian "Citizen Scores"
+China Looks to Quell Dissent with 'Citizen Scores' - A Number that Tracks Purchases, Opinions and Social Circles
+China asks World to Impose 'Code of Conduct' on Internet
+Regresar a ¿El Fin de La Internet... Que Conocemos?
+Regresar a El Gran Hermano Te Ama...
+Regresar a El Nuevo Orden Mundial

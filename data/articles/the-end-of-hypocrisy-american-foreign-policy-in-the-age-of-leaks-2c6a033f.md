@@ -1,0 +1,266 @@
+# The End of Hypocrisy - American Foreign Policy in the Age of Leaks
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/esp_sociopol_nwo170.htm
+
+by Henry Farrell and Martha Finnemore
+from Foreign Affairs Issue -
+November-December 2013
+25 October 2013
+from
+Cryptome Website
+The U.S. government seems outraged that people are leaking classified
+materials about its less attractive behavior.
+It certainly acts that way: three years ago,
+after
+Chelsea Manning, an army private then known as Bradley Manning,
+turned over hundreds of thousands of classified cables to the
+anti-secrecy group WikiLeaks, U.S. authorities imprisoned the
+soldier under conditions that the UN special rapporteur on torture deemed
+cruel and inhumane.
+The Senate's top Republican, Mitch McConnell,
+appearing on Meet the Press shortly thereafter, called WikiLeaks' founder,
+Julian Assange, "a high-tech terrorist."
+More recently, following the disclosures about U.S. spying programs
+by Edward Snowden,
+a former National Security Agency analyst, U.S. officials spent a great deal
+of diplomatic capital trying to convince other countries to deny Snowden
+refuge.
+And U.S. President Barack Obama canceled
+a long-anticipated summit with Russian President Vladimir Putin when
+he refused to comply.
+Despite such efforts, however, the U.S. establishment has often struggled to
+explain exactly why these leakers pose such an enormous threat. Indeed,
+nothing in the Manning and Snowden leaks should have shocked those who were
+paying attention.
+Former Defense Secretary Robert Gates,
+who dissented from the WikiLeaks panic, suggested as much when he told
+reporters in 2010 that the leaked information had had only a "fairly modest"
+impact and had not compromised intelligence sources or methods.
+Snowden has most certainly compromised sources
+and methods, but he has revealed nothing that was really unexpected.
+Before his disclosures, most experts already
+assumed that the United States conducted cyber-attacks against China, bugged
+European institutions, and monitored global Internet communications.
+Even his most explosive revelation - that the
+United States and the United Kingdom have compromised key communications
+software and encryption systems designed to protect online privacy and
+security - merely confirmed what knowledgeable observers have long
+suspected.
+The deeper threat that leakers such as Manning and Snowden pose is more
+subtle than a direct assault on U.S. national security: they undermine
+Washington's ability to act hypocritically and get away with it.
+Their danger lies not in the new information
+that they reveal but in the documented confirmation they provide of what the
+United States is actually doing and why. When these deeds turn out to clash
+with the government's public rhetoric, as they so often do, it becomes
+harder for U.S. allies to overlook Washington's covert behavior and easier
+for U.S. adversaries to justify their own.
+Few U.S. officials think of their ability to act hypocritically as a key
+strategic resource.
+Indeed, one of the reasons American hypocrisy is
+so effective is that it stems from sincerity:
+most U.S. politicians do not recognize just
+how two-faced their country is.
+Yet as the United States finds itself less able
+to deny the gaps between its actions and its words, it will face
+increasingly difficult choices - and may ultimately be compelled to start
+practicing what it preaches.
+A HYPOCRITICAL HEGEMON
+Hypocrisy is central to Washington's soft power - its ability to get other
+countries to accept the legitimacy of its actions - yet few Americans
+appreciate its role.
+Liberals tend to believe that other countries
+cooperate with the United States because American ideals are attractive and
+the U.S.-led international system is fair. Realists may be more cynical, yet
+if they think about Washington's hypocrisy at all, they consider it
+irrelevant.
+For them, it is Washington's cold, hard power,
+not its ideals, that encourages other countries to partner with the United
+States.
+Of course, the United States is far from the only hypocrite in international
+politics. But the United States' hypocrisy matters more than that of other
+countries. That's because most of the world today lives within an order that
+the United States built, one that is both underwritten by U.S. power and
+legitimated by liberal ideas.
+American commitments to the rule of law,
+democracy, and free trade are embedded in the multilateral institutions that
+the country helped establish after World War II, including the World Bank,
+the International Monetary Fund, the United Nations, and later the World
+Trade Organization.
+Despite recent challenges to U.S. preeminence,
+from the Iraq war to the financial crisis, the international order remains
+an American one.
+This system needs the lubricating oil of hypocrisy to keep its gears
+turning. To ensure that the world order continues to be seen as legitimate,
+U.S. officials must regularly promote and claim fealty to its core liberal
+principles; the United States cannot impose its hegemony through force
+alone.
+But as the recent leaks have shown, Washington
+is also unable to consistently abide by the values that it trumpets. This
+disconnect creates the risk that other states might decide that the U.S.-led
+order is fundamentally illegitimate.
+Of course, the United States has gotten away with hypocrisy for some time
+now.
+-
+It has long preached the virtues of
+"nuclear nonproliferation," for example, and has coerced some states
+into abandoning their atomic ambitions. At the same time, it tacitly
+accepted Israel's nuclearization and, in 2004, signed a formal deal
+affirming India's right to civilian nuclear energy despite its
+having flouted the Nuclear Nonproliferation Treaty by acquiring
+nuclear weapons.
+-
+In a similar vein, Washington talks a
+good game on "democracy," yet it stood by as the Egyptian military
+overthrew an elected government in July, refusing to call a coup a
+coup.
+-
+Then there's the "war
+on terror": Washington pushes foreign governments hard on
+human rights but claims sweeping exceptions for its own behavior
+when it feels its safety is threatened.
+The reason the United States has until now suffered few consequences for
+such hypocrisy is that other states have a strong interest in turning a
+blind eye.
+Given how much they benefit from the global
+public goods Washington provides, they have little interest in calling the
+hegemon on its bad behavior.
+Public criticism risks pushing the U.S.
+government toward self-interested positions that would undermine the larger
+world order. Moreover, the United States can punish those who point
+out the inconsistency in its actions by downgrading trade relations or
+through other forms of direct retaliation.
+Allies thus usually air their concerns in
+private. Adversaries may point fingers, but few can convincingly occupy the
+moral high ground. Complaints by China and Russia hardly inspire admiration
+for their purer policies.
+The ease with which the United States has been able to act inconsistently
+has bred complacency among its leaders.
+Since
+few countries ever point out the nakedness of
+U.S. hypocrisy, and since those that do can usually be ignored,
+American politicians have become desensitized to their country's double
+standards.
+But thanks to Manning and Snowden,
+such double standards are getting harder and harder to ignore.
+THE IMPORTANCE OF
+BEING EARNEST
+To see how this dynamic will play out, consider the implications of
+Snowden's revelations for U.S. cybersecurity policy.
+Until very recently, U.S. officials did not talk
+about their country's offensive capabilities in cyberspace, instead
+emphasizing their strategies to defend against foreign attacks.
+At the same time, they have made increasingly
+direct warnings about Chinese hacking, detailing the threat to U.S.
+computer networks and the potential damage to U.S.-Chinese relations.
+But the United States has been surreptitiously waging its own major
+offensive against China's computers - and those of other adversaries - for
+some time now.
+The U.S. government has quietly poured billions
+of dollars into developing offensive, as well as defensive, capacities in
+cyberspace. (Indeed, the two are often interchangeable - programmers who are
+good at crafting defenses for their own systems know how to penetrate other
+people's computers, too.)
+And Snowden confirmed that the U.S. military has
+hacked not only the Chinese military's computers but also those belonging to
+Chinese cell-phone companies and the country's most prestigious university.
+Although prior to Snowden's disclosures, many experts were aware - or at
+least reasonably certain - that the U.S. government was involved in hacking
+against China, Washington was able to maintain official deniability.
+Protected from major criticism, U.S. officials
+were planning a major public relations campaign to pressure China into
+tamping down its illicit activities in cyberspace, starting with threats and
+perhaps culminating in legal indictments of Chinese hackers. Chinese
+officials, although well aware that the Americans were acting
+hypocritically, avoided calling them out directly in order to prevent
+further damage to the relationship.
+But Beijing's logic changed after Snowden's leaks. China suddenly had every
+reason to push back publicly against U.S. hypocrisy.
+After all, Washington could hardly take umbrage
+with Beijing for calling out U.S. behavior confirmed by official U.S.
+documents. Indeed, the disclosures left China with little choice but to
+respond publicly. If it did not point out U.S. hypocrisy, its reticence
+would be interpreted as weakness.
+At a news conference after the revelations, a
+spokesperson for the Chinese Ministry of National Defense insisted that the
+scandal,
+"reveal[ed] the true face and hypocritical
+conduct regarding Internet security" of the United States.
+The United States has found itself flatfooted.
+It may attempt, as the former head of U.S. counterintelligence Joel
+Brenner has urged, to draw distinctions between China's allegedly
+unacceptable hacking, aimed at stealing commercial secrets, and its own
+perfectly legitimate hacking of military or other security-related targets.
+But those distinctions will likely fall on deaf
+ears.
+Washington has been forced to abandon its
+naming-and-shaming campaign against Chinese hacking.
+Manning's and Snowden's leaks mark the beginning of a new era in
+which the U.S. government can no longer count on keeping its secret behavior
+secret. Hundreds of thousands of Americans today have access to classified
+documents that would embarrass the country if they were publicly circulated.
+As the recent revelations show, in the age of
+the cell-phone camera and the flash drive, even the most draconian laws and
+reprisals will not prevent this information from leaking out.
+As a result, Washington faces what can be
+described as an accelerating hypocrisy collapse - a dramatic narrowing of
+the country's room to maneuver between its stated aspirations and its
+sometimes sordid pursuit of self-interest.
+The U.S. government, its friends, and its foes
+can no longer plausibly deny the dark side of U.S. foreign policy and will
+have to address it head-on.
+SUIT THE ACTION TO THE
+WORD, THE WORD TO THE ACTION
+The collapse of hypocrisy presents the United States with uncomfortable
+choices. One way or another, its policy and its rhetoric will have to move
+closer to each other.
+The easiest course for the U.S. government to take would be to forgo
+hypocritical rhetoric altogether and acknowledge the narrowly
+self-interested goals of many of its actions. Leaks would be much less
+embarrassing - and less damaging - if they only confirmed what Washington
+had already stated its policies to be.
+Indeed, the United States could take a page out
+of China's and Russia's playbooks:
+instead of framing their behavior in terms
+of the common good, those countries decry anything that they see as
+infringing on their national sovereignty and assert their prerogative to
+pursue their interests at will.
+Washington could do the same, while continuing
+to punish leakers with harsh prison sentences and threatening countries that
+might give them refuge.
+The problem with this course, however, is that U.S. national interests are
+inextricably bound up with a global system of multilateral ties and relative
+openness. Washington has already undermined its commitment to liberalism
+by suggesting that it will retaliate economically against countries that
+offer safe haven to leakers.
+If the United States abandoned the rhetoric of
+mutual good, it would signal to the world that it was no longer committed to
+the order it leads.
+As other countries followed its example and
+retreated to the defense of naked self-interest, the bonds of trade and
+cooperation that Washington has spent decades building could unravel.
+The United States would not prosper in a world
+where everyone thought about international cooperation in the way that Putin
+does.
+A better alternative would be for Washington to pivot in the opposite
+direction, acting in ways more compatible with its rhetoric. This approach
+would also be costly and imperfect, for in international politics, ideals
+and interests will often clash. But the U.S. government can certainly afford
+to roll back some of its hypocritical behavior without compromising national
+security.
+A double standard on torture, a near
+indifference to casualties among non-American civilians, the gross expansion
+of the surveillance state - none of these is crucial to the country's
+well-being, and in some cases, they undermine it.
+Although
+the
+current administration has curtailed some of the abuses
+of
+its predecessors, it still has a long way to go.
+Secrecy can be defended as a policy in a democracy. Blatant hypocrisy is a
+tougher sell. Voters accept that they cannot know everything that their
+government does, but they do not like being lied to.
+If the United States is to reduce its dangerous
+dependence on doublespeak, it will have to submit to real oversight and an
+open democratic debate about its policies.
+The era of easy hypocrisy is over.

@@ -1,0 +1,21 @@
+# Important Note and References
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/esp_sociopol_zion05.htm
+
+Important Note The very fact that such a conspiracy involving a small core elect from Zionist Judaism exists does not implicate the mass of the Jewish people in the conspiracy. Nor does it blame only those of Jewish persuasion for being complicit. The mass of Jewish people have no desire to see the New World Order instituted, nor do the majority even know of the existence of the conspiracy. Jewish people per se should not be judged according to their religious beliefs or racial descent as being a part of the conspiracy, as most Jews follow a far more tolerant version of Judaism which has reformed many of the extreme elements of their historic creed. Furthermore, many Jewish people have been sacrificed to the cause outlined in the Protocols through the misguided belief of the elders that the end justifies the means, and all who fall for the cause are greatly exalted in the eyes of Yahweh. The above information is provided so that Jews and Gentiles alike can become more aware of what a small percentage of self-appointed elite members of the Jewish religion believe and adhere to as their Holy Law. Comments in the following text related specifically to the Jews which superficially seem to implicate all Jews do not reflect my own attitude to this issue as I have already established. However, these were the words of those individuals quoted and of the publishers who presented the following document many decades ago, and I hesitate to censor them. This document is meant to challenge hatred; racism and deceit; NOT ferment it. References
+Amery, John; England and Europe, (The Truth At Last, PO Box 1211, Marietta, Ga. 300061, USA, 1994 [1st ed. 1943]) Eckart, Deitrich; Bolshevism from Moses to Lenin, (Translated from the German by William L Pierce) Encyclopaedia Judaica, CD-Rom Edition (Judaica Multimedia, Israel, 1997) Freedman, Benjamin H; Facts are Facts, (Omni/Christian Book Club, CA, 1954) Fry, L, Edited and revised by Rev. D. Fahey; Waters Flowing Eastward: The War Against the Kingship of Christ, (Flanders Hall Publishing Company, LA, 1988, [1st ed. 1931]) Mhor, Jack; If Jews Are Really Persecuted - Why?, (article from website Radio Islam) Mullins, Eustace; The History of the Jews, (The Thunderbolt Inc., Marietta, Ga.) Pranaitis, Rev. IB; The Talmud Unmasked: The Secret Rabbinical Teachings Concerning Christians, (Imperial Academy of Sciences, St. Petersberg, 1892) Reed, Douglas; The Controversy of Zion, (Veritas Publishing Company Pty., Ltd., Bullsbrook, W. Australia, 1978 Soncino Talmud, with Tanach, CD Rom Edition, (Davka Corporation, Chicago) Soncino Zohar, with Tanach, CD Rom Edition, (Davka Corporation, Chicago) Webster, Nesta H: Secret Societies and Subversive Movements, (1924, Christian Book Club of America) Article: 1000 Quotes By And About Jews; (Radio Islam website) Article: What world famous men said about the Jews
+Amery, John; England and Europe, (The Truth At Last, PO Box 1211, Marietta, Ga. 300061, USA, 1994 [1st ed. 1943])
+Eckart, Deitrich; Bolshevism from Moses to Lenin, (Translated from the German by William L Pierce)
+Encyclopaedia Judaica, CD-Rom Edition (Judaica Multimedia, Israel, 1997)
+Freedman, Benjamin H; Facts are Facts, (Omni/Christian Book Club, CA, 1954)
+Fry, L, Edited and revised by Rev. D. Fahey; Waters Flowing Eastward: The War Against the Kingship of Christ, (Flanders Hall Publishing Company, LA, 1988, [1st ed. 1931])
+Mhor, Jack; If Jews Are Really Persecuted - Why?, (article from website Radio Islam)
+Mullins, Eustace; The History of the Jews, (The Thunderbolt Inc., Marietta, Ga.)
+Pranaitis, Rev. IB; The Talmud Unmasked: The Secret Rabbinical Teachings Concerning Christians, (Imperial Academy of Sciences, St. Petersberg, 1892)
+Reed, Douglas; The Controversy of Zion, (Veritas Publishing Company Pty., Ltd., Bullsbrook, W. Australia, 1978
+Soncino Talmud, with Tanach, CD Rom Edition, (Davka Corporation, Chicago)
+Soncino Zohar, with Tanach, CD Rom Edition, (Davka Corporation, Chicago)
+Webster, Nesta H: Secret Societies and Subversive Movements, (1924, Christian Book Club of America)
+Article: 1000 Quotes By And About Jews; (Radio Islam website)
+Article: What world famous men said about the Jews
+Go Back
