@@ -1,0 +1,13 @@
+# The Brain behind it All
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/master_file/brainbehind.htm
+
+Part 5
+3rd and 4th STEPS:
+THE BRAIN BEHIND IT ALL
+The third step in the understanding of what is occurring is followed by a fourth step whereby entities begin to perceive that the brain behind this action, the group behind this action, the power behind this action is not entirely sane. Even though it may be demented, it also becoming split in itself, and the splitting of its own ranks is that which is leading to an actual conflict within its own members, within its own hierarchy, so that the conflict between the two sides, --the Corporate Socialists and the State Socialists, or that which is called Capitalism and Communism, --are in fact in real conflict with each other, even on the highest levels.
+THE 5TH STEP : RECOGNITION OF THE ROLES OF RELIGION
+This Awareness indicates that the fifth step in understanding what is occurring is the recognition of the roles of religion in the affairs of these forces, in particular the role of those religious forces that have been hidden from public scrutiny: the role of Zionism, the roles of Catholicism, or Protestantism and of the Skoptsis; these in particular among the Western nations. These religious influences, hidden from the public, having their effects on the affairs of the individuals involved in these higher manipulating circles, serve as guides, guidance or an idealism that attempts to direct the energies of these various forces.
+RELIGIOUS INFLUENCES
+The Skoptsis having certain abstract ideas and goals, attempting to promote their own interests and seeing the Zionists and Bolsheviks as being their mortal enemies. The Protestants, through their inner circles, and the offspring organizations, seeing their purposes and goals being endangered and threatened by the illusion of Communism, and the Catholics seeing their empire of religious dominion in various countries being threatened by both the capitalistic or corporate Socialists, and also by the State Socialists or Communist countries, attempting to keep their place in giving guidance toward their followers, and those forces of the other religious orders, particularly the Buddhists, the Moslems and those Hindus: the truly large religions of the world whose political clout appears to be unnoticed in comparison to that of the Western world, with its technology. The recognition of the role of these various religions in molding the minds of the masses, this being the fifth step in understanding what is occurring.
+Go to part 6 "The 6th Step: How Interdimensional Beings Enter In"

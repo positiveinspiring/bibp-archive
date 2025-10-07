@@ -1,0 +1,8 @@
+# Alice Bailey & Djwhal Khul - The Externalization of the Hierarchy - IV -
+Hierarchical Preparation at the Wesak Festival
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/exter/exte1235.html
+
+The Hierarchy is a great fighting body today, fighting for the souls of men, fighting all that blocks the expansion of the human consciousness, fighting all that limits human freedom (I said not license) and fighting to remove those factors and barriers which militate against the return of [551] the Christ and the emergence of the Hierarchy as a fully functioning body on earth. There is nothing weak, vacillating, sentimental or neutral in the attitude of the Hierarchy; this must be grasped by humanity, and the strength and insight as well as the love of the Hierarchy must be counted upon.
+I have in the above remarks enumerated for you certain of the objectives facing the Hierarchy at this time and involving the personal attention of the Christ; they all have a potent and beneficent effect upon humanity. Let me enumerate them in concise form, because it is essential that there be clear perception of the emerging values on the part of workers of all grades and kinds in the world, for otherwise perception is not possible. To each point enumerated I will append in a few brief words the reason why it is regarded as important:
+You can see therefore how critical, spiritually, are these times, and how urgent is the task which confronts the Hierarchy and its workers on earth. The war may be over in the physical sense, but great issues are still involved and undetermined and can lead either to peace or to a renewal of those conditions in which wars are generated and which, once generated, cannot be avoided.
