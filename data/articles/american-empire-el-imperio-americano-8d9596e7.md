@@ -1,0 +1,1563 @@
+# American "Empire" - El "Imperio" Americano
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_americanempire.htm
+
+It is no coincidence that the growth of modern tyrants has in every case been heralded by the growth of prejudice.
+It may be shocking to some people in this country to realize that, without meaning to do so, they hold views in common with Hitler when they preach discrimination against other religious, racial or economic groups. The American fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity... They claim to be super-patriots, but they would destroy every liberty guaranteed by the Constitution. They demand free enterprise, but are the spokesmen for monopoly and vested interest. Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the state and the power of the market simultaneously, they may keep the common man
+in eternal subjection. Vice President Henry A. Wallace
+"The Danger of American Fascism"
+New York Times - April 1944
+No es casualidad que el crecimiento de los tiranos modernos haya sido anunciado en todos los casos por el crecimiento del prejuicio. Puede ser impactante para algunas personas en este país darse cuenta de que, sin querer hacerlo, tienen puntos de vista en común con Hitler cuando predican la discriminación contra otros grupos religiosos, raciales o económicos. Los fascistas estadounidenses son más fácilmente reconocibles por su perversión deliberada de la verdad y el hecho. Sus periódicos y su propaganda cultivan cuidadosamente cada fisura de desunión.... Afirman ser super-patriotas, pero destruirían toda libertad garantizada por la Constitución. Exigen la libre empresa, pero son los portavoces del monopolio y los intereses creados.
+Su objetivo final hacia el cual se dirige todo su engaño es capturar el poder político para que, al usar el poder del estado y el mercado al mismo tiempo, puedan mantener al hombre común
+en la sujeción eterna. Vicepresidente Henry A. Wallace
+"El Peligro del Fascismo Estadounidense"
+New York Times - Abril de 1944
+(North) American Empire (imperialism)
+is the economic, military, and cultural influence
+of the United States on other countries.
+Such influence often goes hand in hand
+with expansion into foreign territories.
+Expansion on a grand scale
+is the primary objective of an empire.
+Source
+- 31% of U.S. Voters think a Second Civil War is Likely
+- 34 Years Ago a KGB Defector chillingly Predicted Modern USA
+- 70 Years Later it's Still '1984'
+Español
+- "800 Bases en 70 Países" - Caracas ve "Cínica" la reacción de EE.UU. por su Cooperación con Moscú
+- 1947, el Año en que Todo Cambió - Hace mas de 70 Años
+- 1947, the Year that Changed Everything - 70 Years On
+- "1984" turns 70 Years Old in a World that Looks a Lot Like the Book
+- A 30 Años de la Invasión de EE.UU., Panamá busca Alejarse de la Hegemonía de Washington
+- A 1958 Speech Exposing "A Small Clique of Power Lusting Conspirators" and their Plan for North America
+- A Bold Proposal to Fix U.S. Foreign Policy
+- A Century of U.S. Intervention in Central America created the Immigration Crisis
+- Acerca de EE.UU., Soros y Sus Esquemas
+- A Clinton Presidency - Humanity's Worst Nightmare - Hillary's "Rage for War"
+- A Decisive Shift in the Power Balance has Occurred
+- A Disturbing 1995 Prediction by Carl Sagan Accurately Describes America of Today
+- A Favor de Putin
+- ¿Agresión Estadounidense? ¡Nunca...!
+- Al Cooperar con Washington en Siria, Rusia ha Caído en una Trampa
+- Alta Tensión Rusia-USA - Rusia Responde con Fuerza a las Amenazas de EE.UU.
+- America as 'Republic', Not as 'Empire' - Europe's 'Sound and Fury' after jaw-dropping pivots in U.S. Policy
+- America - A Sunset Empire
+- America Going Through its Own Political Arab Spring
+- America has Been at War 93% of the Time - 222 Out of 239 Years - Since 1776
+- "America has Lost" - Duterte Announces "Separation" from United States, Aligns with China and Seeks...
+- America has No Allies, Only Hostages
+- America is Exhibiting All of the Signs of a Failing Empire
+- America is on a "Hot War Footing" - House Legislation Paves the Way for War with Russia?
+- America is The Same 'Ol Oligarchy it Was over a Century Ago - History Lesson
+- América Latina gira a un Mundo Multipolar - Mientras la UE sigue a la "Potencia en Decadencia, EE.UU."
+- América Latina - La Nueva Arma arrojadiza de EE.UU. contra China
+- América Latina - La Zona de Influencia del Gobierno Trump
+- América Latina no quiere una nueva Guerra Fría
+- American Apocalypse - The Government's Plot to Destabilize the Nation is Working
+- American Horror Story
+- American Idiocracy - 50 Years Later, We're Still Stranded in the Twilight Zone
+- American Militarism is Destroying the Future of Humanity
+- América no es EE.UU. - La Lección que debería Aprender la OEA
+- American Requiem
+- Americans: A Conquered People - The New Serfs
+- Americans Argue Over Puppets while Global Masters Meet in Secrecy
+- America's Advancing Empire - Putsch, Pillage and Duplicity
+- America's Fate - Oligarchy or Autocracy
+- America's Imperial Empire - The Sun Never Sets but the Mote remains in the Emperor's Eye
+- America's "Humanitarian War" Against the World
+- America's Permanent-War Complex
+- America's Secret Cerebral Campaign - Psychological and Informational Operations
+- America's "Two-Headed One Party" System
+- America's Transition from a Democracy to a National Security State, in Five Easy Steps
+- America - The New Atlantis
+- A Multipolar World is Emerging
+- Analista Advierte que EE.UU. está al Borde de una Insurrección
+- Anatomy of False-Flag Events
+- Anatomy of The Deep State - Gazing Inside the Deep State that Controls the American Empire
+- And Then There Was One - Imperial Gigantism and The Decline of Planet Earth
+- A New American Empire - Trump, Russia, and the End of Globalism
+- A New Global System or a 'Global Catastrophe'?
+- A New Kind of Tyranny - The Global State's War on 'Those Who Speak Truth to Power'
+- An Imperial Strategy For a New World Order - The Origins of World War III
+- An In-Depth Look at the Deep State and Shadow Government
+- 'Anti-Drug' Sen. John McCain's Fundraiser Caught Operating Meth Lab - Plus Dealing Heroin and Cocaine
+- Anti-Washington "Rebellion" Brewing Across Country
+- A Panicked Empire tries to make Russia an "Offer it can't Refuse"
+- A Plan Centuries in the Making - The Council on Foreign Relations - Its Quest to End American Sovereignty
+- Apocalipsis Romano - Esto deberíamos Aprender de la Caída del Imperio que dominó Medio Mundo...
+- A Psychopath for President? - The Right Mix of Good and Evil can Take You Far in Life
+- Ártico en el Punto de Mira - ¿Por qué son tan Atractivas las Regiones Polares?
+- Así es cómo China planea Convertirse en la Economía Líder del Mundo
+- Así es cómo Luce la Tercera Guerra Mundial
+- Así Manipulan a la Población de EE.UU. para que Odie a Rusia
+- Así reacciona Occidente a la decisión de Putin de reconocer las Repúblicas de Donbás
+- Así se Manipula a una Población - Las Oscuras Verdades que Oculta la Película "El Francotirador"
+- Asking Questions the Politicians and the Press Can't Answer
+- As the Media Focuses on Russia, Govt's Own Data Shows U.S. Interfered in 81 Elections
+- As We Move Into 2017 the Cracks in the Empire are Here - How will the U.S. Empire Dissolve?
+- "Back-Door" Canada-EU Trade Agreement (CETA) Sets the Stage for the TTIP - Towards NAFTA-EU...
+- Bancos Centrales del Mundo se Deshacen de los Bonos del Tesoro de EE.UU. a un Ritmo Récord
+- Bases of Empire - The Global Spread of US Military and Intelligence Bases
+- Biden - A 2021 U.S. President - Main File
+- Bidenomía - Crisis Alimentaria estalla en EE.UU. - 17 Millones de hogares pasan Hambre
+- Biden y los Demócratas van a Sembrar el Caos en América Latina
+- Big Pharma's Big Connections - Congress Exposed as Protecting Drug Companies while Opioid Problem...
+- Blood, Treasure and Soul - The Exorbitant Price of American Empire
+- Body of Evidence Suggests New U.S. Biological Warfront Opening
+- Bombs and Starvation - The Only Two Tools in the U.S. Tool Bag
+- 'Breaking Russia has Become Objective for U.S.' - Kissinger
+- Britain and the United States - A Geopolitical Logic
+- Bruselas se Alza en Rebelión contra Washington - Un Punto de Inflexión en la Relación USA-Europa
+- Brussels Rises in Revolt Against Washington - A Turning Point in the US-European Relationship
+- Brzezinski's Ghost shapes Washington Eurasia Geopolitics
+- Brzezinski's Warning to America
+- Bourgeois Democracy meets 'Global Governance' - U.S. Election 2020
+- ¿Cambio Drástico de Planes? - EE.UU. efectúa la Compra del Primer Cargamento de Gas Ruso
+- Can China and Russia Squeeze Washington Out of Eurasia? - The Future of a Beijing-Moscow-Berlin...
+- Capitalism as Obstacle to Equality and Democracy - The U.S. Story
+- Capitalism isn't going to Survive the 21st Century - Will We?
+- Carta al Pueblo Estadounidense Acerca de Ucrania
+- Castigo a Todos los que Abusan del Poder
+- CETA - Playing with the Politics of Power
+- CFR - The Council on Foreign Relations - Main File
+- Challenging American "Exceptionalism"
+- Changing The President Won't Matter - Who is Really Running this Country?
+- Chatham House postula la Probabilidad de una Balcanización de EE.UU. en Dos
+- ¿Chávez Asesinado por su Asistente Personal? - EE.UU. trata de Cubrir sus Huellas en el Caso
+- Chicago "Black Site" Indicates America has Passed the Point of No Return...
+- China al G7 - Se Acabó que un 'Grupo de Países' dicte las Decisiones Globales
+- China Encerrada en una Guerra Híbrida con Estados Unidos
+- China has Begun to Shape and Manage the U.S. - Not the Other Way Around
+- China insta a EE.UU. a revelar Detalles sobre Laboratorios Biológicos en Ucrania - Los virus que Almacenan y...
+- China is Not Just the Largest Economy - Here are Several other Ways it has Surpassed the U.S.
+- China locked in Hybrid War with U.S.
+- China overtook the U.S. as The World's Largest Economy
+- China plans to Break Petrodollar Stranglehold
+- China podría Matar al Petrodólar con el Petroyuán - El Sueño de Gaddafi No Muere...
+- China rechaza el Petróleo Estadounidense a pesar de la "Tregua Comercial"
+- China slams 'War-Addicted' U.S.
+- China warns the U.S. to Stop its Ukrainian Proxy War Against Russia
+- China y Rusia derrotan al Tío Sam en su Propio Juego
+- China y Rusia se Unen y Cambian el Orden Mundial
+- Chinese President Highlights the "World Wants Justice" and "Not Hegemony"
+- Choque de Civilizaciones 2.0
+- Chosen Leaders, Proven Failures and Political Debacles
+- Cinco Años después del Covid - El Papel de los Militares
+- Climate Change a 'Catalyst for Conflict'
+- Come Platone 'Predisse' l'Avvento di Trump
+- Come Sapere se l'America è il Nostro Nemico
+- ¿Comienza Finalmente a funcionar la Estrategia de Putin?
+- Cómo Estados Unidos eliminó el Oleoducto Nord Stream
+- Cómo John McCain ha Paralizado la Guerra de Obama contra ISIS
+- Cómo los Gobiernos siguen Experimentando con sus Ciudadanos
+- Cómo Nacen las 'Aristocracias'
+- Cómo Parar la Marcha hacia la Guerra
+- Cómo Platón 'Predijo' el Surgimiento de Trump
+- Comunismo 'A La Norteamericana'
+- Con el Viaje en el Tiempo se Pre-Identificó a Andrew D. Basiago como Presidente USA que Anuncia su...
+- Confucius, DeepSeek and why China would Win a War with the United States
+- Con o sin actas Estados Unidos quiere "el Petróleo de Venezuela" - Entrevista a Claudio Katz
+- Contempla la Impresionante Debilidad ¡de "El Imperio"...!
+- ¿Cooperación o Subordinación? - Argentina y la Agenda de Seguridad Norteamericana
+- Coronation of Malevolence - Hillary Clinton as President
+- Coronavirus and 'No Weapon Left Behind' - The American Hybrid War on China
+- Coronavirus Hype 'Biggest Political Hoax' in History
+- Corruption is now 'Our Way of Life'
+- Così si Manipola una Popolazione - Le Oscure Verità che Nasconde il Film "American Sniper"
+- COVID has exposed North America as a 'Failed State'
+- COVID Response at Five Years - A Quiet Coup d'état
+- COVID Response at Five Years - The Role of the Military
+- COVID - To Governors who are Re-opening your States - How to Defeat the Attacks against You
+- Crear Laboratorios Biológicos con Fines Militares - Plan de Estados Unidos en la Amazonía
+- Criminalization of Cash - Driving Toward Cashless Society
+- Czech Molecular Biologist explains in Layman Terms COVID-19 virus Originates from Lab in U.S. not China
+- Da Monroe a Trump - Gli USA hanno sponsorizzato Colpi di Stato Militari in Latino America
+- Dark Suits Rule the U.S. and its Puppet Presidents - Reveals Putin, stating the Obvious
+- Decadencia del Imperio Estadounidense - Biden
+- Decadencia de un Imperio - Paralelos entre los Estados Unidos y Roma
+- Decline of an Empire - Parallels Between the U.S. and Rome
+- Deconstructing Democracy - Co-Creating Eco-Governance
+- De-Dollarization - Europe Joins the Party
+- Delirio de Grandeza y Decadencia de Occidente
+- Delirios Fatales del Hombre Occidental Estadounidense
+- De Militar a Militar - Rebelión de los Generales del Estado Mayor Conjunto de EE.UU.
+- Derrota Humillante de EE.UU. a manos de Palestina al frente del G77
+- Desde 1945, Estados Unidos ha Matado entre 20 y 30 Millones de Personas
+- "Desdén y Amenazas" - Cómo EE.UU. sigue Repitiendo los Mismos Errores en América Latina
+- Después de Acusarla de Narcoterrorismo durante Varias Décadas, Estados Unidos negoció con Cuba
+- Destruir Millones de Empleos o Salvarlos a Toda Costa - EE.UU. y Europa eligen Caminos Opuestos
+- Detalles que Revelan que el Nivel de la Política Norteamericana está Bajo Mínimos
+- Dinamarca Limpiará el Desastre Ecológico Estadounidense en Groenlandia
+- Discurso de Lavrov en la ONU - Una "Rotunda Defensa del Nuevo Orden Multipolar"
+- Discurso de Vladimir Putin en el SPIEF 2023 - 'Foro Económico Internacional de San Petersburgo'
+- "D" is for a 'Dictatorship Disguised as a Democracy'
+- Does Fear Lead to Fascism? - A Culture of Fear and the Epigenetics of Terror
+- ¿Dónde están los Líderes? - Acusan a los Dirigentes Occidentales de Analfabetismo Geopolítico
+- Don't Be Fooled by the Political Game - The Illusion of Freedom in America
+- Dos Ejemplos que Explican la Decadencia de EE.UU.
+- Dove sono i Leader? - Accusano i Dirigenti Occidentali di Analfabetismo Geopolitico
+- Earth - 248 Armed Conflicts after WW2 - U.S. Started 201 (81%), Killing 30 Million
+- Ecco come Appare la Terza Guerra Mondiale
+- È da Oltre un Decennio che la Cina si sta Preparando alla Guerra Commerciale
+- EE.UU. admite su Derrota en la Guerra contra Rusia y China
+- EE.UU. Amenaza a Colombia por Querer Rebajar el Precio de un Medicamento Contra el Cáncer
+- EE.UU. Avanza sobre el Brasil de Temer
+- EE.UU. debe Pagar una Indemnización si se confirma la Denuncia por la Covid-19 - Rusia
+- EE.UU. el Mayor Progenitor de la Desinformación en la Historia
+- EE.UU. - El País-Prisión
+- EE.UU. el Sheriff de las Américas Al Servicio del Capitalismo
+- "EE.UU. en Espera de Una Revolución Inminente"
+- EE.UU. entra en "Modo Pánico"
+- EE.UU. "Entrenó y Financió" a los Terroristas del 11-S - ¿Una Lección para Ucrania?
+- "EE.UU. es El Líder Mundial en Cometer Los Mayores Crímenes" - Noam Chomsky
+- "EE.UU. está Perdiendo su Hegemonía y Lucharán de la Manera más Sucia para Evitarlo"
+- EE.UU. intimida a los Países de América Latina por su Negativa a Unirse a la Campaña Antirrusa
+- EE.UU. - La Incertidumbre de la Era Post-liberal
+- EE.UU. pierde Latinoamérica ante China por su 'Pésimo Manejo Migratorio' y su Falta de Inversiones
+- EE.UU. pierde Poder en la OEA - México, Brasil y Argentina se Rebelan por el Conflicto en Ucrania
+- EE.UU./Rusia/China configuran la Nueva Tripolaridad del Siglo 21
+- EE.UU. se Equivocó en su Intento de Evaluar las Capacidades de Rusia
+- EE.UU. se Prepara para una Ofensiva Terrestre en Ucrania
+- EE.UU. y la UE tienen "Verdadera Ansia" por Enfrentarse a Rusia
+- EE.UU. y Rusia - De la Guerra Fría a la Guerra Cibernética
+- El Acercamiento entre EE.UU. y Cuba - Nada es lo que Parece
+- El Águila, el Oso y el Dragón
+- El Arma Silenciosa de Washington para Guerras No Tan Silenciosas
+- El Ascenso de las Arpías de Guerra - Las Mujeres que Destruyen Nuestro Mundo
+- El Camino hacia el 2025
+- El Cementerio de las Élites
+- El Cisne Naranja - La Subida y Caída de Imperios
+- El 'Colegio Electoral' de Estados Unidos - ¿Promesa de Representación Popular o Sistema Arcaico?
+- El Congreso de EE.UU. da su Brazo a Torcer y Aprueba la Reforma de Cuotas del FMI
+- El Consejo de Sun Yat-sen a los Jóvenes Revolucionarios - No sean Títeres Imperiales
+- El Debate Terminó - La Banca se ha Convertido en una Empresa Criminal en Estados Unidos
+- El Declive del Imperio Americano
+- El Denunciante que Expuso la Profunda Conspiración de Google para Derrocar al Gobierno de EE.UU.
+- El Derrumbe de Israel y Estados Unidos
+- El Desorden Mundial - El Espectro de la Dominación Total
+- El Dominio Energético Estadounidense y el Ascenso del Petroyuan
+- Elecciones en Taiwán - Una Derrota para los Estados Unidos
+- El Enigma de Putin
+- El Estado Mayor Conjunto Denuncia la Influencia de los Halcones Liberales sobre la Casa Blanca
+- El Fin de la Dominación Occidental
+- El Fin del Capitalismo Ha Comenzado
+- El "Fin" del "Principio"
+- El FMI constata la debacle de Europa y EE.UU.
+- El Gobierno Más Maligno en la Historia Estadounidense
+- El Golpe de Estado ha Comenzado - El Imperio Contraataca en Todas Partes
+- El Imperio Norte Americano - La Realidad del 'Gran' Estados Unidos...
+- Elites vs. Deplorables - The US is now a Two-tier Nation
+- El llamado de Biden a crear un 'Nuevo Orden Mundial' refleja el Miedo de EE.UU. a la Multipolaridad
+- El Medio Oriente se libera de Occidente
+- El Modo Estadounidense - Un Estudio de Psicopatía
+- El Momento Unipolar ha Terminado
+- El Moribundo Sueño de la Globalización
+- El Mundo Anglosajón - Camino de La Tiranía
+- El Orden Mundial ya Cambió en 2022
+- El Pacto Rusia-China y la Conspiración Marx-Rothschild
+- El Pentágono Está Dispuesto a Cooperar con Rusia en Siria
+- El Pentágono Habla
+- El Porqué el Mundo está Renunciando a su Libertad
+- El Post-Excepcionalismo Estadounidense - Trump 'Traiciona' la Idea de la Élite que EE.UU. siempre es...
+- El Presidente Putin no trató de provocar la Tercera Guerra Mundial - Sólo la Evitó
+- El Problema No Es Trump - Somos Nosotros
+- El Sistema Neocolonial Mundial "ha Dejado de Existir" - "El Mundo Multipolar se está Consolidando" - Putin
+- El Sistema Quiere Imponer a Hillary en la Presidencia
+- ¿El Suicidio del Dólar?
+- El Trabajo Sucio siempre consiste en Provocar y Escalar la Guerra
+- El Vicepresidente de EE.UU. pidió un "Cambio de Régimen" en Europa - Discurso de J.D. Vance en Múnich
+- Empire and Its Consequences
+- Empire Destroying Wars are Coming to America Under Trump
+- Empire's Double Edged Sword - Global Military + NGOs - Tearing Down Sovereign Nations & Replacing...
+- Empires Then and Now
+- En América Latina 'El Imperio' Devuelve el Golpe
+- Encuentro Biden-Putin - Más parecido a un 'Yalta II' que a la 'Capitulación de Berlín'
+- Endless Wars Have Cost Americans $1.6 Trillion - Report Finds
+- Engineered Chaos and Fear are the 'New Normal' in America
+- Enlightened World Leadership Does Not Exist
+- En Moscú, Xi y Putin entierran la 'Pax Americana'
+- Envío de Armas a Ucrania - El Mejor Negocio Militar de la Historia para Estados Unidos
+- ¿Es América Latina el Objetivo Fundamental de EE.UU.?
+- ¿Es posible un 'Golpe de Estado' en Estados Unidos contra Donald Trump?
+- "Estados Fallidos" - Arma de Encubrimiento de los Estados Unidos
+- Estados Unidos al Borde de la Guerra Civil
+- Estados Unidos está Exhibiendo todos los Signos de un Imperio Fracasado
+- Estados Unidos - La Rebelión de la "Generación Y (millennials)" y la "Generación Z (centennials)"
+- Estados Unidos Prepara una Guerra entre Latinoamericanos
+- Estados Unidos tiene por Objetivo Impedir una Alianza entre Rusia y Alemania - dice STRATFOR
+- Estados Unidos usa América Latina para Desarrollar Armas Bacteriológicas
+- Estados Unidos viola el Derecho Internacional con su Intento de Golpe de Estado contra Venezuela
+- Estados Unidos y su Proyecto Liberal - ¿Un Experimento Social Fallido?
+- ¿Está la Doble Moral Occidental socavando el Orden Global?
+- Europa al borde de una Profunda Crisis por apoyar a Ucrania - "Es lo que EE.UU. ha estado deseando"
+- Europa y EE.UU. estarían "Al Borde de la Desvinculación" por el Conflicto Ucraniano
+- Eventos de la Crisis Mundial - Lo Extraño se Vuelve cada vez Más Extraño
+- Every Facet of Government of the U.S. is in the Censorship Business
+- Everyone's Paying for America's War on Russia, Including America
+- Evo Morales le quita la Máscara a EE.UU. en América Latina
+- Experto Denuncia la Sucia Estrategia de EE.UU. para Destruir los Éxitos de Rusia en Siria
+- Expert Says U.S. is on the Brink of "Mass Civil Unrest" - Anti-lockdown Protests
+- Facts About USA!
+- Facts that Privileged Americans don't want Us to Know
+- "Fake Democracy" - Manifest Destiny: Democracy as Cognitive Dissonance
+- Fake News - The Unraveling of U.S. Empire from Within
+- Fascism and War - Elite Tools to Crush and Kill Dissent
+- Fatal Delusions of Western (North American) Man
+- Fatti che Gli Statunitensi Privilegiati Non vogliono farci Sapere
+- Fearing the Loss of Hegemony - The Concept of U.S. Retreat
+- FEMA - Federal Emergency Management Agency - Main File
+- "Financial Independence" from American Empire say EU, China, Russia...
+- ¿Fin de la Globalización? - El Futuro que le espera al Comercio Mundial
+- "First Amendment Stands as Major Block" to "Govern" - John Kerry says the quiet part Out Loud...
+- Follow the Money - Senator John McCain's Ties to Saudis and Rothschilds Exposed
+- Forget ISIS, America Is the Real Threat to the World - Says Oliver Stone
+- Former U.S. Presidents Explain Why the Presidency is Now Irrelevant
+- For our Rulers, Smearing a Dissident Journalist like Julian Assange is as Good as Killing Him
+- For Sale to the Highest Bidder - How Middle Eastern Governments are Buying Off the U.S. Political Process
+- Fortress America
+- Fourth Generation Warfare (4GW) used by USG to Attack Venezuela
+- Fragmentar Irak - El Demencial Plan Estadounidense
+- François Hollande Visitará Moscú la Próxima Semana - Noviembre 2015
+- From Monroe to Trump - U.S. Sponsored Military Coups in Latin America
+- From Trump to Nixon - 'Watergate' film explains "How We Learned to Stop an Out of Control President"
+- Gaddafi Predicted and Tried to Stop this Terror Wave in UK - So the U.S. Murdered Him...
+- Gallup Poll - 43 Percent of Americans think Socialism is Good
+- Gennaio 2020 - Tutto quello che è Accaduto nel Mondo
+- Get Ready for a Major Geopolitical Chessboard Rumble
+Italiano
+- Gli Occidentali e il Conflitto in Ucraina
+- Gli Orrori dell'Impero - Note da "La Linea estrema del Racconto Matrix"
+- Gli Stati Uniti come "Distruttore di Nazioni"
+- Gli Stati Uniti sono la Maggiore Causa della Instabilità Globale - Ma Pretendono di essere la Soluzione
+- Global Crisis Events - The Weird Keeps Getting Weirder
+- Globalists will Need Another Crisis in America as their Reset Agenda Fails
+- Gloomy Putin World View Comments
+- 'God Save the Queen' - The U.S. Destruction of the British Empire
+- Goodbye Democracy and Capitalism - It Was Fun...
+- Governing Elites Think We're All Morons - New Study
+- Government and Media are doing Exact Same Thing they Did to Start Iraq War - And Americans are Buying It
+- Government wants to 'Dictate Truth'
+- Guerra en Ucrania para mantener a la Unión Europea Bajo Tutela
+- Guerre - La Storia Cancellata - Pangea Grandangolo
+- Hace 34 años un Desertor de la KGB Predijo un Escalofriante Moderno Estados Unidos
+- ¿Hacia una Desdolarización de la Economía Mundial?
+- Haciendo Preguntas que los Políticos y la Prensa No Pueden Responder
+- Ha Ocurrido un Cambio Decisivo en el Equilibrio del Poder Mundial
+- "Hay una Injerencia Brutal en América Latina" - ¿Qué esperar de la Crisis entre México y Ecuador?
+- Heading for War with Russia?
+- Hechos que los Estadounidenses Privilegiados no Quieren que Sepamos
+- Hemos Estado Hackeando Elecciones por Más de un Siglo
+- Here's why the Signs of a New World Order are becoming Increasingly Obvious
+- Hidden American History, Delusional Leaders and the Kali Yuga
+- 'Histeria' en EE.UU. y sus Satélites por Avance Geopolítico de Rusia y China
+- History is Being Made in the East this Week - While War is Being Made in the West...!
+- Horrific Torture Report Shows Why Much of the World Considers America to Be the Nazis of The 21st...
+- How America is Bringing 'Peace' and 'Democracy' to The World
+- How America Took Out the Nord Stream Pipeline
+- How 'Aristocracies' are Born
+- How a 'Top Secret SEAL Team 6 Mission' into North Korea fell apart
+- How Can Kids Reach Out to Congress
+- How Corporate Power Killed Democracy
+- How John McCain Crippled Obama's War on ISIS
+- How Life Under Predatory Capitalism Traumatized a Nation
+- How the U.S. Flooded the World with Psyops
+- How the U.S. Government and U.S. Military Became Murder, Inc.
+- How the West made Israel-Iran War possible - The fantasy of Liberal Reform has given us the Ruins of War
+- How to Know if America is Your Enemy
+- How to Split the USA into Two Countries - Red and Blue
+- How to Survive The Empire
+- How to Think About the World After Capitalism
+- Human Rights Hypocrisy - U.S. Criticizes Cuba
+- Identificada el Arma con que Mataron Célula por Célula al Comandante Chávez
+- Identifican el Arma "de Alta Tecnología" con la que Indujeron Cáncer a Hugo Chávez
+- Identity Politics = Totalitarianism
+- Idiocracia a la Americana - 50 Años después Continuamos Encallados en la "Zona de Penumbra - Twilight Zone"
+- If America Continues to Go Down the Same Path as Europe, this is What Life Will Be Like
+- If Economic Cycle Theorists are Correct, 2015 to 2020 will be 'Pure Hell' for The United States
+- If the United States stopped Destroying the World, the 'Bad Guys' Might Win
+- If the U.S. Loses Syria, The US Loses Its Empire - U.S. Threatens Russia, China for Not Supporting...
+- If you Provoke the Entire World, something May Happen
+- Il Cigno Arancione - Il Sorgere e la Caduta degli Imperi
+- Il discorso di Biden per creare un Nuovo Ordine Mondiale riflette la Paura degli Stati Uniti al Multipolarismo
+- Il Katechon Negativo tra Sacro e Potere - L'Agonia dell'Impero Americano el il Nuovo Nomos della Terra
+- Il Mondo Anglosassone - Il Cammino della Tirannia
+- Il Moribondo Sogno della Globalizzazione
+- "Il Vero Pericolo è in Casa" - Dice un esperto di Politica Estera Americana
+- Imperialism and its Accomplices - The Question of Dictatorship and Democracy at Home and Abroad
+- 'Imperial Presidency' of Donald Trump - A Threat to American Democracy and an Agent of Chaos in the World?
+- Importantes Desarrollos Sugieren fuertemente el Fin del Orden Mundial Unipolar
+- Independent American and Russian Women Call for Peace
+- In Favore di Putin
+- In Latin America "The Empire" Strikes Back
+- In the Foreign Policy Shadow of Dr. Brzezinski - Obama, Islamic Fundamentalism and Russia
+- In the U.S. 800 Thousand Children Missing Each Year
+- In Unanimous Vote U.S. House Says No Legal Right to Attack Iran
+- Investigación Revela cómo el PCCh Interfirió en las Elecciones de EE.UU.
+- I Piani della Cina per spezzare la Forza del Petroldollaro
+- Iran is China's Secret Weapon for Killing off the U.S. Dollar's Global Reserve Status
+- Is Putin's Strategy finally Beginning to Work?
+- Israel's occupation of Syria is Security,' Russia's moves in Ukraine are Aggression' - US Hypocrisy reaches a...
+- Is Trump a 'Covert Ally' to the Multipolar Order?
+- Is Trump pursuing Technocracy's dream to create the Great American Technate?
+- It's the 'End of the World As We Know It' - The American-NATO rush toward Nuclear War with Russia
+- It's Time to Question America's "Authoritarian Demagogue" that Rules our World - Chimamanda Ngozi...
+- It's Time to Start Getting Enraged at what Western Imperialists have done to Syria
+- It's Time to Start Imagining a Post-Police World - Why Abolishing the Police is Not a Crazy Idea...
+- Joe Biden pledges 'Allegiance to the New World Order' in 1992 Article
+- Julian Assange - ¡No es un Caso Aislado!
+- Justificaciones que Insultan
+- Kennedy's U.S.-Russia Joint Space Vision must be Revived
+- Kissinger Nails It... For Once...
+- ¿La Agenda 'Woke' como Causa de la Decadencia de Occidente?
+- La Agonía de Occidente
+- La Alarmante Amenaza "Nuclear" del Presentador de Noticias favorito del Gobierno de Vladimir Putin
+- La Alianza del Millenium entre Estados Unidos de América y la Federación Rusa
+- La Alianza Occidental está Derrumbándose - La UE está Abandonando a Estados Unidos sobre Derrocar...
+- La Autentica Razón por la que EE.UU. Amenaza a Corea del Norte y de la que Apenas se Habla
+- Laboratorios Biológicos de Estados Unidos - ¿Una Nueva Era de Control Mundial?
+- "La CIA - 70 Años en Ucrania" - Los Hechos, con Douglas Valentine
+- La Cibercracia, el 'Deep State' y el Pentágono sujetan a Trump
+- La Cina potrebbe Uccidere il Petroldollaro con il Petroyuan - Il Sogno di Gheddafi Non Muore
+- La Corruptocracia
+- La Corruzione è adesso 'Il Nostro Modo di Vivere'
+- La Credibilidad de la Democracia se Tambalea en Todo el Mundo
+- La Criminalización del Dinero en Efectivo - Conducción hacia la Sociedad Sin Dinero en Efectivo
+- La Crisis de Estados Unidos - Una Cultura Ubicua de Información Sesgada
+- La "Crisis de la Democracia" y el Ataque a la Educación
+- La Crisis de Siria en Manos de Auténticos Locos
+- La Cuidadosamente Calculada Agenda de Migración en Masa
+- La Decadencia de EE.UU. y el Fin del Imperio Americano - Zbigniew Brzezinski
+- La Decostruzione della Democrazia - La Co-Creazione di un'Eco-Governance
+- La Democrazia Borghese incontra "La Global Governance" - Elezioni 2020 in USA
+- La Derrota de Ucrania redefinió la "Bélica Agenda Verde" y la salida de Trump del Acuerdo de París
+- La Desdolarización - Europa se Une a la Fiesta
+- La decisión de Rusia sobre el Tratado START fue una "Primera Llamada" para Occidente
+- La Economía de Guerra ha Fortalecido a Rusia y Hundido a las Potencias Occidentales
+- La Empresa de Biden financió los Atentados Terroristas en Ucrania
+- La Era de la Confrontación
+- La Escalofriante Vuelta a la 'Normalidad' en Estados Unidos
+- La Estabilidad Política de Rusia Garantizada mientras Occidente se Hunde
+- La Estrategia de 'Seguridad Nacional' de Joe Biden
+- La Guerra contra Rusia y China ya ha Empezado - Declara Ex-funcionaria de la Casa Blanca
+- La Guerra contro Russia e Cina è Già Iniziata - Così Dichiara ex-Funzionaria della Casa Bianca
+- La Guerra de Terror de una Superpotencia Canalla - ¿Cui Bono?
+- La Guerra Secreta del Petróleo ha Comenzado
+- La Guerra Segreta per il Petrolio è Iniziata
+- La Fantasía del Mundo 'Libre' - ¿Están realmente Unidas las Democracias contra Rusia?
+- La Histeria Nuclear en Occidente tras el discurso de Putin - ¿Quién realmente Amenaza a Quién?
+- La Historia Americana Oculta, los Delirantes Líderes y el Kali Yuga
+- La Ilusión de Libertad
+- La Impudicia de la Indulgencia
+- La Increíble Máquina Instantánea ISIS
+- La Increíble Sordera de Washington y Londres - Ucrania
+- La Ley del Almirantazgo y la Esclavitud a Través del Lenguaje
+- L'Alleanza del Millennio tra Stati Uniti d'America e la Federazione Russa
+- La Locura del Imperio
+- La Máscara Benevolente de Washington se está Desintegrando
+- La Mentalidad de Colmena es La Tumba de La Humanidad
+- La Mentira - La Principal Arma de Guerra en Ucrania
+- La Nuova Alleanza in Medio Oriente scuote i Poteri Mondiali
+- La "Peste Blanca" del Siglo XXI - Plan de Recetar hasta la Muerte
+- La Política de lo Obvio - ¡Vaya!, porqué el Mundo de Habla Inglesa es la Nueva Unión Soviética
+- La Post-Eccezionalità Statunitense - Trump Rinnega l'Idea dell'Elite che gli Stati Uniti spno sempre "Puri" e...
+- La Prueba de que Estados Unidos está Controlado por Corporaciones Extranjeras
+- L'Aquila, l'Orso e il Drago
+- La Ruptura - Los Dos Imperios Financieros más Poderosos de la Historia Moderna
+- La Ruta de la Seda envuelve a EE.UU. en América Latina
+- Las Dos Superpotencias - ¿Quién Controla Realmente los Dos Países?
+- Las Fases de Un Imperio
+- Las "Fantasías Histéricas" de EE.UU. acerca de Vladímir Putin
+- Las Fuerzas Multipolares día a día se Consolidan Más en sus Posiciones
+- Las Raíces de la Adicción de Washington a la Fuerza Militar
+- Las Semillas de la Próxima Guerra Civil en Estados Unidos
+- La Stabilità Politica della Russia è Garantita mentre l'Occidente Affonda
+- La Storia si sta facendo all'Est questa Settimana mentre a Ovest si sta facendo la Guerra...!
+- La Tragedia di Trump
+- La Ultima Arma de "Destrucción Masiva Económica" de Rusia contra el Sistema Occidental
+- La Ultima "Maniobra Agresiva" de Rusia es Una Proposición de Paz
+- La Verdad Detrás del Capitalismo
+- La Verdadera Razón por la que los Propagandistas han estado Promoviendo la Histeria Anti-Rusa
+- La Verdad sobre la "Influencia Rusa" es simplemente que Rusia dice la Verdad
+- La Via della Seta accerchia gli USA in America Latina
+- Leaked Memos Show U.S. Threaten Continued Violence if Colombia Challenges Big Pharma Monopoly
+- Leaked Sec. Kerry Audio that CNN and NY Times Tried to Hide - Confirms U.S. Role in Rise of ISIS
+- Le Banche Centrali del Mondo si Disfano dei Buoni del Tesoro degli Stati Uniti a tempo di Record
+- Le Due Superpotenze - Chi controlla veramente i due Paesi?
+- Le "Fantasie Isteriche" degli USA su Vladimir Putin
+- L'Era del Confronto
+- L'Europa al limite di Una Crisi Profonda visto l'appoggio all'Ucraina - "E' ciò che gli Stati Uniti ha desiderato"
+- Libya, Syria, Ukraine - Same Playbook, Same Puppet Masters
+- L'Indecenza dell'Indulgenza
+- Living with Russia - The Alternative is what, Exactly...?
+- Locura Total - Crece la Sombra de una Posible Guerra Nuclear
+- Lo que la Ciencia dice sobre la Política
+- Los 5 Cárteles que Gobiernan los Estados Unidos y el Mundo
+- Los BRICS y la Estructura de un Mundo Heptapolar - Contra la Unipolaridad Anglosajona
+- Los Cinco Frentes Globales de Conflictos abiertos por EE.UU. - Una Sinopsis de 2023
+- Los Conflictos Internos y Externos de EE.UU. acercan el Fin de su Dominio
+- Los Dictadores deberían Temer a la IA
+- Los EE.UU. Planearon Borrar del Mapa a la USSR con un Masivo Ataque Nuclear - Orden Post Segunda...
+- Los Emails Explosivos de Hillary Clinton
+- "Los Estados Desunidos de América" - La Crítica de 'The Economist' a la Polarización de EE.UU.
+- Los Extraños Preparativos para Emergencias del Gobierno de EE.UU
+- Los Grupos Religiosos Estadounidenses Generan Más Dinero que Microsoft y Apple Combinados
+- "Los Intentos de Crear un Mundo Unipolar han tomado Formas Monstruosas" - Putin
+- Los Intentos de EE.UU. de aislar a Rusia reforzaron un Mundo Multipolar
+- Los Intereses de Estados Unidos en Brasil detrás de la Decisión Contra Lula
+- Los Intereses de Estados Unidos en el Conflicto de Ucrania
+- Los Líderes Mundiales acuerdan 'Etiquetar al Ganado' del Planeta
+- Los Planes que EE.UU. tenia en Siria... y que Rusia ha Roto en Pedazos
+- Los Plenos Poderes del Presidente de Estados Unidos
+- L'Ovest è gestito da Barbari
+- Major Developments Strongly Suggest the End of Unipolar World Order
+- Majority of Mexicans see the United States as Greatest Threat - New Poll Shows
+- Malone sobre la Investigación de Armas Biológicas en Estados Unidos - ¿Somos los Buenos o los Malos?
+- Martial Law in USA? The Death of Democracy - Main File
+- Masters of Deceit - The Government's Propaganda of Fear, Mind Control and Brain Warfare
+- Medical Martial Law - Is this How they Plan to Lock Down planet Earth?
+- Merkel insta a Europa a Prepararse para un Mundo 'Sin el Liderazgo de EE.UU.'
+- México - La "Huerta" de Amapola de Estados Unidos
+- Mientras Rusia Crecerá más de lo previsto, la Economía de EE.UU. se Hunde - Lo dice el FMI
+- Military Intelligence has Weaponized Democracy Worldwide
+- Military Omnipresence - A Unifying Concept for America's 21st-Century Fighting Edge
+- Military to Military - On US Intelligence Sharing in the Syrian War
+- Millennials Poll Shows Sanders' Revolution Reshaping U.S. Electorate
+- Missing in Action - What Happened to War and the Imperial Drive to Organize the Planet?
+- More American Troops to Afghanistan to Keep the Chinese Out? - Lithium and the Battle for Afghanistan Mineral
+- Multiplicidades de China en America Latina
+- Munich Conference reveals East-West Divide
+- Nation Transfixed in Horror by Toy Bombs while Destroying Lives with Real Ones
+- Neocolonialism and the "Migrant Crisis"
+- Neo-Liberalism seems to have Reached a Dead End
+- Neoliberalism - The 'Zombie Doctrine' at the Root of All Our Problems
+- New "Dark Money" Documentary Shines Light into the Shadows Cast by the Super-Rich
+- New FBI Report definitively proves 'Russiagate' which dogged Trump's US presidency was 'Made Up' from the...
+- New Video Evidence of America's Coup in Ukraine - And What it Means
+- New World Disorder and the Demise of Capitalism
+- New World Disorder - Emerging Division Between East and West Threatens to Plunge the Globe into Chaos
+- 'New World Order' vs. 'Empire of Lies' - Key takeaways from Lavrov's UN Speech
+- NGOs are the 'Deep State's Trojan Horses'
+- NGOs - Choice Tool of Subversion for the New World Order
+- ¡No a la Intervención Militar de Estados Unidos en Venezuela!
+- Nobody is 'Stealing' your Jobs - You Spend Too Much on Wars - Alibaba founder tells U.S.
+- No hay "Valores Comunes" entre los Europeos y Estados Unidos
+- No Necesitamos Nuevos Presidentes - Necesitamos una Nueva Conciencia y un Nuevo Sistema
+- Nonsense at the G7 Summit - Russia, Greece and Convenient Threats
+- "No, Putin Did Not start the War in Ukraine" - Towards a U.S. War against Russia?
+- No 'Unfriendly Nations' for Russia, Only 'Unfriendly Elites' - Putin
+- Now is the Time to Talk About what We are Actually Talking About
+- Nueva Alianza de Oriente Medio sacude a los Poderes Mundiales
+- Numerosas Noticias Alarmantes que Silencian los Grandes Medios de Comunicación
+- Nunca EE.UU. Estuvo tan Aislado en América Latina
+- Occidente Devora a sus Hijos
+- Occidente y el Conflicto en Ucrania
+- Ocho Contradicciones del "Orden Basado en Reglas" del Imperio
+- One Humanity, One Planet, One World - Global Politics is Dehumanizing Mankind
+- One Nation Under Blackmail
+- Opciones Rusas contra un Ataque Estadounidense en Siria
+- Open Skies Treaty Vital for Confidence Building - Russian Tu-154 Flies over Washington
+- "Open Up Society Now" say Dr. Dan Erickson and Dr. Artin Massihi
+- Pearl Harbor False Flag 75th Anniversary - Time to Admit the Deception
+- People Keep Talking About 'The Establishment' - What Is It, Anyway?
+- Perché gli Stati Uniti vogliono il Petrolio Venezuelano se Comprano già il 41% delle loro esportazioni Totali?
+- Perché il Crollo degli USA è solo all'Inizio e non alla Fine...
+- Perché l'Occidente Non Può Tollerare i Russi
+- Periodistas se Ríen de la Vocera del Departamento de Estado cuando dijo que EE.UU. No Apoyaba Golp...
+- Perú - ¿Asediado por EE.UU., la CIA y el Foro Económico Mundial?
+- Plan de Cambio de Régimen en Venezuela por EE.UU. - Apagones Eléctricos para 'Galvanizar Malestar Público'
+- Political Dementia - Americans have become disillusioned Royalists, craving a Leader to Idolize or Despise
+- Politicians Use "Rent a Crowd" Company to Give Illusion of Support
+- Poll Exposes '2-Party' Dictatorship - 65% of Americans want a Candidate Who is NOT Clinton or Trump
+- Populism in America - "Follow the Money"
+- ¡Por favor, Recuerde NO Votar...!
+- ¿Porqué aceptó Trump que Estados Unidos renuncie a ser el Gendarme del Mundo?
+- Porqué el Occidente odia a Putin - Lo que No le están Diciendo
+- Porqué la Tercera Guerra Mundial se Vislumbra en el Horizonte
+- ¿Porqué quiere Estados Unidos el Petróleo Venezolano si ya Compra el 41% de sus Exportaciones Totales?
+- ¿Porqué Todo el Mundo Mantiene a Flote la Economía de EE.UU.?
+- Presidential Executive Orders - The Fourth and Stealth "Branch" of Governance
+- Presiones de EE.UU. y Terror Mediático sobre la Base China en la Patagonia
+- Preventing a Disrupted Presidential Election and Transition
+- Primeros Observadores de EE.UU. llegan a Argentina para Instalar Bases Militares
+- Principles, Not Bitterness will Determine History
+- Prisons of Pleasure or Pain - Huxley's "Brave New World" vs. Orwell's "1984"
+- Proof that the USA is Controlled by Foreign Corporations
+- Publican más Evidencia sobre el Posible Origen del Covid-19... y apunta a Estados Unidos
+- Putin announced the Doctrine of Global Confrontation with the United States
+- Putin anuncia la Doctrina de la Confrontación Global con los Estados Unidos
+- Putin atribuye a "la Política Miope" de la U.E. y EE.UU. la Crisis Energética y Alimentaria
+- Putin, cansado de 'Mentiras sobre Hackeos Rusos', envía un Mensaje Directamente al Pueblo Americano
+- Putin concluye que "El Futuro Orden Mundial está siendo creado ante Nuestros Ojos"
+- Putin marca el Fin del Mundo Unipolar y Avecina un Cambio de Élites a nivel Global
+- Putin's Conundrum
+- Putin segna la Fine del Mondo Unipolare e rende prossimo un Cambiamento delle Elites a Livello Globale
+- Putin Tired of 'Russian Hack Lies' Sends a Message Directly to the American People
+- Putin vs. Obama - Mundo Real vs. Ilusa Fantasía
+- Putin vs. Obama - Real World vs. Deluded Fantasy
+- ¿Qué busca Antony Blinken en su Gira por América Latina?
+- Que Entre el Diablo y Escoja entre Trump y Biden
+- ¿Qué es el Comando Sur, el 'Pentágono en Miniatura' de EE.UU.?
+- ¿Qué significa el Acercamiento entre Rusia y China para Occidente?
+- ¿Quien Está Comprando Secretamente la Deuda de EE.UU.?
+- ¿Quién Pierde Más con las Sanciones a Rusia que incluyen la "Opción Petrolera"?
+- ¿Quién se Beneficia con el Acto de Terrorismo en los Oleoductos?
+- Raíces Espirituales del Conflicto Ruso-Estadounidense
+- Recuento Oficial de las Invasiones Estadounidenses
+- Reported Death of TTIP - An Abhorrent Political Deception
+- Revolucionarios de Color en Estados Unidos
+- Rivoluzionari di Colore negli Stati Uniti
+- Road to White House - New Boss Will Be the Same as the Old Boss
+- Rothschilds invia il Presidente Francese Macron in Cina - Cerca di salvare l'Europa visto che l'Impero...
+- Rothschilds send French President Macron to China - Attempt to Save Europe as U.S. Rockefeller Empire Panics
+- Rusia, China y Arabia Saudita ponen en Jaque a la Hegemonía del Dólar
+- Rusia, EE.UU. y Francia Formarán una Amplia Coalición que "Dará un Golpe Definitivo al EI" - Dice Hollande
+- Rusia está Derrotando a EE.UU. en el 'Juego del Petrolero en Oriente Medio'
+- Rusia - La Oportunidad Perdida
+- Rusia quiere obligar Estados Unidos a Respetar la 'Carta de la ONU'
+- Rusia reconoce de "Forma Inmediata" la Independencia de las Repúblicas Autoproclamadas de Donetsk y Lugansk
+- Rusia reveló cómo los Experimentos Biológico-Militares de EE.UU. prepararon el Covid-19
+- Rusia se ha Preparado durante Años para esta Confrontación que Occidente Subestimó
+- Rusia Ya ha Ganado la Guerra contra Occidente... ¿Quieres saber Porqué?
+- Rusia y China invierten en Infraestructuras - Estados Unidos en cambio gasta en Elementos Militares
+- Rusia y Rusofobia...
+- Russia and China are Containing the U.S. to Reshape the World Order
+- Russia and China Invest in Infrastructure - U.S. instead Spends on Military
+- Russia, Cina e Arabia Saudita mettono a Repentaglio l'Egemonia del Dollaro
+- Russia, Cuba and the Truth about Putin the U.S. Media Doesn't Want You to Know
+- Russia is Defeating the U.S. in the 'Middle East Oil Game'
+- Russia - L'Opportunità Persa
+- Russia Not to Blame for Global 'Food Crisis' - Putin
+- Russia-Putin and the West
+- Russia's Political Stability Ensured while the West Sinks
+- Russia - The Lost Opportunity
+- Russia vs. Ucraina... e gli Anglo-Americani - La Dimensione Esoterica
+- Russia vs. Ukraine... and the Anglo-Americans - The Esoteric Dimension
+- Security, Safety, Security! - Dictatorship by Democracy
+- Se Provochi Tutti qualcosa Potrebbe Succedere
+- Seven Ways Republicans and Democrats are Exactly the Same!
+- Since 9/11 North America has Traded Liberty for Security and we're Almost Out of Both
+- Si Provocas a Todo el Mundo, algo Podría Suceder
+- Siria - Conversaciones de Paz y un Imperio Volviéndose Loco
+- Six Years Ago today the U.S. helped Murder Gaddafi to Stop the Creation of Gold-Backed Currency
+- Sobre el Caos en EE.UU. y Su (Eventual) Recuperación
+- ¿Sobrevivirá la Dominación de Washington sobre la ONU?
+- Some Reasons Why We do Not Need a President
+- Striking Parallels Between The U.S. and The Roman Empire
+- Supporting Genocide to Halt Multipolarity
+- Survey - You'll Never Guess what Americans are Most Afraid Of...
+- Syria - Peace Talks and an Empire Running Amok
+- Techno-Authoritarianism - China and Deep State have Joined Forces
+- Technocracy and the Rise of the Police State
+- Ten Reasons America Will Be Judged as The Most Brutal Empire in History
+- Terror Junkies - The West's Addiction to Funding Radical Groups
+- Thanks to 'War on Whistleblowers' U.S. Ranks 41st on Press Freedom Index
+- The 5 Cartels that Rule America and the World
+- The 239 Year Timeline of America's Involvement in Military Conflict
+- The Age of Injustice and the Moral Corruption of Individuals Orchestrating Julian Assange's Arrest
+- The American Dream Has Moved to Scandinavia
+- The American Empire has Fallen - Though Washington may Not Know it Yet...
+- The Amerikan Way - A Study in Psychopathy
+- The Bait and Switch - Trump and the "New Establishment"
+- The Barbarism of the Migrant
+- The Battle for the 'Global South' - An Ancient Evil rears its Head...
+- The Break Up - The Two Most Powerful Financial Empires in Modern History
+- The Broken Chessboard - Brzezinski Gives Up on Empire
+- The Carefully Calculated Mass Migration Agenda
+- The Chinese are Leaving the U.S. in the Dust
+- The CIA's Creation of "Islamic Terrorism" on American Soil
+- The Clintons - America Politics - Main File
+- The Coming War on China
+- The Coming War on China - A Review of John Pilger's Latest Documentary
+- The Corporation of The United States of America
+- The Cost of Building and Operating Empire (USA)
+- The Cost of Iraq, Afghanistan, and Other Global War on Terror Operations Since 9/11
+- The Coup has Begun - The Empire Strikes Back Everywhere
+- The Criminalization of U.S. Politics - Hillary Accused of Racketeering by the FBI - Will She be Dumped...
+- The Cults of Empire
+- The Danger of American Fascism
+- The 'Dark Forces' in control of the 'Anglo-American-Zionist Empire' are the Source of the World Crisis
+- The Debate is Over - Banking has Become a Criminal Enterprise in the U.S.
+- The Decline and Fall of the United States
+- The Deep State's Stealthy, Subversive, Silent Coup to ensure 'Nothing Changes'
+- The Democratic Experiment is Finished
+- The Drug Catastrophe in Afghanistan
+- The Dying Dream of Globalization
+- The Eagle, the Bear and the Dragon
+- The Empire of Lies Breaks Down - Ugly Truths the Deep State wants to Keep Hidden
+- The End of Capitalism has Begun
+- The Era of Tyranny has Begun - Washington has Destroyed Western Liberty
+- The Establishment's Last Gasp
+- The Fallacy of 'Regime Change' Strategies
+- The Fall of America Signals the Rise of the New World Order
+- The Fall of Western Man
+- The Final War - The 100-Year Plot to Defeat America
+- The Folly of Empire
+- The Four Greatest Enemies of the State
+- The Global Majority Speaks - A Billion more People just Joined the BRICS...!
+- The Grand Irony of RussiaGate - The U.S. Becomes more like the USSR every Day
+- The Graveyard of the Elites
+- The Heart of Darkness - The Sexual Predators within America's Power Elite
+- The Horrors of the Empire - Notes from 'The Edge of The Narrative Matrix'
+- The Illusion of America - Has It Ever Really Existed?
+- The Illusion of Freedom
+- The Incredible Instant ISIS Machine
+- The Information War - The Deadly War hardly Anyone realizes we're Fighting
+- The Iranian Threat - Who Is the Gravest Danger to World Peace?
+- The Kremlin's "America-Gate"? - "An Eye for an Eye"
+- "The Kremlin's Playbook" - Washington Views Russia-EU Cooperation a Threat to U.S. National Security
+- The Land of Don't
+- The Last Western Empire?
+- The Left's Descent to Fascism
+- The Looting Conspiracy in the American "Empire"
+- The Many Faces of Secrecy - Amy Benjamin
+- The Midas Disease - Corruption has Shaped History - Why do we still Ignore it?
+- The Most Evil Government in American History
+- The Next Empire
+- The NGA - The Billion Dollar Spy Agency You've Never Heard Of - They Can See a 'Stick of Butter from Space'
+- The North America Union - Main File
+- The Oligarch Takeover of U.S. Media
+- The Path to Persia and the Ongoing Plot to Destroy Iran
+- The Path to Total Dictatorship - America's Shadow Government and its Silent Coup
+- The Pentagon is Building a 'Self-Aware' Killer Robot Army Fueled by Social Media
+- The Pentagon's Law of War Manual - A Blueprint for Total War and Military Dictatorship
+- The Phases of An Empire
+- The Politics of the Obvious - (Why) the English-Speaking World is the New Soviet Union
+- The Price of Empire
+- The Prison State of America
+- "The Real Danger Is at Home" - Says American Foreign Policy Veteran
+- The Recolonization of Latin America and the War on Venezuela
+- There's no Great 'American Democracy' to be Restored after Trump - And Nothing will fundamentally Change...
+- The Road to 2025
+- The Roots of Today's Tyranny
+- These Americans are Preparing for War With their Own Government
+- The Second Coming - The Disappearance of the Traditional Political "Left" and "Right" in the 21st Century
+- The Secret History of America's Capital - Washington D.C. - Main File
+- The Secret History of America's Defeat in Syria
+- The Secret-Shadow Government - Main File
+- The So-Called 'War on Terror' has Killed over 801,000 People and Cost $6.4 Trillion
+- The Socialist Leader 'America Loves to Hate' wins Again - What now?
+- The Soros Master Plan
+- The Spectacular Failure of (North) American Morality
+- The Structure of Power in American Society
+- The Swamp Swallowed Trump
+- The Tectonic Plates of Geopolitics are Starting to Shift
+- The Telltale Signs of Imperial Decline
+- The Three Ugly Sisters - TTIP, CETA and TISA
+- The Tragedy of Trump
+- The Truth Behind Capitalism
+- The Two Superpowers - Who Really Controls the Two Countries?
+- The Tyranny of the Police State disguised as Law-and-Order
+- The Ukraine Crisis - Sponsored by U.S. Hegemony and War Profiteers
+- The Ukrainian and Colombian Road to Empire Building - Violence and Terror
+- The United Stasi of Amerika
+- The United States as "Destroyer of Nations"
+- The United States is Led by Two Corrupt Establishments
+- The UN's New Rules for 'Ruling the World' and what does Secretary-General of the UN António Guterres...
+- The Untold History of U.S. War Crimes
+- The U.S. Empire does Not Seek Peace - Its Existence depends on Endless War
+- The U.S. Exploits its Allies...
+- The U.S. has Become a Malignant Narcissist infecting all it Encounters
+- The U.S. has Been Downgraded to a 'Flawed Democracy'
+- The U.S. is an Oligarchy - New Report from Princeton and Northwestern Proves It
+- The U.S. is the Biggest Cause of Global Instability - But it Pretends to be the Solution
+- The U.S. is the World Leader of Bio-Weapons - Research, Production and Use Against Mankind
+- The U.S. is the World's Worst Human Rights Violator
+- The U.S. Military emits more Greenhouse Gases than Sweden and Denmark
+- The U.S. Needs its Own Chilcot Report
+- The U.S. versus The World - A Majority of One, a Minority of 192 in UN General Assembly Resolutions
+- The U.S. Will Not Cease its Efforts to 'Remake' other Nations
+- The Vladimir Putin Interview - February 2024
+- The Weaponization of Information - The Need for Cognitive Security
+- The Western Alliance is Crumbling - EU is Abandoning U.S. on Overthrowing Assad
+- The Western Alliance is Falling Apart
+- The West is Run by Barbarians
+- The Whistleblower who Exposed Google's Deep Conspiracy to Overthrow the U.S. Government
+- The World is Dedollarizing
+- They're finally Revealing the Deep State - Here's Why...!
+- The Zero Evidence World of U.S. Criminal Misleaders
+- Think Tank financiado por Soros/Koch se Opone a la "Guerra para Siempre" de EE.UU.
+- "This, in Fact, is A Revolution" - Overwhelming Majority of Americans Believe that Both Parties are Too...
+- This is what World War III Looks Like
+- This Outlaw Power - America's Intent is to Dominate China, Russia and the World
+- Time for a Divorce? - The U.S. is Bitterly Divided
+- Time Travel Pre-identified U.S. President Andrew D. Basiago announces 2016 Candidacy to Millions of...
+- TISA, TTIP and TPP = Corporate Hegemony and Global Economic Warfare
+- Today's Youth Rejects Capitalism and Socialism - Will Technocracy Appeal to Them?
+- Todos Estamos Siendo "Suicidados"
+- Todos los Imperios son Mortales incluso el de Estados Unidos
+- To Fight for Freedom, or to Fight for Empire - That is the Question
+- Totale Pazzia - Cresce l'Ombra di una Possibile Guerra Nucleare
+- Toward a Global Realignment
+- Transcripción del Discurso de Vladimir Putin ante la Asamblea General de la ONU 2015
+- Triple Golpe de China a EE.UU. - Petroyuán con Oro y Armas Nucleares Rusas
+- Tropas de EE.UU. en la Amazonía - Se Cumple el 'Sueño Americano'
+- Trump - Main File
+- Trump = Obama = Bush = Clinton on 4 Core Issues
+- Trump y la Historia Estadounidense han Sido Asesinados
+- 'Trust In Government' is No Longer Possible
+- TTIP - Breve Historia de una Agenda para el Saqueo Corporativo
+- Turchia dice NO agli USA e alla UE
+- Turquía dice NO a los EE.UU. y a la UE
+- Twitter Files reveal Government-led Censorship Network
+- UBS Whistleblower Exposes 'Political Prostitution' All the Way Up to President Obama
+- Ucrania - ¿Nuevo Estado Satélite de Estados Unidos?
+- Una Historia de Humillación...
+- Una Humanidad, un Planeta, un Mundo - La Política Global está Deshumanizando a la Humanidad
+- Una Idea Loca y Peligrosa Salta a la Luz Pública
+- Una Lección Histórica sobre cómo EE.UU. y Reino Unido 'Traen Democracia'
+- Un Analista Avverte che Gli Stati Uniti sono al Limite di un'Insurrezione
+- Un Analista Ruso Revela como Rusia Podría Destruir a los EE.UU. de forma Sorprendente
+- Una Revelación Publica Impactante sobre EE.UU. y el "Terrorismo Islámico"
+- Un Articulo Académico Muestra Como Piensan Muchos Militares de EE.UU.
+- Una Tormenta en Occidente - El Paradigma Intelectual Liberal se ha roto
+- Un G7 sin China es solo un Grupo de Consulta con "Buenas Intenciones"
+- Un Momento Instructivo
+- Un Siglo de Intervención Estadounidense en Centroamérica creó la Crisis de Inmigración
+- Un Tercio de los Norteamericanos Apoyaría un Golpe Militar
+- USAID Exposed in Cuba - What it Tells us About The U.S. Subversion Worldwide
+- U.S. and Israel - Two Governments linked by Lies and Bloodshed
+- USA/Russia/Cina sono la Nuova Tripolarità del Secolo 21
+- USA uses TPP-like Trade-Court to Kill Massive Indian Solar Project
+- U.S.-Colombia - Conspiracy Against Venezuela
+- U.S. Department of Defense is The Worst Polluter on The Planet
+- U.S. Empire - The Reality of the 'Greater' United States
+- U.S. Empire - When will they Stop saying 'Unintended Consequences'?
+- U.S. Exit from United Nations could Become Reality with Fresh Bill
+- U.S.-Led Western Scheme to Divide and Destroy Syria - Revealed in Leaked British Cable
+- U.S. Imperialism and The Ukraine Coup - The EU-IMF Economic Agenda for Ukraine
+- U.S. 'Intentionally released Covid Virus in Wuhan' - EU Summit Told...
+- U.S. is 'The Greatest Threat to Peace' in the World Today - Polls
+- U.S. Military is a Bigger Polluter than as many as 140 Countries - Shrinking this 'War Machine' is a Must
+- U.S. Military World's Largest Polluter - Hundreds of Bases Gravely Contaminated
+- U.S. Naval False Flags - A Brief History
+- U.S. No Longer an Actual Democracy - Princeton Study
+- U.S. Policymakers openly Plot Against Venezuela
+- U.S. Politics isn't 'Polarized' - It's in almost 'Universal Agreement'
+- U.S. "Regime Change" in Venezuela - The Documented Evidence
+- U.S. Religious Groups Generate More Money than Microsoft and Apple Combined
+- U.S. Routinely Meddles in Russian and Other Nations' Elections - Says Putin
+- U.S. Senate to Declare "International Martial Law" - Give President 'Unlimited' Military Powers
+- U.S. Southern Command in Colombia along the Border - Venezuela Military Moves, U.S. Pulls Out of INF...
+- Usted Debería Dejar los Estados Unidos - Pero ¿puede hacerlo?
+- U.S. to Begin Invasion of Syria
+- U.S. Tourists Will Be Required to Turn Over their Social Media History
+- U.S. Unlawful Wars is 'Emperor's New Clothes' Tragic-Comedy - Defining 'Clothes,' 'Wear,' 'Self-defense'
+- U.S. vs. Russia in Syria - A Battle to Control the Truth
+- U.S. Warns Allies Not to Join China-led Development Bank
+- "Vamos Camino de la Tercera Guerra Mundial" - Expertos Financieros de Todo el Mundo Advierten
+- Venezuela, Minneapolis, Iran, Europe - Trump's Last Gasps of 'Collapsing World Control'... Or is It?
+- Vivere con la Russia - Qual è esattamente l'Alternativa...?
+- Vladimir Putin en Guerra contra los "Straussianos"
+- Vladimir Putin isn't a Supervillain - Foreign Policy Magazine
+- Vladimir Putin - La Restauración de la Fe en la Humanidad
+- Vladimir Putin no es un Supervillano - Revista Foreign Policy
+- Vladimir Putin non è una Supercanaglia - Rivista Foreign Policy
+- Vocera de la Cancillería Rusa explica cómo la USAID construía una Realidad Falsa con Medios Controlados
+- War and More War - Trump's National Security Strategy (NSS)
+- War in Our Time? - We need the 'Men in White Coats'...
+- War is A Racket
+- War Pigs - The Fall of A Global Empire
+- Washington Amenaza - No Tolerará la Creación de unos Estados Unidos de Europa
+- Washington Blows Itself Up With its Own Bomb
+- Washington Fears Losing Greece to Moscow
+- Washington Minaccia - Non tollererà la Creazione degli Stati Uniti d'Europa
+- Washington Post just Admitted 'Russian Propaganda' was Actually U.S. Mainstream Media and Was 'Factual'
+- Washington's Benevolent Mask is Disintegrating
+- Washington se Niega a escuchar a Rusia y a China
+- Washington's Silent Weapon for Not-so-quiet Wars
+- Washington Wants "Regime Change" in Ecuador
+- Weaponizing the U.S. Dollar is Accelerating Global De-Dollarization
+- We are All Being Oppressed, Poisoned and Bankrupted - Distractions by the Mainstream Media
+- We Don't Need New Presidents - We Need a New Consciousness and a New System
+- Welcome to DARPA's new 'Mass Surveillance Control Tool'
+- Welcome to the Grand Tour of the Washington Swamp...!
+- We're Not the Good Guys - Why is American Aggression Missing in Action?
+- Westerners and the Conflict in Ukraine
+- West's Moral Bankruptcy Exposed
+- What Does the Sale of Venezuelan Oil in Currencies Other than the U.S. Dollar Mean?
+- What is the Deep State?
+- What's Happening is Breathtaking - Trump has Started a Revolution...!
+- What this 2018 Election in USA is About
+- What to Make of China's Rejection of the Dollar? - Washington is Destroying American Power
+- What Was Discussed At a Closed Session of The U.S. House of Representatives? - End of An 'Empire'...
+- When Empire Hits Home
+- When Terrorism Becomes Counter-Terrorism - The State Sponsors of Terrorism are "Going After the...
+- When Washington Decides that 'Democracy is Dangerous' - Stoking Opposition in Venezuela and Syria
+- Where Do You Draw the Line in Today's Crazed Political Environment?
+- Whistleblowers vs. The State
+- White House 'Hysterical' over Putin interview - Moscow
+- Who are the Beneficiaries of American Wars? - America's Perpetual War Six Questions
+- Who Controls the Government?
+- Who is Really Behind the American Militia Rebellion?
+- Who is the New Secret Buyer of U.S. Debt?
+- Why America is the World's Most Uniquely Cruel Society
+- Why America Needs War
+- Why America Should Improve its Own Democracy before Spreading Democracy Globally
+- Why Billionaires Need Society more than Society Needs Billionaires
+- Why don't Americans Care about Each Other?
+- Why is 'The West' so Weak and Russia so Strong?
+- Why is Venezuela in the White House's Crosshairs?
+- Why North America's Revolution Won't Be Televised
+- Why the Anglo World is Collapsing
+- Why the Right to Vote in the United States is a Fraud
+- Why the Rise of Fascism is Again the Issue
+- Why the United States' Democracy was so Easy to Destroy
+- Why the U.S. is the World's First Poor Rich Country
+- Why the West Cannot Stomach Russians
+- Why the West Hates Putin - What You're Not being Told...
+- Why the World is Giving Up on Freedom
+- Why Venezuela Has Not Been Defeated
+- Why We're Drifting Towards World War 3
+- Why You Do Not Own Any Land and Property in the U.S. - Senate Document 43
+- WikiLeaks Tweets Army Manual detailing how U.S. weaponized Banking Cartel to Take Down Nations
+- Will America Survive Washington?
+- Will America Tap Out??
+- "Wipe the Soviet Union Off the Map" - U.S. Nuclear Attack against USSR Planned During World War II
+- Y "Ahora Estados Unidos No va a Imponer su Estilo de Vida"
+- ¡Yo Creé el Terrorismo Yihadista y No me Arrepiento! - Brzezinski, Asesor de Seguridad de Carter
+- You Have Been Fooled into Believing WWIII is Real - Here is the Proof
+- 42% of 'All COVID-19 Deaths in the U.S.' occurred in Nursing Homes
+- A Disturbing Series of Events - Governments Around the World Seem to Be Preparing for War
+- Afghanistan's Mineral Resources fueling War and Insurgency
+- After America - How Does The World Look in An Age of U.S. Decline? - Dangerously Unstable
+- Alcune Teorie sulle Cospirazioni che Sono Diventate Realtà
+- Algunas Señales que la Nave de la Elite Global se Está Hundiendo
+- Algunas Teorías Conspirativas que se Han Hecho Realidad
+- Aliens and The Government
+- America's most Secret Intelligence Agency DEAGEL forecasts Depopulation of the World from COVID-19...
+- Análisis Inquietante - ¿Porque los Países Aumentan sus Reservas Estratégicas de Petróleo?
+- An Interview with Zoltan Istvan, Leader of the Transhumanist Party and 2016 Presidential Contender
+- Antes del 2016 Puede Estallar una Revolución en EE.UU. - Advertencia de un Economista
+- Argentina en la Ruta del Terrorismo de Estado Colombiano y Mexicano
+- Armas Biológicas Étnicas - Una Amenaza Real
+- Así Exterminó el Ejército de Estados Unidos todo rastro de la Herencia Española en Filipinas
+- As Long as 'Mass Media Propaganda' exists, Democracy is a Sham
+- Awakening from Empire Propaganda starts with 'One Small Act of Heresy'
+- Batalla por los Recursos de Perú - Embajadora de EE.UU., veterana de la CIA, discute 'Inversiones' con Ministros
+- Behind the Racist Coup in Bolivia
+- Beijing Plots to Surpass U.S. in Coming Decades - China's Secret Strategy Exposed
+- Building Bridges of Peace Instead of Fear - Citizen Diplomacy with Russia
+- "Casino Jack and The United States of Money" - A Look at Corporate Money and Politics - DemocracyNow!
+- Celebrando el Genocidio - La Verdadera Historia del Día de Acción de Gracias
+- Celebrating Genocide - The Real Story of Thanksgiving
+- Chief Seattle's Thoughts - Native-American Letter that Prophesies the End of Life and the Beginning of Human...
+- China abre Nueva Línea de Crédito a Irán de 10 Mil Millones... en Euros y Yuanes
+- China and Russia - The Bilateral Relationship that Matters
+- China Calls for New Security Pact with Russia and Iran
+- China - The Emerging Global Giant
+- China y Rusia, junto con los BRICS, llevarán a EE.UU. a la Quiebra
+- Christmas - The Most Depressing Time of The Year in the Most Depressed Nation on The Planet
+- Christopher Columbus - The Wétiko
+- Como Google Puede Manipular el Resultado de Todas las Elecciones Democráticas del Mundo
+- Cómo los Houthis dieron Vuelta al Tablero de Ajedrez - Ataque a las Instalaciones Petroleras de Abqaiq
+- ¡Conozca a Madame Guillotina!
+- Contra el Imperio de La Vigilancia - Entrevista con Noam Chomsky
+- Coronavirus y Geopolítica
+- Corruption in the Classical World
+- Corruzione nel Mondo Classico
+- Cosa Significa Aver Tolto le Sanzioni contro l'Iran?
+- Council on Foreign Relations Tells Government they "Have To" Use Propaganda on Americans
+- Countering The Corporate-Insurgency
+- Counterinsurgency - A U.S. Army Field Manual
+- 'Crisis de Confianza' en el Tribunal Penal Internacional
+- Cuba Reaches Out to Partners Far and Wide to Hedge Against U.S. Engagement
+- Dangerous Crossroads - "This is Not a New Cold War... Nobody Will Win World War III" - M.Chossuodovsky
+- Dead on Arrival - A Brief Post-Mortem on the U.S.' Regime-Change Operation in Venezuela
+- Direct Democracy is the Future of Human Governance
+- Divided States of America - 20 States Petition to Secede
+- Dos Noticias desde EE.UU. que Indican que el Mundo 'Se Encamina hacia la Locura'
+- Do We Face a Global Food Disaster?
+- EE.UU. busca obtener el Control de TikTok a cambio de su Futura Operatividad en el País - Forbes
+- EE.UU. y Rusia podrían Entregar los Ricos Altos del Golán a Siria - Duro Golpe a Israel
+- El año 2024 - Gaza, Ucrania y Eurasia en la Crisis del Declive Occidental
+- El Cambio Climático que Acabó con el Imperio Romano
+- El "Cementerio de Imperios" reclama otra Víctima
+- El Cristianismo Ha Arruinado la Civilización Antigua
+- El Estado de Vigilancia Omnipresente - '1984' de Orwell ya No Es una Ficción
+- ¿El 'Fin' de los Estados Unidos? - Posibles Eventos que Podrían dar Lugar a un Apocalipsis Estadounidense
+- El Inicio del Cambio de Rumbo Mundial - La Estrategia Rusa ante el Imperialismo Anglosajón
+- El Mapa del Mundo Paralelo - Conozca Países que no Existen para la ONU
+- El Nuevo Orden Mundial del Papa Francisco - Vaticano utiliza 'Iniciativa Rothschild' para Reformar el Capitalismo
+- El Poder Real Viene de la Energía de la Gente - Del Porqué Comprender esta Verdad es Esencial para...
+- El Presente - Dominio a Través de Dólares y Petróleo
+- El Puente entre Colombia y Venezuela - Símbolo Falso para que EE.UU. justifique la Intervención
+- El Triunfo del Ello y el Conservadurismo - La Caída del Hombre Occidental
+- EE.UU. desea Convertir a los Países Latinoamericanos en "Chicos Obedientes"
+- Entonces, ¿Qué Está Realmente Sucediendo Ahora?
+- Errors in the Human Condition
+- Estados Divididos de América - Petición de Secesión de 20 Estados
+- Estados Unidos Ya No Asusta a Nadie
+- Estos son los Países Percibidos como con Mejor Influencia en el Mundo
+- Europa debe Decidir Sobre el Conflicto contra Rusia
+- Field Manual (FM) 3-05.130 - Army Special Operations Forces Unconventional Warfare
+- Forced Sterilizations in Peru - Paid for by U.S. Taxpayers
+- Freedom is Receding Around the World
+- Fuera de Control - Cómo Occidente Creó, Financió y Desató el Terror del Estado Islámico sobre el Mundo
+- G7 - An Obsolete, Useless Talking Shop
+- G7 en Biarritz - Sólo un Circo Mediático
+- Global Justice or World Domination
+- Global Peace Index 2017
+- Global Satisfaction with Democracy 2020
+- Golpe de Estado en Bolivia liderado por Cabecilla Paramilitar Fascista Cristiano y Millonario con Apoyo...
+- Golpe de Estado en Brasil - Así es el Nuevo Presidente que ha Sustituido a Dilma Rousseff
+- Gran Fracaso de la ONU en Protección a Civiles en los Conflictos
+- Guerra No Convencional entre el Este y el Oeste - El Control de los Medios de Comunicación
+- Guía para Desenmascarar a las Falsas 'Izquierdas'
+- Hacia Un Mundo Sin Estados Unidos
+- Here's a Map of all the Mass Shootings in 2015 - What's Really Going On in the United States?
+- Here's Where the U.S. Ranks on the List of 'Most Peaceful Nations in the World'
+- Hijacking the American Plane of State - Old Scripts and Empty Stories Signal a New Age
+- Hillary acusada de Vender Uranio a Rusia y Enriquecerse a Costa de Debilitar a EE.UU.
+- Hong Kong - Caos antes del Orden
+- How a Secretive Elite created the EU to Build a World Government
+- How Palestine Became Colonized - The Empire Files
+- How the Houthis Overturned the Chessboard - Attack on Abqaiq Oil Installations
+- How to Avoid Second Passport Scams and Traps
+- How to Spot the Reptilians Running the U.S. Government
+- I Clobbered Every Cash Confiscatory Agency Known to Man
+- Il Debito Globale arriva a 63 Trilioni di Dollari
+- I'll Never Bring my Phone on a U.S. International Flight Again - Neither Should You...
+- Il Nuovo Ordine Mondiale di Papa Francesco - Vaticano usa "Iniziativa dei Rothschild" per riformare il Capitalismo
+- Il Ponte tra Colombia e Venezuela - Un Falso Simbolo per giustificare l'Intervento degli Stati Uniti
+- Il Vento dell'Est Temuto dagli USA - L'Arte Della Guerra
+- Inmigración - Muchos Mitos y Escasa Realidad
+- Intelectuales Denuncian Intentos de EE.UU. de Recolonizar Latinoamérica
+- Interlocking Agencies that Conspire to "Create Terror" - We Do Not Need the Police to "Create More...
+- Introduction of Global Taxation Just One Step Away
+- Is it U.S. vs. China in Trade Pacts?
+- Is the Global Taxman Coming?
+- Italia a las Órdenes de Estados Unidos contra Rusia
+- Italia Cortejando a China - Una Jugada Maestra de Caos
+- It Begins - Activists Launch Movement to Make Taxation Voluntary
+- La Carta Nativo-Americana que Profetiza el Fin de la Vida y el Comienzo de la Subsistencia Humana
+- La Corte Caucásica Internacional - Justicia Selectiva en tiempos de Impunidad Global
+- La Desgastante Diplomacia de Putin deja al Occidente Permanentemente Fuera de Balance
+- La Deuda Global se Dispara a los 63 Billones de Dólares
+- La Estenuante Diplomazia di Putin lascia l'Occidente sempre Senza Vigore
+- La "Fratellanza Pedofila" degli Stati Uniti - Funzionari del Cerchio Intimo di Joe Biden implicati in Abusi...
+- La Guerra Está Materializando la Israelización del Mundo - Dividir, Conquistar, Colonizar
+- La Hermandad Musulmana a punto de entrar en la Lista de Grupos Terroristas de Estados Unidos
+- La "Hermandad Pedófila" de EE.UU. - Funcionarios del Círculo Intimo de Joe Biden implicados en Abusos...
+- La Historia de 'Usar Niñas para Promover Agendas Políticas'
+- La Historia Oculta Sobre la Interminable Guerra Fría de Estadounidenses y Británicos con Rusia
+- La Independencia por Encima de Todo - Rusia Corta las Amarras Energéticas de Washington
+- La Mappa del Mondo Parallelo - Per farvi Conoscere Paesi che per l'ONU Non Esistono
+- La Nueva Cortina de Hierro - "La Amenaza Rusa"
+- La Nuova Cortina di Ferro - "La Minaccia Russa"
+- La Organización de Cooperación de Shanghái Encabeza la Gran Transformación de Eurasia
+- Las 10 Grandes Teorías de la Conspiración de 2014
+- Las Estrategias de China Encaminadas a Convertirla en La Mayor Potencia Aurífera
+- La Solicitud para Declarar "Terrorista" a George Soros consigue Suficientes Firmas como para Generar...
+- Las Universidades del Capitalismo y el Imperio - Entrevista a James Petras
+- La Tierra Prometida
+- Latin America - The Political Pendulum Swings to the Right
+- La Unión Europea fue una Idea Estadounidense
+- La Verdad sobre las "Fake News"
+- Le Strategie della Cina proiettata a Divenire La Maggior Potenza Aurifera
+- Los Dueños del Imperio - El Vaticano, la Corona y el Distrito de Columbia
+- Los Golpes de Estado "Blandos" en Latinoamérica - Un Caso de Manual
+- Los Golpistas de 'Guante Blanco' promocionan la 'Democracia' en el Mundo
+- Los Imperios, el Nacionalismo y la Leyenda Negra
+- Los Marinos de EE.UU. Afectados por el Desastre de Fukushima, Traicionados por su Propio Gobierno
+- 'Malos' Augurios para la Economía Global 2016 - 100 Dólares el Barril de Crudo, el Dólar Cae, la Pobreza...
+- Mandatario Filipino Rompe con EE.UU. y Busca "Otras Alianzas"
+- Massive 'Contagion' Will Lead to a Worldwide Financial Catastrophe - Will a Desperate U.S. Start World...
+- Más Sobre Guerra Genética - Laboratorios Secretos el Pentágono en Georgia
+- Model Venezuelan Democracy vs. U.S. Imperial Lawlessness
+- "Nella Riserva Federale non c'è più Oro" - Lo dice l'Ex Sottosegretario del Tesoro degli Stati Uniti
+- "No Hay Más Oro en La Reserva Federal" - Dice Ex-Subsecretario del Tesoro de EE.UU.
+- "No Podemos Seguir" Luchando contra Rusia - Junker Tira la Toalla
+- Not Quite Ready to Leave (your Country)?
+- ¿Nueva Guerra a la Vista? - Arabia Saudí cambia a EE.UU. por Rusia
+- Nuova Guerra in Vista? - L'Arabia Saudita passa da Stati Uniti a Russia
+- Obama - A "New" Sociopolitical Era or The Greatest Deception? - Main File
+- ONU - Nacimiento del Mundo Post-Occidental
+- Orígenes de La Unión Europea - Un Plan Encubierto de EE.UU.
+- Origins of the EU - USA Covert Operations to Assimilate Europe Into a Federal State
+- Our Society is Sick, Our Economy Exploitive and our Politics Corrupt
+- Owners of Empire - The Vatican, the Crown and the District of Columbia
+- Pentagon Fuel Use, Climate Change and the Costs of War
+- Più a Lungo "La Propaganda dei Mass Media" esiste la Democrazia è una Mistificazione
+- Politicians are Now Making Plans in Case the Public Turns Against them Violently
+- Poll finds 2016 is the Year Americans Stopped Trusting the Establishment especially the Media
+- Pope Francis' New World Order - The Vatican is using a 'Rothschild Initiative' to reform Capitalism
+- ¿Porqué se Siente como si el Mundo se Hubiera Vuelto Loco? - El Dominó y la Caída
+- ¿Porqué Venezuela y EE.UU. siguen Siendo Importantes Socios Comerciales pese a las Tensiones?
+- 'President' Juan Guaidó - A Neocon Tool for Unlocking Venezuela's Vast Resources
+- President Kennedy's UFO Quest led to his Assassination and a Deep State Coup
+- Primeras Interpretaciones al Ataque de EE.UU. a Siria... - ¿Todo es Puro Teatro?
+- Projecting Evil Onto Russia
+- ¿Puede Washington Derrocar Tres Gobiernos a la Vez?
+- Putin, el Presidente Ruso, Dice algo Acerca de ISIS que los Medios de Comunicación Occidentales No...
+- Putin dice "I Ricchi Devono Pagare" per il Coronavirus
+- Putin Exposes Obama's Lame Duck Attempt to Start a New Cold War by Refusing to Retaliate
+- Putin on Russia's U.S. Election Interference: "I Do Not Care"
+- Putin's Attritional Diplomacy Leaves the West Permanently Off Balance
+- Putin says 'The Rich Must Pay' for the Coronavirus
+- Putin, the Russian President, says Something about ISIS that Western Media Won't Air
+- ¿Qué es la Derecha Alternativa - Alt Right?
+- ¿Qué Interés hay Detrás del Boicot al Mundial de Futbol Rusia 2018?
+- Real Power Comes from the Energy of the People - Why Comprehending this Truth is Essential for Freedom
+- Recrudece la Guerra Encubierta entre China, EE.UU. y sus Aliados
+- Revelan un Antiguo Plan Secreto de China para Superar a EE.UU. en Un Siglo
+- Revising U.S. Grand Strategy Toward China
+- Ríndete al Nuevo Imperio
+- Rusia Desbarata Golpe Sigiloso de los Estados Unidos
+- Rusia provee la Tecnología de Espionaje necesaria a EE.UU... ¡para que Espíe a la propia Rusia!
+- Rusia y China en Equilibrio - El G7 Desquiciado
+- Rusia y China Liderarán el Regreso a las Divisas Respaldadas por el Oro
+- Russia-China Deals - Another Nail in the Coffin for U.S. Dollar
+- Russia Preparing for Epic Split with Global Banking Cartel by Dumping U.S. Dollar for Gold
+- Russia Readies Back-up System for Potentially Explosive "Split with International Banking System"
+- Russia Shoots Down U.S. Stealth Coup
+- ¿Se Ha dado Cuenta Putin de que El Mundo Está en Sus Manos?
+- "Sensación de Miedo e Inseguridad aumenta" - La poco envidiable posición de Europa entre China y EE.UU.
+- Seven Key Events that are Going to Happen by the End of September
+- Several Examples that Show the United States has Become a Seriously Messed-Up Country
+- 'Shocking' 2016 Predictions - $100 Crude, Strong Ruble
+- Siete Eventos Clave que Van a Suceder dentro Finales de Septiembre
+- Siete Poderes y un Destino - Convivir con el Éxito de la Civilización China
+- Sobre la Invasión Inmigratoria en Europa
+- Social Transformation - The Truth Behind Capitalism Decoded
+- Some Signs that the Global Elite's Ship is Sinking
+- So What's Really Happening Now?
+- Switzerland's Struggle Against Fiscal Imperialism
+- Tambores de Guerra en Ucrania
+- Testing Theories of American Politics - Elites, Interest Groups, and Average Citizens
+- Texas Textbook Controversy Puts Moses in The Spotlight
+- The Bushes' Clan and The New World Order - Main File
+- The Choice Before Europe about a Conflict with Russia
+- The Dodd Report to the Reece Committee on Foundations - 1954
+- The Easiest Way to a Second Passport
+- The End of Hypocrisy - American Foreign Policy in the Age of Leaks
+- The Eugenicist's Playbook - Politicized Science is Making a Comeback in the 'Age of COVID-19'
+- The EU's 'Investment Deal' with Beijing punctures America's dream of a 'Transatlantic Alliance' against China
+- The Future of Passports and Citizenship by Investment
+- The European Union Was an AMERICAN Idea
+- The Evils of Big Pharma Exposed
+- The G20 Fractures - Tensions in Hamburg
+- The Global Economic Reset Has Begun
+- The Great American Adventure - Political History of Government and Law
+- The History of Using Children to Push for Agendas
+- The Horror of the Deep State's Plan Exposed - "Thinking is Hard"
+- The Influence of Ancient Politics on Modern Political Systems
+- The Lie Factory - CNN - is Collapsing, thank God...
+- The Modernized Slave Labor System - Also Known as the Prison Industrial Complex
+- The National Endowment for Democracy - A CIA Trojan Horse
+- The National Endowment for Democracy - Not 'National' and Not for 'Democracy'
+- The Neo-Imperialist Corporatist Order and the "Men Behind the Curtain"
+- The New Iron Curtain - "The Russian Menace"
+- The Omnipresent Surveillance State - Orwell's 1984 is No Longer Fiction
+- The Police - Our Enemies in Blue?
+- The Press Lies About Everything
+- The REAL Reason U.S. Targets Whistleblowers
+- There is an 800% Higher Probably Americans Will be Killed by Police Than by a Terrorist
+- The Road from Rome - The Fall of the Roman Empire wasn't a Tragedy for Civilization
+- The Russian Phoenix - Hope or Illusion?
+- These Countries are Quickly and Quietly Dumping the Dollar
+- The United States has an Epidemic of Processed Food ...And it's Killing Us
+- The United States Isn't a Country - It's a Corporation!
+- The U.S. Government is Officially Funding the Study of 'Geoengineering'
+- The World's Tiniest Countries and the Eccentrics Who Rule Them
+- TIA Lives On
+- TISA - An International "Trade in Services Agreement"?
+- Towards a Culture of World Peace
+- Transformación Social - Decodificada la Verdad Detrás del Capitalismo
+- 'Trattato per Investimenti' della UE con Pechino infrange sogno Americano del 'Patto Transatlantico' contro la Cina
+- Two New Bills quietly Slipping through Congress - Will give Big Pharma Unlimited Power and Zero Accoun...
+- Ukraine - A Geopolitical Choke Point
+- Ukraine - Unraveling the Planned Chaos
+- Ultraconservadores de EE.UU. Advierten que si Destituyen a Trump Estallará una Guerra Civil
+- ¿Una Negociación Caricaturesca? - Lo que No te han Contado del TLCAN
+- Un 'Contagio' Masivo Conducirá a una Catástrofe Financiera Mundial - ¿Empezará un Desesperado EE...
+- "USA in Grave Danger" - Former Canadian Acting PM Paul Hellyer exposes Cabal, calls for New Energy, ET...
+- U.S. Government Counterinsurgency Guide
+- U.S. Now Admits it is Funding "Occupy Central" in Hong Kong
+- ¿Ustedes Quieren Ser la Ramera del Tío Sam? - ¡Paguen el Precio!
+- Varios Ejemplos que Muestran que Estados Unidos se ha Convertido en Un País Seriamente Confuso
+- Venezuela Launches the 'Petro' - Oil and Gold Backed Cryptocurrency to Fight U.S. Financial Blockade
+- War and Petroleum Reserves
+- War or Peace? - World Entering Epochal Period of Geopolitical Change
+- War with China - Thinking Through the Unthinkable
+- Was Earth's 'Secret Occult Ruler' eliminated in U.S. led takedown of Global Deep State?
+- Washington Teme al Viento del Oriente - El Arte de La Guerra
+- "We Can't Go On" Fighting Russia - Junker Throws-In the Towel
+- What if Putin is Telling the Truth?
+- What the Global Status Quo Optimizes - Protecting Elites and the Clerisy Class that Serves Them
+- What the Internet Sales Tax in the U.S. is All About
+- When the Great Power Gets a Vote - The Effects of Great Power Electoral Interventions on Election Results
+- Why are Americans Paying to Be Searched, Spied On, Shot At and Robbed Blind by the Government?
+- Why Does the "War on Terror" Serve Western Policy?
+- Why Do We Love Violence? - The Tainted Glory of the Gladiator
+- Why isn't this Maps in the History Books?
+- Why the World Feels Like It's Going Crazy - The Dominos and the Fall
+- Why Voters Choose to Believe Lies - 2014 Mid-Term Elections
+- WikiLeaks Exposes Newly 'Selected' Brazilian President as Puppet for U.S. Intelligence
+- World Sees The U.S. as Bankrupt Politically and Financially
+- Year in Review - Our Top Ten Conspiracies of 2014
+- You Are Surrounded by Propaganda - "The Invisible Government"
+- You Want to Be Uncle Sam's Bitch? - Pay the Price!
+- ¿Y Si Putin Está Diciendo la Verdad?
+- America's Largest Creditor - Will China end U.S. Trade War with a "Debt Reset" by Dumping U.S. Treasury...?
+- America Will Lose the Trade War because that is what Globalists Want to Happen
+- Arabia Saudita NO renovó el Acuerdo de "Petrodólar" con Estados Unidos
+- Calentamiento Climático - El Enfrentamiento de Occidente contra el Mundo
+- China abandona los USD tras Nuevo Acuerdo con Brasil y establece Primer Comercio de GNL en Yuanes
+- China has Been Preparing for a Trade War for Over a Decade
+- ¿'Choque de Civilizaciones' o Crisis de Civilización?
+- ¿Cuál es el 'rejuego' entre Estados Unidos y Alemania?
+- De-dollarization in a Big Way - This Changes Everything
+- De-dollarizing the American Financial Empire
+- EE.UU. y Europa Lloran - No Aguantaron cuando China empezó a jugar el Juego del Libre Mercado
+- El legislador ruso Anatoly Aksakov vaticina el "Fin del Dólar" en un Máximo de 10 Años
+- El 'Nord Stream 2' ofrece a Alemania una Cita con el Destino
+- El "Trío Magnitsky" impulsa la Guerra contra Rusia - Insisten en Nuevas Sanciones "Aplastantes"
+- ¡Es Oficial! - El Banco Central de Rusia anuncia la vinculación del ¡Rublo al Oro!
+- Estados Unidos ha Perdido Todas las Batallas Económicas que ha Emprendido contra China
+- È Ufficiale! La Banca Centrale Russa annuncia il Rublo legato all'Oro!
+- Former White House Official Says U.S. already at War with Russia and China
+- Gli Intellettuali Occidentali impazziscono per la "Mostruosa Cina"
+- Gli USA fanno pressione sull'Italia per uscire dalla "Belt and Road" Cinese - Rimanere o No nella BRI?
+- Global Trade War U.S./E.U. Against BRICS
+- Goodbye G20 - Hello BRICS+
+- Guerra Rusia-Ucrania - La Verdad se Encuentra a 180 grados de Distancia
+- How to Destroy Russia - The Rand Corporation
+- Il Più Grande Creditore dell'America - Finirà la Cina la Guerra Commerciale Americana "Resettando il Debito"...
+- Imagine what Would Happen if China Decided to Impose Economic Sanctions on the USA?
+- India reanudará las Importaciones de Petróleo de Venezuela desafiando las 'Sanciones'
+- It's Official! - Russia Central Bank announces Ruble bound to Gold
+- La Bolsa de Moscú Suspende Oficialmente todas las Transacciones en Dólares y Euros
+- La "Bomba Financiera" de las Sanciones que EE.UU. preparó para Rusia tuvo un Efecto Contrario
+- La "Bomba Finanziaria" delle Sanzioni che gli Stati Uniti prepararono per la Russia ha avuto un Effetto Contrario
+- La Borsa di Mosca Sospende Ufficialmente tutte le Transazioni in Dollari e Euro
+- La Guerra Económica - "Bombardeo" contra Europa
+- La Inminente Guerra de Washington contra China
+- La Nueva Ruta de la Seda como 'Piedra de Tropiezo' en las Relaciones entre China y EE.UU.
+- Las Nuevas Sanciones Antirrusas provocan Discordia en la UE y EE.UU.
+- Las Principales Empresas Tecnológicas de EE.UU. comienzan a Cortar los Suministros Vitales de Huawei
+- Las Sanciones Unilaterales Violan los Acuerdos Internacionales
+- Líderes Europeos "Se Rebelan" Contra las Sanciones Antirrusas de EE.UU.
+- Los Intelectuales Occidentales se vuelven Locos por la "Monstruosa" China
+- Los intereses de EE.UU. y Elon Musk en Venezuela
+- "No Queremos Empezar la Guerra Comercial - Pero No tenemos Miedo de Hacerlo" - Dice China
+- Overextending and Unbalancing Russia - Assessing the Impact of Cost-Imposing Options - The Rand Corporation
+- Putin llamó a Liberarse de la "Dictadura del Modelo Financiero" cuyo objetivo es "Endeudar y Colonizar"
+- Putin Ordena Finalizar el Comercio en Dólares USA en Puertos Rusos
+- Putin Orders End to U.S. Dollar Trade at Russian Seaports
+- Putin Targets U.S. Monetary System - "Aims to Eliminate the U.S. Dollar and the Euro from Trade"
+- ¿Qué Significa el Levantamiento de las Sanciones contra Irán?
+- "Quien podría Sufrir Sanciones ahora es el propio Estados Unidos"
+- ¿Quién Sufrirá Más del "Impago Artificial" de Rusia?
+- Rusia Responde a Nuevas Sanciones de EE.UU. desechando el Dólar
+- Russia and China Declare All-Out War on U.S. Petrodollar - Prepare for Exclusive Trade in Gold
+- Russia Responds to New U.S. Sanctions by Dumping the Dollar
+- Sancionando a los Sancionadores - La Desdolarización y la Desamericanización son Ideas que han Madurado
+- Sanciones de Mayo 2018 de Estados Unidos contra Irán - CIJ Ordena Medidas Provisionales a Estados Unidos
+- "Sanctions" - Economic Aggression-Revisited
+- Sanzioni di Maggio 2018 degli Stati Uniti contro l'Iran - CIG Ordina Misure Preventive per gli Stati Uniti
+- Saudi Arabia declares Oil War on U.S. Fracking - Hits Railroads, Tank-Car Makers, Canada, Russia and...
+- Saudi Arabia ends 80-Year-Old PetroDollar U.S. Agreement - Joins China-Led Central Bank Digital Currency...
+- 'Scontro di Civiltà' o Crisi della Civiltà?
+- 'Se trata de un Acto de Terrorismo Internacional' - Putin sobre las Explosiones en el Nord Stream
+- Siga el Dinero - Cómo Rusia sorteará la Guerra Económica de Occidente
+- Tácticas Occidentales Engañosas para desprestigiar a China - Distraen a las Masas de los Conflictos Internos
+- The Deep State has used The NY Times to announce its withdrawal from 'Washington's Conflict with Russia'
+- The Secret History of the War in Ukraine - The untold story of America's hidden role in Ukrainian military op...
+- The U.S.' fury over the China-Europe Investment Deal shows how Rattled and Isolated they Are
+- Underneath the Trade War of Donald Trump and Xi Jinping
+- Un Tercio del Mundo está Sometido a las Sanciones de Estados Unidos
+- U.S.-China Relations in the Years Ahead - The 'Trade War' is a Sideshow
+- U.S. pressures Italy to Exit the Chinese "Belt and Road" - To Stay or Not to Stay in the BRI?
+- Venezuela Ditches the U.S. Dollar and Prices its Oil in Chinese Yuan
+- Venezuela Ditches U.S. Dollar - Will use Euros for International Trade
+- Venezuela is About to Ditch the Dollar in Major Blow to U.S. - Here's Why it Matters
+- Venta Masiva - Rusia, China y Arabia Saudí se Deshacen de los Bonos Estadounidenses
+- Why did Russia REALLY invade Ukraine?
+- Chi ha davvero Sabotato la Pace in Ucraina? - La Verità dell'ex Osservatore OSCE
+- Coups Inside NATO - A Disturbing History
+- El Conflicto Ucraniano es una Guerra por Delegación de EE.UU. y la OTAN - Rusia está dispuesta a Ganar...
+- ¿Es Real la Posibilidad de una Guerra Mundial?
+- "Europa no es aliado de EE.UU., sino su Lacayo" - Protestan en Italia contra Expansionismo de la OTAN
+- Grecia se Convierte en el Caballo de Troya de Rusia dentro de la OTAN
+- History of US-NATO Military Campaigns - 1991-2023
+- Imperial NATO - Before and After Brexit
+- Intel Agent Reveals how NATO Planned to Tear Russia Apart
+- Is Global War their Goal?
+- La Globalización de la OTAN como Proyecto de Contención Euroasiática
+- La Grecia Diventa il Cavallo di Troia della Russia all'Interno della NATO
+- La OTAN también Expande sus Ramas en América Latina
+- Lunatics in Washington Want NATO Article 5 Invoked for Total War
+- NATOstan Robots versus the Heavenly Horses of Multipolarity
+- ¿OTAN Global o Paz Global...?
+- "¿Será el Momento para EE.UU. de Salir de la OTAN?"
+- Setenta Años de Sometimiento de Italia a Estados Unidos y a la OTAN
+- Seven Actions that NATO Countries are taking which Indicate that 'Something Really Big' is coming
+- The USA and NATO oust Crisis-ridden EU
+- This War wasn't Just Provoked - It was Provoked Deliberately!
+- "Una Geopolítica de Bases Militares" - El enfoque de Estados Unidos para América Latina
+- Un "Muerto Viviente" en Busca de Sangre que deambula por Europa y que se llama OTAN
+- U.S. Foreign Policy in Shambles - NATO and the Middle East - How do You Wage War without Allies?
+- U.S.-NATO "Humanitarian Interventions" have Resulted in "Crimes against Humanity"
+Multimedia:
+- Ucrania y Occidente - Una Fábrica de Mentiras
+- 79% of Americans think 'The U.S. is Falling Apart'
+- El Derrumbe de Estados Unidos
+- Revolución de Color en Washington DC - ¿Golpe Anticonstitucional o Movimiento de Seguridad Democrática?
+- United States - 'Halfway to Secession' - Unity on Foreign Policy, Disunity on Domestic Policy
+- ¿Va EE.UU. camino de una Guerra Civil o de una Dictadura?
+- America Collapses into a "Pharma State" - Just like a "Narco State" but run by Prescription Drug Cartels...
+- Biden's was the First Fully Deep-State Presidency
+- Colapso del Imperio - La tecnología de Misiles Rusa deja Obsoleta a la Marina Estadounidense de un Billón...
+- Colapso Económico y Hegemonía del Dólar - ¿Cuándo Comenzó Todo?
+- Cómo Estados Unidos se hizo Vulnerable al Colapso
+- Cómo la "Escasez de Alimentos" y el Colapso Económico protegen el Status Quo
+- Cómo se Desarrollará el Próximo Colapso del Dólar Americano
+- Datos del FMI muestran que el Dominio del Dólar se Desvanece
+- El Colapso Planificado de EE.UU. y Europa
+- El Colapso que Viene - Un Largo Proceso Político, Cultural y Deterioro Social
+- Eleven Signs that the 'Slow-Motion Collapse' of the U.S. Economy is far more Advanced than most People think
+- Fall of Empires - London, Washington and Paris on Brink of Collapse
+- How North America made itself Vulnerable to Collapse
+- Il Collasso Pianificato di Stati Uniti e Europa
+- Is the American Empire on the Verge of Collapse? - Beware the Dogs of War...
+- Jo Biden Non è Incompetente - Sta facendo 'Esattamente ciò per cui è Stato Scelto' - Far Collassare gli USA
+- Joe Biden is Not Incompetent - He is doing 'Exactly what He was Hired to Do' - Collapse America...
+- Joe Biden No es Incompetente - Está haciendo 'Exactamente lo que fue Contratado para Hacer' - Colapsar EEUU
+- La Caduta degli Imperi - Londra, Washington e Parigi sono sull'Orlo del Collasso
+- La Caída de los Imperios - Londres, Washington y París están al Borde del Colapso
+- La Relación entre el Despliegue de la OTAN, la Guerra Económica, Goldman Sachs y el Próximo Colapso...
+- 'La Trastienda de Trump' - Estamos a las Puertas de un Colapso Económico Mundial y del Desmantelamiento...
+- Looming Economic Collapse Scenarios Facing the United States - Lessons from the Soviet Collapse
+- Nuestra Sociedad tiene los Mismos Síntomas que el Imperio Romano justo antes de su Caída - ¿Colapso...
+- Our Society has the Same Symptoms as the Roman Empire just Before the Fall - Is a Collapse Inevitable?
+- Porqué el Colapso de EE.UU. está sólo Comenzando - No está Terminando...
+- ¿Porqué los Estadounidenses están Perpetuamente Sorprendidos por su Propio Colapso?
+- 'Revolución de Color' en Casa - Estados Unidos se Autodestruye...
+- ¿Se ha convertido la Democracia en una forma de Superstición?
+- The Collapse of Western Democracy
+- The Coming Collapse - A Long Process of Political, Cultural and Social Decay
+- The End of Excesses - The Collapse of Everything
+- The Old World Order was Buried in China - Here's why It Matters
+- The U.S. and EU will Collapse Regardless of Economic 'Contagion'
+- Trump and the "Collapse of Capitalism" (COC) - Foibles, Fables and Failures, the Financial Press and its...
+- U.S. Debt Clock - External Link
+- Watching America Collapse - Existence is Running-Out for America
+- What brought the Decline of the Eastern Roman Empire - Can we Learn from it?
+- (Why) America is the 'Canary in the Coal Mine' of Global Collapse
+- Why are Americans Perpetually Surprised by their Own Collapse?
+- Why US-America's Collapse is Only Just Beginning - Not Ending...
+- Xi Jinping, Putin y el Colapso de EE.UU. como Imperio
+- "EE.UU. se irá a la Quiebra" - Musk dice qué los gastos de la USAID llevarían el país a la Bancarrota
+- El Imperio estadounidense frena la 'Revolución' de Trump contra USAID y NED
+- Evo Morales Expulsa a La USAID de Bolivia
+- Fourth Circuit temporarily allows DOGE to continue Dismantling USAID
+- Portavoce della Cancelleria Russa spiega come l'USAID costruiva una Falsa Realtà con Mezzi Indubbi
+- Trump/Musk se encaminan a Liquidar al sector del 'Deep State' perdedor en la Guerra de Ucrania
+- Trump's 'USAID Purge' has revealed US scheming in Kiev - But won't stop it...
+- Ucrania fue el Mayor Receptor de las Subvenciones de la USAID - Gobierno Biden
+- USAID financiaba 6200 Periodistas en 707 Medios de Comunicación y 279 ONGs Periodísticas - Wikileaks
+- USAID y Wall Street - Conflictos, Golpes y Conquista
+- 2016 - How Truth was Destroyed So You'd Buy the Government's Propaganda
+- 2016 - The Year Americans Found Out our Elections are Rigged
+- Actually 'Nobody' Won the 2016 Presidential Election - And it Was a Landslide...
+- Assange Statement on the U.S. 2016 Election
+- BREXIT Pioneer Destroys Hillary Clinton
+- Clinton Campaign "Salvage Program" - Technology that will Mimic an "Invading Extraterrestrial Force"
+- Congrats USA - Oxford Scientists Declare BOTH Trump and Clinton Likely Psychopathic
+- Could the 'Deep State' Be Sabotaging Hillary?
+- Cutting the Cords of Empire - The Spectacle of U.S. Elections
+- DNC Holding Emergency Meeting to Discuss Replacing Clinton as Presidential Nominee
+- El Caos Irrumpirá en EE.UU. en Menos de 100 Días - No Importa Quién Gane la Elección
+- El Colapso de la Confianza en Occidente
+- Elecciones en EE.UU. - ¿Al Borde de un Lío de Gigantescas Proporciones?
+- Empieza la Era Trump...
+- Estratega del Partido Demócrata llamó en TV a Asesinar a Julian Assange
+- Evidence DARPA-CIA Time Travel Pre-identified Trump as Future U.S. President
+- Hillary Clinton's Axis of Evil
+- Historical and Structural Reasons for Skepticism of CIA Claims - Remaining Agnostic on Claims of Russ...
+- How Google Could Rig the 2016 Election
+- ¿Impedirán que Trump Llegue a Ser Presidente?
+- In an Oligarchy, Voting is a Tool to Manufacture the Illusion of Consent
+- Julian Assange Releases Statement on the U.S. 2016 Election - Breaking
+- Julian Assange's Most Incendiary Interview - "Hillary Clinton is the Central Cog of the Establishment"
+- La Casa Blanca 'acusa' a Trump de Mantener Vínculos Financieros con Rusia y RT
+- La Incómoda Verdad sobre Goldman Sachs, Trump y los BRICS que No quieren que Veamos
+- Las Revelaciones de WikiLeaks que Más Comprometen a Hillary Clinton
+- Leaked Document Recommends False Flag Alien Invasion to save Clinton Campaign
+- Les Deplorables - America's 24/7 Circus Maximus
+- Most Millennials Despise Both Major Candidates 2016 and Both Parties - Poll
+- Most Young Americans say Parties Don't Represent Them - Poll
+- Mueren en "Extrañas Circunstancia" varias Personas Incomodas para Hillary Clinton... ¡Y Ella misma...
+- Muoiono in "Strane Circostanze" varie Persone Scomode per Hillary - E Lei Stessa può Essere la Prossima!
+- President Trump - The Anti-Globalist USA Champion or Just Another Con-Man Riding a Trojan Horse?
+- Presuntas Maniobras Militares en EE.UU. anticipan "Caos Civil" tras las Elecciones
+- Princeton Professor Shows How Easy it Is to Hack an Election in Just 7 Minutes - Outside Web Link
+- Putin Lashes Out at Obama - "Show Some Proof or Shut Up"
+- Putin podría Destruir a Hillary Clinton este Octubre (2016)
+- Putin potrebbe Distruggere Hillary Clinton questo Ottobre (2016)
+- QAnon Unmasks Britain as State Actor that Interfered in U.S. 2016 Presidential Election
+- Report on the Investigation into Russian Interference in the 2016 Presidential Election - The Mueller Report
+- Roaming Charges - When the Pterodactyls Came Home to Roost
+- Salvage Program - Executive Overview: Hillary Clinton Flash-Crash to 12% Favorable, Losing 19-77%...
+- Sobre el Futuro Inmediato en EE.UU. - Las Elecciones del Próximo Noviembre
+- Steve Pieczenik - U.S. Intelligence Waging Coup Against Corrupt Clintons
+- Stratega del Partito Democratico ha chiesto in TV di Assassinare Julian Assange
+- The Coup against Trump and his Military-Wall Street Defense
+- The Next Presidential 2016 Election Will Move the World Closer to War
+- These Blast Points on Hillary's Campaign... Only the Deep State is So Precise
+- The U.S. 2016 President Must Restore the Original 1789 Constitution - Also Protect the Rights of Children...
+- Trump Against the Machine - How Political Elites Failed
+- Trump and Brexit are Retaliation for Neoliberalism and Corruption
+- Trump Avanza hacia la Casa Blanca - Confirmado por el Colegio Electoral
+- Trump Contra la Maquinaria Política - Cómo las Elites Políticas Fracasaron
+- Trump Ganando por Dos Tercios en Encuestas REALES - Todo el Supuesto Apoyo a Hillary Es Fabricado...
+- Trump No Incluye a Rusia en la Lista de Prioridades de Defensa de EE.UU.
+- Trump nombra otro Escándalo más grande en la Historia de EE.UU. - El bulo de Rusia, Rusia, Rusia en 2016
+- Trump y el Brexit son Represalias contra el Neoliberalismo y la Corrupción
+- Tulsi Gabbard releases 'Overwhelming Evidence' of Obama coup plot against Trump in 2016 Presidential Elections
+- Una Increíble Rebelión en el "Estado Profundo" de EE.UU. a Punto de Acabar con Hillary Clinton
+- U.S. Democracy in Action - Report Shows 91% of Americans Didn't Want Clinton or Trump
+- U.S. Election Shocker - Is this How the Vote Will Be Rigged?
+- U.S. Foreign Policy and the Campaign to Destabilize the Trump Presidency
+- Vladimir Putin - Directamente de la Boca de la Verdad
+- Vladimir Putin Says the U.S. Elections are Rigged - It's Not a Democracy
+- Vladimir Putin - Straight from the Horse's Mouth
+- 'Voting is Rigged AND Used to Pacify the Public' - Says Three-Time U.S. Presidential Candidate Ron Paul
+- Where Europeans See Catastrophe in Trump's Victory, Asians See Chance for Change
+- Who is 'The Real' Hillary Clinton?
+- Who were the "Shadow Men"? - Conspiracy against Donald Trump
+- Why the 'Deep State' is Dumping Hillary
+- WikiLeaks List Exposes at Least 65 Corporate 'Presstitutes' who Colluded to Hide Clinton's Crimes
+- Putin e Trump - Una Fraterna Inimicizia
+- Putin y Trump - Una Fraternal Enemistad
+- The Hillary Clinton Takeover of the United States
+- A 'Biden Presidency' would be a Dream Scenario for our Corporate Overlords
+- ¡Abrid los Ojos! - Elección Presidencial Estadounidense 2020
+- Americans didn't Vote Against Trump - They Voted Against more 'Media Psychological Abuse'
+- Banana Follies - The Mother of All Color Revolutions
+- Con la Censura Unilaterale di un Presidente in Carica Big Tech ha Dimostrato che è più Potente di qualsiasi Gov.
+- Cuando Tu Voto No Importa...
+- Get ready for Four Years of 'Vomit-inducing Media' fawning as our 'brave' Journalists transform into PR agents...
+- Hay que Prepararse para el Caos sin importar Quién termine en la Casa Blanca
+- Hunter Biden's Web of Interests
+- Kamala Harris - Men and Women alike should be Fearful if she becomes President
+- La Guerra Civil se hace Inevitable en Estados Unidos
+- La Tecnocrazia avrebbe il Dominio su una "Presidenza Biden
+- L'Elezione Presidenziale 2020 degli Stati Uniti un "Criminale" contro un "Truffatore"
+- Senate Report on Hunter Biden - Findings raise 'Conflicts of Interest' Concerns
+- Technocracy would Dominate a 'Biden Presidency'
+- The Chaos "IS" The Plan...
+- The U.S. 2020 Presidential Election - A "Criminal" Versus a "Con Artist"
+- The U.S. Political System is the Last Thing holding the Country Together - The 2020 Election is about to Destroy It
+- Time Magazine posts Shocking Admission that Biden Election was Orchestrated by a 'Well-Funded...
+- Victoria Legal para Trump - Anulan Certificación Votos en Pensilvania, Georgia, Nevada - "Evidencias de Fraude"
+- Vuelve el Viejo Orden a Estados Unidos
+- Why AI 'Misinformation' algorithms and research are mostly Expensive Garbage
+- With Unilateral Censorship of a sitting US President, Big Tech has proven it's more Powerful than any Govern...
+- A Body Language Expert watched the 'Trump-Biden Debate' - Here's what He Noticed...
+- Atentado contra Trump - ¿Hubo Complicidad del Servicio Secreto del Gobierno de los EE.UU.?
+- Attempt to Assassinate ex-president Donald Trump - Pennsylvania July 2024
+- Biden vs. Trump has Profound Implications for the World Order
+- Cómo Empiezan las Guerras Civiles
+- Cronología de un Antes y un Después del Intento de Asesinato al ex-presidente Trump
+- De 'Bilderberg 2024' al G7 - El Globalismo y la OTAN definen su camino ante Rusia y el retorno de Trump a EEUU
+- De lo que se Salvó los EE.UU. - La Historia de Kamala Harris
+- Does Russia want Donald Trump to Win?
+- 'Eliminate Him' - A look at the Violent Rhetoric against Donald Trump
+- El Mega Año Electoral 2024 en el que la Mitad de la Población Mundial irá a las Urnas
+- Expediente Trump - ¿Salvador o parte del 'Estado Profundo'...?
+- Le Cose che la Maggior parte della Gente non sa su Donald Trump - Sorprendente Rivelazione!
+- ¿Qué le espera al Mundo si EE.UU. decide Retirarse de la OTAN? - "La Primera Víctima será Ucrania"
+- ¿Qué puede esperar América Latina de las elecciones 2024 en EE.UU.?
+- RFK Jr. - Another 'Former Associate' with Jeffrey Epstein Files to Run for U.S. President in 2024 - Addendums
+- RFK Jr. - Un altro "Ex Collaboratore" con Jeffrey Epstein si presenta per candidarsi come Presidente USA 2024
+- Trump and the Illusion of Reform
+- Trump e l'Illusione di Riforma
+- Un Cuarto de Siglo Descalabrado - Y la Sonrisa de Trump
+- Voting is Evil
+- What most People don't know about Donald J. Trump - Amazing Eye-Opener!
+- Against Our Better Judgment - The Hidden History of How the U.S. Was Used to Create Israel - by Alison Weir
+- America's "War on Terrorism" - by Michel Chossudovsky
+- Battlefield America - The War on the American People - by John H. Whitehead
+- Corruption in America - by Zephyr Teachout
+- Crossing the Rubicon - The Decline of the American Empire at the End of the Age of Oil - by M. Ruppert
+- Deterring Democracy - by Noam Chomsky
+- El Destino de los Imperios y la Búsqueda de la Supervivencia - por Jeff Bagot Glubb
+- Government Gangsters - by Kash Pramod Patel
+- La Historia Silenciada de Estados Unidos - por Oliver Stone y Peter Kuznick
+- La Trastienda de Trump - por Daniel Estulin
+- Leo Strauss and the Conservative Movement in America - A Critical Appraisal - by Paul E. Gottfried
+- Oblivion - America at the Brink - by T.E. Bearden
+- One Nation Under Blackmail - Vol. 1 and Vol. 2 - by Whitney Webb
+- Our Country, Then and Now - by Richard C. Cook
+- Pawns in the Game - by William Guy Carr
+- Rogue State - A Guide to the World's Only Superpower - by William Blum
+- Socialism Betrayed - Behind the Collapse of the Soviet Union - by Roger Keeran and Thomas Kenny
+- Super-Imperialism - The Economic Strategy of American Empire - by Michael Hudson
+- The Bill of Obligations - The Ten Habits of Good Citizens - by Richard N. Haass
+- The Clash of Civilizations and The Remaking of World Order - by Samuel Huntington
+- The Constitution of Liberty - by Friedrich Hayek
+- The Family - The Secret Fundamentalism at the Heart of American Power - by Jeff Sharlet
+- The Fate of Empires and Search for Survival - by Jeff Bagot Glubb
+- The Many Faces of Secrecy - by Amy Benjamin
+- The Next 100 Years - A Forecast for The 21st Century - by George Friedman
+- The Strategy of Denial - by Elbridge A. Colby
+- The Third Wave - by Alvin Toffler
+- The War on History - The Conspiracy to Rewrite America's Past - by Jarrett Stepman
+- Understanding the War Industry - by Christian Sorensen
+- WasteBook 2013 - by US Senator Tom Coburn
+- Weapons of Mass Migration - Forced Displacement, Coercion, and Foreign Policy - by Kelly Greenhill
+- Western Hostility to Russia - The hidden Background to War in Ukraine - by Terry M. Boardman
+- When Race Trumps Merit - by Heather Mac Donald
+- Abolishing Capitalism
+- America is NOT the Greatest Country in the World Anymore...
+- America's Unofficial Religion - The War on An Idea
+- Another War? - Russia, China and the American "Empire"
+- Casino Jack and The United States of Money
+- Dirty Wars
+- El Imperio Americano - Intervensionismo Internacional, Guerra Psicológica y la CIA
+- Escapados - La Crisis Oculta en la Frontera Sur de EE.UU.
+- Estados Unidos ya NO es el mejor País del Mundo...
+- Faces of Evil that Rule the World!
+- Four Horsemen
+- Il Mondo si sta Allontanando dal Dollaro USA
+- In the Shadow of Lizards - The Secrets of Power - David Icke 2004
+- Invisible Empire - A New World Order Defined
+- In Whose Interest? - Why The U.S. Went to War for Profit
+- Is the Agenda a New Civil War?
+- "It Can't Happen Here!" - Or Can It...?
+- Kissinger Message to WEF Meeting at Davos - 2022
+- "La Crisis Fronteriza es Deliberada" - Ex-jefe de la Patrulla Fronteriza de EE.UU., Rodney Scott
+- L'America ormai NON è più il Migliore Paese del Mondo...
+- Mujica 5.0
+- Nine Eleven IS the Litmus-Test
+- Political Risk - Casey Research on "Going Global"
+- Plutocracy - Political Repression in the U.S.A.
+- Putin Checkmates Obama on New World Order WWIII
+- Regímenes Mundiales desarrollan Armas de I.A. sin considerar los Riesgos para todos...
+- Roman Empire Rules Today
+- Russia and the Neocon March to World War 3 - Paul Craig Roberts
+- The Dangers of Idealism - How America Destabilized the Middle East
+- The Dumbest People Ever - The Zombification of the Planet
+- The Empire's Ship is Sinking
+- The Fog of War - The Nature of Modern Warfare
+- The Most Honest Three Minutes in Television History
+- The Rise of The Politics of Fear
+- The War on Democracy
+- Ukraine Bioweapons Funded by U.S.? - Russia's Accusation Explained
+- Ukraine, NATO provoked Russia in Donbas War - French Monitor...
+- USA de Verdad
+- War with China - Are we Closer than we Think?
+- What Is the Deep State?
+- World Moving Away from the U.S. Dollar
+- Asia - The Reemerge of a Giant - Main File
+- Capitalism is a Collapsing System - What's Next? - Main File
+- EndGame - Main File
+- Globalization and The European Union - Main File
+- NATO - Powerful and Necessary, or Costly and Obsolete? - Main File
+- Psychopaths and Psychopathy - A Ponerological "Branch" - Main File
+- Russia and The EU - Main File
+- The Khazars - Main File
+- The Protocols of The Learned Elders of Zion - Main File
+- The United Kingdom and Brexit - Main File
+Return to The New World Order

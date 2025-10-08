@@ -1,0 +1,26 @@
+# Periodistas se Ríen de la Vocera del Departamento de Estado cuando dijo 
+que EE.UU. No Apoyaba Golpes de Estado
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_americanempire60.htm
+
+17 Marzo 2015
+del Sitio Web Aporrea
+Jen Psaki Crédito: AFP
+Periodistas estadounidenses que cubren la Casa Blanca no pudieron contener la risa cuando la vocera del Departamento de Estado, Jennifer Psaki, afirmó con seriedad que su país,
+"no apoya ni promueve cambios de Gobierno a través de medios ilegales"... "Como política de larga data Estados Unidos no apoya transiciones por medios inconstitucionales. Las transiciones políticas deben ser democráticas, pacíficas y legales", aseguró la funcionaria al ser interrogada sobre el papel de EE.UU. en el frustrado golpe de Estado contra el presidente de Venezuela, Nicolás Maduro.
+La frialdad de Psaki al hacer tal afirmación sorprendió a los reporteros que se encontraban en la sala de prensa, quienes, de manera inusual en ese recinto, replicaron a la vocera, quien se percibió visiblemente acorralada dada la falsedad de su afirmación. El corresponsal de The Associated Press, Matt Lee, inmediatamente intervino y con una sonrisa irónica le preguntó a Psaki,
+"de cuán larga data" era esa "política de no promover golpes de Estado",
+...a lo que la funcionaria respondió que solo se refería a las acusaciones hechas por Maduro y no a episodios anteriores. Otro periodista intentó refrescarle la memoria de Psaki y le recordó que el cambio de poder ocurrido en Ucrania en 2014 fue inconstitucional y EE.UU. lo apoyó.
+Durante la rueda de prensa puede escucharse a otros periodistas murmurar entre sí mientras la vocera continúan negando lo que todos saben. Por otra parte, el historiador y escritor Miguel Tinker Salas comentó a Democracy Now (video abajo) que las afirmaciones de la portavoz del Departamento de Estado son sencillamente "ridículas".
+"Como historiador puedo decir que el registro dice lo contrario. Desde 1953 en Guatemala, hasta República Dominicana, Chile en 1973, el apoyo a las dictaduras militares en Argentina y Brasil, y si no queremos ir tan lejos podemos recordar que en 2002, en Venezuela, EE.UU. respaldó el golpe contra el democráticamente electo Hugo Chávez ( ) y nuevamente en Honduras en 2009 y en Paraguay con (Fernando) Lugo donde dijeron que una transición democrática cuando en realidad se trató de un cambio de poder inconstitucional", explicó.
+"Como historiador puedo decir que el registro dice lo contrario.
+Desde 1953 en Guatemala, hasta República Dominicana, Chile en 1973, el apoyo a las dictaduras militares en Argentina y Brasil, y si no queremos ir tan lejos podemos recordar que en 2002, en Venezuela, EE.UU. respaldó el golpe contra el democráticamente electo Hugo Chávez ( ) y nuevamente en Honduras en 2009 y en Paraguay con (Fernando) Lugo donde dijeron que una transición democrática cuando en realidad se trató de un cambio de poder inconstitucional", explicó.
+Después de que Venezuela acusara a Estados Unidos de planear otro golpe de Estado contra su gobierno, la portavoz del Departamento de Estado Jen Psaki rechazo dicha acusación calificándola de "absurda", diciendo: "Debido a una antigua política aún vigente, Estados Unidos no apoya transiciones políticas por medios no constitucionales". La respuesta de los periodistas puede que le sorprenda. Analizamos las últimas noticias sobre Venezuela junto a Miguel Tinker Salas, profesor del Pomona College y autor del libro "Venezuela: What Everyone Needs to Know" (Lo que todo el mundo debe saber sobre Venezuela), de próxima aparición.
+Después de que Venezuela acusara a Estados Unidos de planear otro golpe de Estado contra su gobierno, la portavoz del Departamento de Estado Jen Psaki rechazo dicha acusación calificándola de "absurda", diciendo:
+"Debido a una antigua política aún vigente, Estados Unidos no apoya transiciones políticas por medios no constitucionales".
+La respuesta de los periodistas puede que le sorprenda. Analizamos las últimas noticias sobre Venezuela junto a Miguel Tinker Salas, profesor del Pomona College y autor del libro "Venezuela: What Everyone Needs to Know" (Lo que todo el mundo debe saber sobre Venezuela), de próxima aparición.
+¿Cómo era el plan para derrocar a Nicolás Maduro? El pasado de 12 de febrero Nicolás Maduro, anunció que los cuerpos de seguridad venezolanos habían frustrado un complot para derrocarlo.
+Según el mandatario, el golpe de Estado sería ejecutado por algunos militares de la Fuerza Aérea, varios políticos opositores y estaba organizado y financiado por funcionarios de EE.UU.. Dos semanas después el mandatario decretó un sistema obligatorio de visas para todos los estadounidenses que viajen a Venezuela y ordenó reducir el número de funcionarios acreditados en la embajada de EE.UU. en Caracas. La respuesta de Washington no se hizo esperar...
+El pasado 9 de febrero Barack Obama firmó una 'orden' ejecutiva que califica la situación política en Venezuela como una "amenaza extraordinaria" a la seguridad nacional de EE.UU. e impone sanciones a siete funcionarios venezolanos acusados de violar los Derechos Humanos.
+Regresar a El "Imperio" Americano
+Regresar a America Latina y La Elite Global
