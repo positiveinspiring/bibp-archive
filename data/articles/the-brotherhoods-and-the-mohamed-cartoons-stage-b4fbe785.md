@@ -4,7 +4,7 @@
 
 Contents
 - Bilderbergers and The Denmark Cartoons
-- Illuminati Up to Its Dirty Tricks And Deception Campaign With Nerve Gas Scare & Outrageous Mohammad Cartoons
+- Illuminati Up to its Dirty Tricks and Deception Campaign with Nerve Gas Scare & Outrageous Mohammad Cartoons
 - The Cartoon Jihad - The Muslim Brotherhood's Project for Dominating the West
 - The Mohammed Cartoons - Recruiting Europe for Bush's War on Iran
 Additional Information

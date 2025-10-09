@@ -133,6 +133,7 @@ Español
 - 'Histeria' en EE.UU. y sus Satélites por Avance Geopolítico de Rusia y China
 - History is Being Made in the East this Week - While War is Being Made in the West...!
 - Hong Kong - Caos antes del Orden
+- Hot Mic picks up Putin and Xi discussing 'Organ Transplants and Immortality'
 - How a 'Top Secret SEAL Team 6 Mission' into North Korea fell apart
 Italiano
 - Il Cigno Arancione - Il Sorgere e la Caduta degli Imperi
@@ -276,6 +277,7 @@ Italiano
 - Xi è vicino a fare di Macao il Prossimo Centro di Potere della Finanza?
 - Xi Jinping - China y Alemania refuerzan su Confianza y su Cooperación
 - Xi Jinping, Putin y el Colapso de EE.UU. como Imperio
+- Xi says SCO bears Greater Responsibilities for Peace and Development
 - 1,300-Year-Old Fortress - Ruins on Siberian Lake Mystifies Experts
 - "1984" Has Come to China
 - 5000 Anni di Civiltà Cinese - 4 Segreti della Trasmissione Ininterrotta
@@ -330,6 +332,7 @@ Italiano
 - Gli Stati Uniti sono la Maggiore Causa della Instabilità Globale - Ma Pretendono di essere la Soluzione
 - Global Military Agenda - Increased US-NATO Military Presence in Southeast Asia - Completing Plans For...
 - Green is Gold - The Strategy and Actions to China's Ecological Civilization
+- Guerra ai Tempi Nostri? - Abbiamo bisogno degli 'Uomini in Camice Bianco'...
 - How a Viral Pandemic Benefits the Globalist Agenda
 - How the Rockefellers "Trumped" the World
 - How the WHO learnt to Love Traditional Chinese Medicine
@@ -406,6 +409,7 @@ Italiano
 - Underground Man-Made Longyou Grottoes remain an Ancient Unsolved Mystery
 - Un G7 sin China es solo un Grupo de Consulta con "Buenas Intenciones"
 - United Nations approves 'New Internet Convention' backed by Russia and China
+- U.S. State Department expands plans for Closing Embassies and Consulates
 - War in Our Time? - We need the 'Men in White Coats'...
 - Why Do We Love Violence? - The Tainted Glory of the Gladiator
 - Why the West Cannot Stomach Russians

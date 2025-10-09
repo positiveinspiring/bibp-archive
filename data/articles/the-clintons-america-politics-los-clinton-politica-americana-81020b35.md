@@ -1,0 +1,151 @@
+# The Clintons - America Politics / Los Clinton - Política Americana
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_clinton.htm
+
+- A Clinton Presidency - Humanity's Worst Nightmare - Hillary's "Rage for War"
+- All The President's Women - Hillary Clinton
+- Assange Statement on the U.S. 2016 Election
+- Audiencia del Congreso podría ser el Principio del Fin para Hillary Clinton
+- Bill and Hillary Clinton "Engage in Sex with Minors" - Says ex-US Department of State Official
+- Bill and Hillary Clinton's 13-City Tour Canceled Due To 'Poor Ticket Sales' - 2018
+- Bill Clinton and The Pedophile - The Sex Scandal that Could Destroy Hillary's Presidential Ambitions
+- Bill Clinton - from "...And The Truth Shall Set You Free"
+- Bill Clinton - de "...Y La Verdad Os Hará Libres"
+- Bill y Hillary Clinton "Participaron en Sexo con Menores" - dice ex-funcionario del Departamento de Estado
+- Breach of Duty - Hillary Clinton and Catastrophic Failure in Benghazi
+- Bride of Frankenfood's Hillary Clinton - Pushes GMO Agenda... Hires Monsanto Lobbyist... Takes Huge...
+- Bush vs. Clinton in 2016? - New World Order Dream Matchup Being Touted as 'Inevitable'
+- Clinton and al-Qaeda - The Propaganda Wars Continue
+- Clinton Allowed Stevens to Die in Benghazi to Keep Saudi Government Involvement in Syria Secret
+- Clinton Campaign "Salvage Program" - Technology that will Mimic an "Invading Extraterrestrial Force"
+- Clinton Global Initiative is Market for Favor Trading and Credibility Laundering
+- Clinton Sends Lackey to House Committee to Cover Her Involvement in Benghazi Attack
+- Congrats USA - Oxford Scientists Declare BOTH Trump and Clinton Likely Psychopathic
+- Congressional Hearing could be the 'Beginning of the End' for Hillary Clinton
+- Coronation of Malevolence - Hillary Clinton as President
+- Could the 'Deep State' Be Sabotaging Hillary?
+- Crooked Clintons Bombarded with Foreign Cash and Tax Scandals
+- Did the Bush-Obama Wars Cost Hillary Clinton the White House? - Battlefield Casualties and Ballot Box...
+- DNC Holding Emergency Meeting to Discuss Replacing Clinton as Presidential Nominee
+- Do the American People Want an "Extremely Careless" President? - FBI Director James Comey's...
+- Drugs For Guns Connection - Arkansas Governor Bill Clinton, President George Bush and CIA Involvement
+- El "Aparato Clinton" para Desacreditar a Donald Trump
+- El Sistema Quiere Imponer a Hillary en la Presidencia
+- Estudio Genealógico demuestra que Hillary Clinton y Donald Trump son Primos Lejanos - Descienden de...
+- FaceBook, la CIA y los Clinton
+- FaceBook, the CIA and the Clintons
+- FBI Director James Comey: Hillary Should Not Face Criminal Charges
+- GOP Targeting Clinton on Phone-Call Snooping
+- Hillary acusada de Vender Uranio a Rusia y Enriquecerse a Costa de Debilitar a EE.UU.
+- Hillary and Bill... Gates
+- Hillary and Bill - Their Rugged Journey from Paupers to One-Percenters in 365 Days
+- Hillary and Obama In Secret Bilderberg Rendezvous
+- Hillary Clinton Declares International Information War
+- Hillary Clinton Must Resign - Cites False Reports Regarding Syria "Massacre"
+- Hillary Clinton privately warned France that Wuhan P4 Lab may lead to 'Bioweapon Research' - Leaked Cable
+- Hillary Clinton's Axis of Evil
+- Hillary Clinton's Culture of Corruption may Doom Candidacy
+- Hillary Clinton's War Record - 100% for Genocide
+- Hillary Clinton - The Queen of Chaos and the Threat of World War III
+- Hillary Clinton Vaccine-Damaged?
+- Hillary Emails Reveal True Motive for Libya Intervention
+- Hillary IS the Candidate of the War Machine
+- Hillary's Bloody Legacy - Militarizing The State Department
+- Hillary's "Cowboy Diplomacy" - There Will Be Hell to Pay for NATO's Holy War
+- How the Clintons "Disappeared" a Film that Exposed their Role in U.S. Terror Attacks
+- It Turns out Hillary Clinton and Donald Trump are Distant Cousins
+- Judge Warns Hillary "Should Be Terrified" after Justice Grants Email-Staffer Immunity
+- Julian Assange Releases Statement on the U.S. 2016 Election - Breaking
+- Julian Assange's Most Incendiary Interview - "Hillary Clinton is the Central Cog of the Establishment"
+- Las Revelaciones de WikiLeaks que Más Comprometen a Hillary Clinton
+- Leaked Document Recommends False Flag Alien Invasion to save Clinton Campaign
+- Lisa Page Testifies that the Department of Justice ordered the FBI Not to Indict Hillary Clinton
+- List of 71 'Clinton Associates' who Died Mysteriously or Committed 'Suicide' before Testimony
+- Los Emails Explosivos de Hillary Clinton
+- Mueren en "Extrañas Circunstancia" varias Personas Incomodas para Hillary Clinton... ¡Y Ella misma...
+- Muoiono in "Strane Circostanze" varie Persone Scomode per Hillary - E Lei Stessa può Essere la Prossima!
+- Poll Exposes '2-Party' Dictatorship - 65% of Americans want a Candidate Who is NOT Clinton or Trump
+- Presidential Candidate Hillary Clinton Supports Monsanto
+- Putin podría Destruir a Hillary Clinton este Octubre (2016)
+- Putin potrebbe Distruggere Hillary Clinton questo Ottobre (2016)
+- Roaming Charges - When the Pterodactyls Came Home to Roost
+- Salvage Program - Executive Overview: Hillary Clinton Flash-Crash to 12% Favorable, Losing 19-77%...
+Español
+- Si no se Moderan/Censuran las Redes Sociales "Perderemos totalmente el Control" - Hillary Clinton
+- Steve Pieczenik - U.S. Intelligence Waging Coup Against Corrupt Clintons
+- The Benghazi Scandal is Obama's Watergate but Worse
+- The Benghazi Talking Points and How They Were Changed to Obscure The Truth
+- The Clinton Mystery - Jean Houston's Demon Guides - from "America's Subversion - The Enemy Within"
+- The Clinton Foundation - Hillary's Conflict of Interests - Beholden to Banks, Corporations, and Foreign...
+- The Clintons built a 'Global Trafficking Empire' through War Zones, Fake NGOs, and Epstein's Blackmail...
+- The Criminalization of U.S. Politics - Hillary Accused of Racketeering by the FBI - Will She be Dumped...
+- The Difference it Makes - 36 Reasons Hillary Clinton Should Never Be President
+- The FBI James Comey Saga - Hillary Bribed the FBI Official in Charge of the Email Investigation
+- The Hillary Clinton Dead Pool
+- The Hillary Clinton Files
+- The Next Presidential 2016 Election Will Move the World Closer to War
+- The Post-Obama Power Struggle Heats Up - Will He Be Replaced by Hillary Clinton, General Petraeus...
+- These Blast Points on Hillary's Campaign... Only the Deep State is So Precise
+- The Third Clinton Administration
+- Trump Foiled Soros' Master Plan TPP to Impose New World Order
+- Trump = Obama = Bush = Clinton on 4 Core Issues
+- Two Famous Bilderberger Participants - George Herbert Walker Bush and William Jefferson Clinton
+- Una Increíble Rebelión en el "Estado Profundo" de EE.UU. a Punto de Acabar con Hillary Clinton
+- Una Invasión Extraterrestre "Puede ser la Única Manera de Unir a Este Mundo cada vez Más Dividido"
+- Uno Studio Genealogico Dimostra che Hillary Clinton e Donald Trump sono Cugini alla Lontana
+- U.S. Senator From New York, Hillary Clinton - Cathy O'Brien Describes Her Sexual Assault Perpetrated...
+- 'War Criminal' - Protesters disrupt Hillary Clinton speech
+- We Searched Hillary's Emails and her Relationship with Rothschild/Rockefeller is Now on Full Display
+- Who is 'The Real' Hillary Clinton?
+- Who Runs America? The CFR and Private Bankers - Hillary Clinton Speaks to The Rockefeller Founded...
+- Why Not Being Friends with a War Criminal like Henry Kissinger Matters
+- Why the 'Deep State' is Dumping Hillary
+- WikiLeaks Exposes Hillary Clinton with Gigantic Release of Private Emails and Accuses Facebook for...
+- WikiLeaks List Exposes at Least 65 Corporate 'Presstitutes' who Colluded to Hide Clinton's Crimes
+- WikiLeaks Publishes 1000+ of Hillary Clintons Iraq War Emails - Read Them Here
+- 7 Revelaciones Impactantes de WikiLeaks
+- 7 Shocking WikiLeaks Revelations
+- After Me, the Jihad - Gaddafi's Unheeded Warning to the West
+- Bilderberg Ceremony - Soro's Wedding Reveals Clinton Global Initiative Cabal
+- CNN Pushes Effort to "Ban the Term 'Fake News'" - Blowback
+- El Supuesto Clinton y el Archivo KGB - Humanos Artificiales
+- ¿Estaban los Clinton y Ronald Reagan hablando de una Invasión Alienígena Real o Falsa?
+- Estratega del Partido Demócrata llamó en TV a Asesinar a Julian Assange
+- Google Is Not What It Seems - Assange
+- Lilith, Inanna and Hillary
+- Only A Terror Attack Can Save Obama - Top Clinton Official Says
+- Stratega del Partito Democratico ha chiesto in TV di Assassinare Julian Assange
+- The Alleged Clinton and The KGB File - Artificial Humans
+- The Clinton Scandals - External Link
+- The Conspiracy against Trump - The Deep State plot to Undermine the President
+- The Two Contending Visions of World Government - The Origin and Broader Context of Obama's "Trade"...
+- Trump Ganando por Dos Tercios en Encuestas REALES - Todo el Supuesto Apoyo a Hillary Es Fabricado...
+- Were the Clintons and Ronald Reagan talking about a Real or Fake Alien Invasion?
+- WikiLeaks - Hillary Clinton Email Archive - External Link
+- Queen of Chaos - by Diana Johnstone
+- The Difference it Makes - 36 Reasons Hillary Clinton Should Never Be President - by Brandon Turbeville
+- Blocking The Path to 9-11
+- BREXIT Pioneer Destroys Hillary Clinton
+- Clinton Cash
+- Dirty Secrets of The Bush's and The Clinton's
+- Hillary Clinton - A Career Criminal
+- Hillary Clinton - A Movie
+- Hillary Clinton - A Threat to All Humanity
+- Hillary Clinton - Remarks on American Leadership
+- Hillary's Worst Nightmare Just Came True Thanks to the Justice Department
+- Hillary! Uncensored - The Shocking Video Hillary Does NOT Want You To See! - Banned by the Media
+- How to Buy A Politician
+- Mena Connection - Clinton, Bush and The CIA Drug Smuggling
+- T-Files: The Last Card - The Political Agenda Behind Alien Disclosure
+- The Hillary Clinton Takeover of the United States
+- The Laughs of Hillary Clinton - Expressions of A Psychopath?
+- The New Clinton Chronicles
+- "We Created Al Qaeda" - The Protagonists of The "Global War on Terrorism" are The Terrorists - Said Hillary
+- Wikileaks' Cablegate - The Truth Is Out There - Hillary v. WikiLeaks
+- Psychopaths and Psychopathy - A Ponerological "Branch" - Main File
+- The Bushes' Clan and The New World Order - Main File
+- The Elite's Drug Management - Main File
+Return to American "Empire"
+Return to Temas / Main Files
+Return to Ponerology - The Science of Evil
+Return to Obama - A "New" Sociopolitical Era?

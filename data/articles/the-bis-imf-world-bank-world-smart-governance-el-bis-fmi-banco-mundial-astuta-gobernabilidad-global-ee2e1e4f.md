@@ -1,0 +1,154 @@
+# The BIS-IMF-World Bank - World "Smart" Governance / El BIS-FMI-Banco 
+Mundial - "Astuta" Gobernabilidad Global
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_bisimfwb.htm
+
+BIS - Bank for International Settlements / Banco de Pagos Internacionales
+- Bank for International Settlements - BIS
+- Bank for International Settlements (BIS) Chief talks 'Absolute Control' of Money
+- Bank for International Settlements (BIS) Forcing Central Banks to Liquidate
+- Bank for International Settlements Blasts Crypto-Currencies as Fatally Flawed as Money
+- Bank for International Settlements Declared 'Bastion of Global Technocracy'
+- Bank for International Settlements - How The Rothschilds Control and Rule The World
+- Bank for International Settlements on Big Banks
+- Bienvenido a la 'Nueva Economía'
+- BIS creates 'Innovation Hubs' to Plot the 'Future of Money'
+- BIS engages AI to Monitor all 'Global Bank Transactions'
+- BIS General Manager 'Outlines Vision' for Central Bank Digital Currencies
+- BIS proposes Hybrid Retail CBDC Model
+- BIS Quarterly Review March 2014 - International Banking and Financial Market Developments
+- BIS - The Most Powerful Bank in The World Announces The Crash
+- CBDCs - Welcome to Technocracy's Digital Prison
+- Central Bank of Central Banks Says "The World is Unable to Fight Next Global Crash"
+- Central Banks - Special Report Bloomberg - 2018
+- Central Banks to Back Off - Warning Comes from The Bank of International Settlements
+- Conozca el Grupo Secreto que Controla el Mundo y del que Nadie Habla - El BIS
+- El BIS, el Organismo Financiero Mas Poderoso del Mundo, Advierte de la Llegada de Otra Gran Crisis
+- El BIS - Instituciones Financieras Globales
+- Hello Project Icebreaker - Goodbye Financial Freedom...
+- Il BIS, l'Organismo Finanziario Più Potente del Mondo Avverte che Arriva un'Altra Grande Crisi
+- Meet the Secretive Group that Runs the World - The BIS
+- One Bank to Rule Them All - The Bank for International Settlements
+- Ruling The World of Money - BIS - The Bank for International Settlements
+- The Bank for International Settlements (BIS) is 'A Bastion of Global Technocracy' - Bloomberg
+- The BIS - The Bankers' Money-Launderer
+- The Dark Past of the 'Bank for International Settlements' - BIS
+- The Threat of Financial Transaction Control
+- Who Controls The Money? - An Unelected, Unaccountable Central Bank of The World Secretly Does
+- Worlds Most Prestigious Financial Agency - Called the "Central Banks' Central Bank" - Warns of...
+IMF - International Monetary Fund / Fondo Monetario Internacional
+- Argentina, el FMI y la Deuda que Nunca se Investigó
+- Collapse of Ukraine Government - Prime Minister Yatsenyuk Resigns amidst Pressures Exerted by the IMF
+Italiano
+- Come i Programmi dell'FMI fanno crescere la Corruzione
+Español
+- ¿Cómo se Explica la Nueva Crisis Económica Argentina que pone en Jaque al Gobierno de Macri?
+- Datos del FMI muestran que el Dominio del Dólar se Desvanece
+- Defending The International Monetary Fund (IMF) Financial Terrorism
+- Did the IMF Pay-Off the Ecuadorian Government to surrender Julian Assange to British Authorities?
+- Does the IMF Actually Want to Cause a Greek Debt Default?
+- El Congreso de EE.UU. da su Brazo a Torcer y Aprueba la Reforma de Cuotas del FMI
+- El FMI constata la debacle de Europa y EE.UU.
+- EU/IMF Revolt - Greece, Iceland and Latvia, May Lead the Way
+- Eurozone Crisis Has Increased IMF's Power
+- Evo Morales Destaca Logros Sociales tras Liberarse de Organismos Capitalistas
+- Fmr. IMF Chief Sent to Jail as Spain Prosecutes 65 Elite Bankers in Enormous Corruption Scandal
+- How the IMF Programs can Increase Corruption
+- Hungary Throws Out Monsanto and The IMF
+- Hungarian Prime Minister Uses Facebook Page to 'Unfriend' IMF, Rejects Alleged Loan Conditions
+- Hungary Becomes First European Nation to Ban Rothschild Banks - The IMF and the Rothschilds
+- Hungría Se Deshace de Monsanto y del FMI
+- Iceland Was Right, We Were Wrong - The IMF
+- IMF and WEF - From 'Great Lockdown' to 'Great Transformation' - The COVID Aftermath
+- IMF Blames Neoliberalism for Low Growth and Increased Inequality
+- IMF Bullies Argentina
+- IMF Calls For Huge New Round of Bank Bailouts
+- IMF Chief Lagarde to Stand Trial
+- IMF Issue Working Paper on Eliminating Cash
+- IMF Plan to Loot Ukraine Revealed
+- IMF seizes on Pandemic to 'Pave Way for Privatization' in 81 Countries
+- IMF's Epic Plan to Conjure Away Debt and Dethrone Bankers
+- In Stunning Reversal IMF Blames Globalization for Spreading Inequality - It Causes Market Crashes
+- Islandia Tenía Razón, Nosotros Estábamos Equivocados - El FMI
+- Las "Reformas" y el FMI - Llanamente Privatizaciones
+- ¿Le Pagó el FMI al Gobierno Ecuatoriano para Entregar a Julian Assange a las Autoridades Británicas?
+- Los Países que nos Hemos Librado del FMI estamos Mejor que Antes - Evo Morales
+- Los Países Ricos Hicieron que El FMI Recuperara Poder e Influencia - Gendarme Financiero
+- Meet the Real IMF - The International Monetary Fund
+- Mientras Rusia Crecerá más de lo previsto, la Economía de EE.UU. se Hunde - Lo dice el FMI
+- Pillaging the World - The History and Politics of the IMF
+- ¿Qué es el FMI y por qué lleva a sus Deudores a la Quiebra...?
+- Regime Change at The IMF - The Frame-Up of Dominique Strauss-Kahn?
+- Representante Griego Revela que Fondo Monetario Internacional ha Manipulado la Prensa sobre la Crisis...
+- Rescates Financieros del FMI en Argentina nunca permitieron Salir de las Crisis - Dice Historiador...
+- Saquear el Mundo - Historia y Política del Fondo Monetario Internacional FMI
+- The History and Politics of the IMF - With Ernst Wolff
+- The IMF Has Put Argentina on The Road to The Worst Punishment It Can Possibly Give
+- The International Monetary Fund
+- The Macroeconomics of De-Cashing - IMF Working Paper
+- Triggering Economic Disaster - The Insidious Role of the International Monetary Fund (IMF)
+- Tunisia and The IMF's Diktats - How Macro-Economic Policy Triggers Worldwide Poverty and ...
+- ¿Una Dolarización Innecesaria y un FMI Impopular? - La Experiencia y el Futuro del Dólar en Ecuador
+- U.S. Dollar 50% Devaluation and IMF Part of Global Central Bank?
+- When the IMF Meets - Here's What Happened at the Global Plutocracy's Pow Wow in Peru
+- Why the Globalists Engineered the Ukraine War
+- Wikileaks Reveals IMF Plan to "Cause a Credit Event in Greece and Destabilize Europe"
+World Bank - Banco Mundial
+- A Developing Evil - The Malignant Historical Force behind the Great Reset
+- Banco Mundial exportó Aparatos de Prueba de Diagnóstico de Covid-19 en los años 2017 y 2018
+- Banco Mundial y OMS - Su Relación con el Corona-Plan
+- Carbon Scam by United Nations and World Bank Behind "Genocidal" Land Grabs
+- Covid-19 Strategic Preparedness and Response Program - Proposed 25 Projects under Phase 1
+- Escándalo - El Banco Mundial exportó Aparatos de Prueba de diagnóstico de Covid-19 en los años 2017 y 2018
+- Global Banking - The World Bank - The August Review
+- Liste di Documenti della World Bank rivelano che 'Il Programma COVID-19' finirà a Marzo 2025
+- Millones de Latinoamericanos de Clase Media caen en la Pobreza - Covid-19
+- New World Bank Policies Imperil Environment and Land Defenders
+- The World Bank
+- The World Bank as a Political, Intellectual, and Financial Actor - It's First Half Century
+- World Bank and Multinational Corporations Seek to Privatize Water - Top 25 Censored Stories for 2001
+- World Bank Document lists 'COVID-19 Program' ending in March 2025 - Stunning Revelation
+- World Bank Nominee Tied to Monsanto Shareholder Bill Gates and Soros
+- World Bank Seeks Global Water Dominance by Privatization of Municipal Systems
+- World Bank Warns of Food Riots as Rising Food Prices push World Populations Toward Revolt
+- World Bank Whistleblower Karen Hudes Reveals How the Global Elite Rule the World
+- Are We About to See a "European Monetary Fund?"
+- A Stronger IMF and World Bank - A Threat To Peoples of Both the South and North
+- Bolivia's President Declares 'Total Independence' from World Bank and IMF
+- BRICS Announce $100 Billion Reserve to Bypass the FED and Developed World Central Banks
+- BRICS - A Window to the Light or the Latest Make-Believe Deception
+- BRICS Emerging Nations Launch New Development Bank
+- BRICS Nations Plan New Bank to Bypass World Bank and IMF
+- BRICS - ¿Una Ventana hacia la Luz o el Último Engaño de Hacer-Creer?
+- China abre Nueva Línea de Crédito a Irán de 10 Mil Millones... en Euros y Yuanes
+- Covid, el Cambio Climático y el Gran Reinicio - Una Tapadera y una "solución" para el Fallido Sistema Financiero
+- Das Zerstören von Nationen durch IMF und Weltbank aus geheimen Dokumenten des IMF-WB
+- Deudocracia y Catastroika - La Crisis (Global) Griega
+- Die Globalisierer die aus der Kälte kamen
+- Ex-Ejecutiva del Banco Mundial declara que Criaturas No Humanas Controlan el Mundo
+- Field Manual (FM) 3-05.130 - Army Special Operations Forces Unconventional Warfare
+- Grecia - La Lección que Todo el Mundo Debería Aprender
+- IMF and World Bank Destroying Countries - Secret Documents Taken Away from IMF-WB
+- Large Number of Countries Set to Sign on to China-Backed Investment Bank AIIB
+- Meet the Secretive Committees that Run the Global Economy
+- Naciones Emergentes BRICS Lanzan Nuevo Banco de Desarrollo
+- Saudi Arabia Invasion Set For Summer, BIS to Be Nuked, Chaos Continues
+- The Chicago Plan Revisited
+- The Federal Reserve Cartel - Eight Families own the USA BIS, IMF, World Bank
+- The Globalizer Who Came In From The Cold
+- The Gradual Rise and Rapid Decline of the Middle Class in Latin America and the Caribbean
+- The 'New Development Bank' - The BRICS
+- The Tequila Crisis - The Prelude to Europes Economic Storm
+- The Tower of Basel - Secretive Plans for The Issuing of A Global Currency
+- Western Looting of Ukraine has Begun
+- Why Does The SEC Protect Banks Dirty Secrets?
+- WikiLeaks Tweets Army Manual detailing how U.S. weaponized Banking Cartel to Take Down Nations
+- Young Italian Prime Minister Dares to Defy the Troika
+- Y tras Los BRICS Llega el N-11 - Otra Pieza Mas en el Gran Engaño
+- A History of Central Banking and the Enslavement of Mankind - by Stephen Mitford Goodson
+- Tower of Basel - The Shadowy History of the Secret Bank that Runs the World - by Adam Lebor
+- Deudocracia y Catastroika
+- War by Other Means - IMF and World Bank are Weapons of War - by John Pilger
+- The Global Elite - The Transnational Capitalist Class - Main File
+Return to Central Banks - CBDC
+Return to Temas / Main Files

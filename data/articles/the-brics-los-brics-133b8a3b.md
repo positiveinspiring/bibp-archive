@@ -1,0 +1,207 @@
+# The BRICS+ - Los BRICS+
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_brics.htm
+
+BRICS is the acronym for an association of five major emerging national economies:
+Brazil, Russia, India, China, and South Africa.
+The BRICS members are all developing or newly industrialized countries, but they are distinguished by their large, fast-growing economies and significant influence on regional and global affairs; all five are G-20 members.
+Source En economía internacional, se emplea la sigla BRICS para referirse conjuntamente a Brasil, Rusia, India, China y Sudáfrica, que se unió al grupo en 2011. Fuente
+- A BRICS Development Bank - A Dream Coming True?
+- Adiós G20... ¡Hola BRICS+...!
+- Agitazione 'Della Rana' - Dal Dominio Unipolare del Dollaro al (Con)dominio Multipolare di Valute Estere
+- Alberto Fernández solicita a Xi Jinping la adhesión formal de Argentina al BRICS
+- América Latina tendrá un Papel Protagónico en la Política Mundial - Putin
+- A Multipolar World is Emerging
+- Analista sobre la Cumbre de los BRICS - Es un "Parteaguas en la Historia Geopolítica"
+- Argentina y otros Cinco Países se Incorporan a los BRICS
+- Arrivederci G20 - Benvenuti BRICS+
+- As Fiat Money Fails Technocrats and BRICS Nations Posture for World Government
+- Bolivia se Acerca a su anhelado lugar en los BRICS de la mano de Rusia
+- Brazil Reduced to Junk as BRICS Facade Crumbles
+- BRICS and The Bankers
+- BRICS and the Fiction of "De-Dollarization"
+- BRICS and The Mission of Reconfiguring The World
+- BRICS Announce $100 Billion Reserve to Bypass the FED and Developed World Central Banks
+- BRICS - A Window to the Light or the Latest Make-Believe Deception
+- BRICS Bank working at Full Speed on 'Supporting Economic Recovery' of Member States amid Covid Crisis
+- BRICS Countries to Set Up their Own IMF
+- BRICS Emerging Nations launch New Development Bank
+- BRICS Expansion was most important Foreign-Policy Event of 2023 - What will match it in 2024?
+- BRICS in the Wall of Global Greed
+- BRICS Move to Replace Dollar With "Super-Sovereign" Global Currency
+- BRICS Multipolar World Order - Leading Role of Emerging Economies and Western Debt
+- BRICS Nations Plan New Bank to Bypass World Bank and IMF
+- BRICS Nations working on 'Fundamentally New Currency' - Russian official
+- BRICS nel Muro dell'Avidità Globale
+- BRICS on the Move to Replace the West's 'Law of The Jungle'
+- BRICS - Potential and Future in an Emerging New World Economy
+- BRICS prepares World Banking Revolution
+- BRICS set to Surpass G7 in Economic Growth
+- BRICS Set Up Bank to Counter Western Hold on Global Finances
+- BRICS - The Coming Challenge to U.S. Economic Dominance
+- BRICS - Todo lo Que Necesita Saber
+- BRICS Trample U.S. in South America
+- BRICS - ¿Una Ventana hacia la Luz o el Último Engaño de Hacer-Creer?
+- BRICS and Smart Cities - Lessons from China's Model for the Global South
+- China hopes to roll out its 'Smart City Model' to BRICS Nations
+- China Planea Convertirse en un Gigante de los Transgénicos
+- China Plans to Break Petrodollar Stranglehold
+- China Promueve el BRICS Plus
+- Declaración de Sanya - Reunión de Líderes BRICS
+Español
+- Discurso de Lavrov en la ONU - Una "Rotunda Defensa del Nuevo Orden Multipolar"
+- Dreaming With BRICS - The Path to 2050
+- Ebullición de 'La Rana' - Del Dominio Unipolar del Dólar al (Con)dominio Multipolar de Divisas
+- È il BRICS una Via per Liberarsi del Ricatto dell'Occidente?
+- El BRICS se prepara para Avanzar al Siguiente Nivel
+- El BRICS y la Misión de Reconfigurar el Mundo
+- El Congreso de EE.UU. da su Brazo a Torcer y Aprueba la Reforma de Cuotas del FMI
+- El Dólar es una Herramienta para Castigar a los Países del Tercer Mundo
+- El Grupo BRICS Pisotea a EE.UU. en América del Sur
+- El Nuevo Sistema Financiero Internacional propuesto por BRICS
+- El Sistema Bancario Chino ha entrado en Caída Libre
+- El Triunfo de Lula en Brasil supone la Esperanza de Argentina para entrar en los BRICS
+- ¿Es el BRICS una Salida para Librarse del Chantaje de Occidente?
+- Este País del BRICS va camino de ser la Tercera Economía del Mundo
+- Europa Addio - Perché l'Italia deve andare verso i BRICS
+- First Step towards a 'Common Future of Sovereign Multipolarity'? - BRICS 2024 Summit
+- G-20 and BRICS Great Schism
+- Germany Secretly Planning to Join BRICS - Analyst
+- Global Trade War U.S./E.U. Against BRICS
+- Goodbye G20 - Hello BRICS+
+- Here's why the Signs of a New World Order are becoming Increasingly Obvious
+- How "BRICS Plus" clashes with the U.S. Economic War on Iran
+- I BRICS Soppesano il loro Scioglimento nel Nuovo Ordine Mondiale
+- "Il Futuro è nei BRICS, non in un'Europa Morente..."
+- Incorporación de Nuevos Miembros es el Objetivo de los BRICS+ en 2024
+- India is On the Rise - But it already Leads the World in some Sectors
+- I Piani della Cina per spezzare la Forza del Petroldollaro
+- Is a Peaceful Accommodation between BRICS and the West possible? - by A. Crooke
+- "La Era de la Revancha" - Rusia, China y la India encabezan un Cambio del Orden Mundial
+- La Germania sta Pianificando Segretamente di Unirsi ai BRICS?
+- La Incómoda Verdad sobre Goldman Sachs, Trump y los BRICS que No quieren que Veamos
+- La 'OTRA' Conferencia Globalista
+- La Participación de los Países del Grupo BRICS en la Economía Global aumenta al 35% en 2023
+- Las Diez Etapas Que Viviría El Mundo con La Introducción de Una Divisa BRICS
+- Las propuestas de Putin en la Cumbre de los BRICS - Inversiones, IA, Bolsa Conjunta
+- La Unión al BRICS de Argentina y Otros Países fortalecerá la Organización - Dice el Kremlin
+- Le Dieci Tappe Che Vivrebbe Il Mondo con lIntroduzione di Una moneta BRIC
+- Londres, BRIC y "El Proyecto Banco Santander" - La Destrucción del Dólar
+- Los BRICS+ y Confucio
+- Los BRICS Contraatacan - Los 'viejos trucos' de Trump chocan con la Nueva Realidad
+- Los BRICS desempeñarán un Papel cada vez Mas Importante en los Asuntos Mundiales - Serguéi Lavrov
+- Los BRICS discuten la Creación de un Sistema Alternativo de Comercio del Oro
+- Los BRICS - La Apuesta Geopolítica de Colombia ante una Región en Crisis
+- Los BRICS plantan cara a la Guerra Financiera de EE.UU.
+- Los BRICS preparados para seguir trabajando en Asuntos Clave de Cooperación Estratégica
+- Los BRICS sopesan su Disolución en el Nuevo Orden Mundial
+- Los BRICS tendrán su Propia Criptomoneda - Será un "Cambio de Paradigma" en medio de la Desdolarización
+- Los BRICS y la Estructura de un Mundo Heptapolar - Contra la Unipolaridad Anglosajona
+- Los BRICS y la Mentira de la "Des-Dolarización" - Nada es Como Parece
+- Los Países BRICS muestran sus Heridas Internas
+- Lula y el BRICS - El veto a Venezuela y las Contradicciones de un Brasil dividido
+- Lula y los BRICS - La Fórmula que podría Detonar la Industria del Litio en América Latina
+- Major Geopolitical Changes Now Underway
+- Más de una Decena de Países muestran Interés en Unirse al grupo BRICS
+- Modi en Moscú y Orban en Pekín - Se Dinamiza el Mundo Multipolar...
+- Naciones BRICS discuten Criptomoneda Compartida para Romper con USD y SWIFT
+- Naciones Emergentes BRICS Lanzan Nuevo Banco de Desarrollo
+- NATOstan Robots versus the Heavenly Horses of Multipolarity
+- Nuevo Banco de Desarrollo impulsa Crecimiento Económico de los BRICS+
+- ¿Planea Alemania Unirse Secretamente a Los BRICS?
+- ¿Podría el Grupo de los BRICS formalizar una Alianza Militar?
+- ¿Por qué Argentina puede ser la Principal Candidata para unirse al Grupo BRICS?
+- ¿Que hará la FED para combatir los Efectos de la Desdolarización de los BRICS?
+- Russia and China Declare All-Out War on U.S. Petrodollar - Prepare for Exclusive Trade in Gold
+- Russia to launch 'Independent Internet' for BRICS Nations - Report
+- Sanya Declaration - BRICS Leaders Meeting
+- Se Dinamiza el Mundo Multipolar - Modi en Moscú y Orban en Pekín...
+- The BRICS 'Has Assumed Responsibility for the Future of the World'
+- The BRICS "Independent Internet" Cable - In Defiance of the "US-Centric Internet"
+- The BRICS Wealth Report - Challenging the Global Economic Order
+- The CIA is running Global Coups and Assassinations to try to Stop BRICS
+- The Decline of the BRICS is Proof of America's Resilience in a Multipolar World
+- The Global Majority Speaks - A Billion more People just Joined the BRICS...!
+- The 'New Development Bank' - The BRICS
+- The World needs fundamentally a 'New Development Model' - Putin
+- Tratan de Frenar a los Países del BRICS con Influencia Informativa - Declara Rusia
+- Treaty for the Establishment of a BRICS Contingent Reserve Arrangement - Fortaleza, 15 July 2014
+- Türkiye applies to join BRICS - Bloomberg
+- ¿Una U.E. en los BRICS?
+- Un país del BRICS camino a ser la Cuarta Economía Mundial
+- Uruguay - El Primer Paso del Banco de los BRICS en Sudamérica después de Brasil
+- Uruguay - Il Primo Passo della Banca BRICS in Sud America dopo il Brasile
+- U.S. Dollar faces New Challenges amid BRICS push for Dedollarization
+- "Venezuela tiene una Capacidad Energética que le daría una fuerza importantísima a los BRICS"
+- What Will Happen to Global Economy if BRICS Announce Launch of New Currency - Bricso?
+- Why is BRICS+ suddenly running "Everything"...?
+- Would you like to Know what BRICS just Declared in Kazan 2024 Summit?
+- ¿Yihad Global Contra los BRICS?
+- America Latina y La Elite Global - Main File
+- Beijing Plots to Surpass U.S. in Coming Decades - China's Secret Strategy Exposed
+- China, Rusia, India, el Sur - La Era de la Revancha
+- China se Frota las Manos con la Muerte del TPP
+- China Wants to Have a Reserve Currency
+- China y Rusia, junto con los BRICS, llevarán a EE.UU. a la Quiebra
+- Comenzó el Golpe Institucional contra Dilma y Lula
+- Could Trump end up Triggering the Globalist "Great Reset"?
+- ¿EE.UU. perdió India? - "Cisne Negro" del Nuevo Orden Mundial que aceleró el grupo de Shangai
+- El Caballo de Troya de Iberoamérica - Anglo-Venecianos Detrás de Santander
+- El Declive del Imperio Americano
+- El Fin del Capitalismo Ha Comenzado
+- El legislador ruso Anatoly Aksakov vaticina el "Fin del Dólar" en un Máximo de 10 Años
+- El Plan Marshall Chino en América del Sur y Central
+- El Sur Global crea un Nuevo Sistema de Pago que cambia las Reglas del Juego
+- Explosiones de Tianjin - Un Ejemplo del Nuevo Tipo de Guerra
+- Figlio di un Generale Cinese di Alto Livello rivela Affari inquietanti sulla Cina
+- Globalization is Losing its Lustre - India's Modi tells Davos Summit
+- Government Banking - New Perspectives on Sustainable Development and Social Inclusion from...
+- Grecia, China... ¿Estamos al Inicio de un Colapso Financiero?
+- Hijo de General Chino de Alto Nivel revela Asuntos Inquietantes sobre China
+- Incontriamo i Russi...!
+- ¡Increíble! La Bolsa China se Recupera... a Punta de Pistola
+- I Rapporti Russo-Iraniani si Rafforzano con le Sanzioni Internazionali
+- La Era de la Hegemonía Occidental ha Terminado - La Multipolaridad ya 'No es Teoría'...
+- La Impudicia de la Indulgencia
+- La Organización de Cooperación de Shanghái Encabeza la Gran Transformación de Eurasia
+- Large Number of Countries Set to Sign on to China-Backed Investment Bank AIIB
+- Latin America and The Global Elite - Main File
+- La UE Apuesta a que el Conflicto en Ucrania "No Tenga Solución en el Corto Plazo"
+- L'Indecenza dell'Indulgenza
+- Lo Que se Sabe de la Misteriosa Base que China está Construyendo en la Patagonia Argentina
+- Masters of Metal - China, the Rothschild Fix, and the "New World Currency
+- Meet the Russians...!
+- Miles de Manifestantes Tomaron Calles de Brasil para Decir: ¡No Habrá golpe!
+- Recrudece la Guerra Encubierta entre China, EE.UU. y sus Aliados
+- Revelan un Antiguo Plan Secreto de China para Superar a EE.UU. en Un Siglo
+- Rusia, China y Arabia Saudita ponen en Jaque a la Hegemonía del Dólar
+- Russia and China Build Up a New Economic Geography
+- Russia, Cina e Arabia Saudita mettono a Repentaglio l'Egemonia del Dollaro
+- Russian-Iranian Relations Strengthen Amidst International Sanctions
+- ¿Sobrevivirá la Dominación de Washington sobre la ONU?
+- Strengthening Multilateralism for Just Global Development and Security - XVI BRICS Summit - Kazan Declaration
+- Summarizing the "Black Monday" Carnage So Far
+- The End of Capitalism has Begun
+- The Financial Crisis - Impact on BRIC and Policy Response
+- The India Way - Strategies for an Uncertain World - by S. Jaishankar
+- Trump potrebbe finire per Innescare il "Grande Reset" Globalista?
+- Un Tercio del Mundo está Sometido a las Sanciones de Estados Unidos
+- USA uses TPP-like Trade-Court to Kill Massive Indian Solar Project
+- U.S. Warns Allies Not to Join China-led Development Bank
+- What Does the Future Hold for Brazil's Embattled Workers' Party?
+- Where Europeans See Catastrophe in Trump's Victory, Asians See Chance for Change
+- Y tras Los BRICS Llega el N-11 - Otra Pieza Mas en el Gran Engaño
+- BRICS - Albores de una Nueva Economía
+- BRICS - Alternativa Confirmada - Río de Janeiro 2025
+- BRICS - A 'New World Order'?
+- China and The New World Order
+- Is the New BRICS Bank a Challenge to U.S. Global Financial Power?
+- Latinoamérica - Cuestión de Soberanía
+- ¿Que es el BRICS Pay?
+- The BRICSs Dream
+- 'West Scared of BRICS as It Has no Control Over It' - Ex-Indian Foreign Secretary
+- Globalization - The Octopus of The New World Order - Main File
+- Global Upraising - Main File
+- The Global 2008 Big Crash - The Collapse of World's Financial System - Main File
+Return to Globalization and The European Union
+Return to Temas / Main Files
