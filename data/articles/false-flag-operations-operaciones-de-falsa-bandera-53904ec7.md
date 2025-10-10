@@ -1,0 +1,197 @@
+# False Flag Operations - Operaciones de Falsa Bandera
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_falseflag.htm
+
+False flag operations are covert operations designed to deceive the public in such a way that the operations appear as though they are being carried out by other entities. Wikipedia Las Operaciones de Bandera Falsa son operaciones encubiertas conducidas por gobiernos, corporaciones y otras organizaciones, diseñadas para aparecer como si fueran llevadas a cabo por otras entidades. Wikipedia
+- A Brief History of False Flag Terror
+- Anatomy of False-Flag Events
+- Banderas Falsas y el Amanecer del Bioterrorismo
+- Boston Bombings - Detonator to Mobilize The Entire U.S. Security Apparatus - It May Change The World for...
+- Calm Down... You are Much More Likely to Be Killed by Boring, Mundane Things than Terrorism
+- Charlie Hebdo was Unsuccessful SevenGate False Flag to Start WWIII - Next Steps
+- CIA-MI6 Involvement In Mumbai Attack - Terrorism and The Illuminati
+- Cómo Funcionan las Operaciones Encubiertas
+- Cómo son Llevadas a Cabo hoy en día las Operaciones de Falsa Bandera
+- Cristina Fernández - Objeto de un Ataque Israelí bajo Falsa Bandera
+- Cuando las Banderas Falsas se vuelven Virales
+- Cuando las Banderas Falsas se vuelven Virtuales
+- Declassified Files Reveal Gov't Plot to Carry Out Soviet False Flag Attacks in U.S. to Start War
+- Dos Técnicas de Manipulación de Masas que No Debes Olvidar
+- Ebola, Swine Flu, Zika, SARS - The Anatomy of a False Flag Disease
+Español
+- El 'Ataque Químico' en Siria fue una Falsa Bandera y Habrá Más - Dice Putin
+- El Coronavirus y el 'Factor Miedo'... - Main File
+- El Engaño del Zika - Las 5 Cosas que Pasarán a Continuación
+- El Mundo está bajo un Hechizo - Bandera Falsa: una Arma de Manipulación Masiva
+- ET Council - War With Grey-Draco Reptilian ETs is Won - No False Flag ET Invasion
+- 'ET' False Flag Operation to Begin in August 2007
+- "Every Single Terrorist Attack in U.S. was a False Flag Attack" - Says U.S. Intelligence Officer
+- Evidence Points to BP Oil Spill False Flag
+- Extraterrestrial False Flag Operation - Main File
+- False Flag Attacks Part of Global Elites Plan for Tyrannical Police State
+- False Flag - Boston Marathon Bombing is Staged Terror Attack
+- False Flag Event in Syria - The Third Force and Exopolitics
+- False Flagging the World towards War - The CIA Weaponizes Hollywood
+Italiano
+- False Flag in Arrivo? - "Noi, il Popolo, ci Rifiutiamo di essere Ingannati di Nuovo"
+- False Flag Incoming? - "We the People Refuse to be Deceived Again"
+- False Flag Operations
+- False Flag Operations, 9-11 and The Exopolitical Perspective
+- False Flag Terror - A Historical Overview
+- False Flag Terror and Conspiracies of Silence
+- Forty Two Admitted False Flag Attacks - Governments from Around the World Admit They Do It
+- Gladio B, Paris Terror and ISIS Fakery Admitted - Vindicated
+- Global Fear Decreasing as False Flags and Crisis Actors Exposed
+- Global Terror - The British Connection
+- Governments ADMIT that They Carry Out False Flag Terror
+- Hoisting the False Flag - Casus Belli, a Justification for War
+- How False Flag Operations are Carried Out Today
+- How False Flag Terrorism and Religion are Being Used as a Means for Control
+- How The Boston Bombing is Already Being Exploited to Introduce Tyranny
+- How to Stage a Fake Epidemic - And Brainwash Billions of People
+- Israeli False Flag Setting The Stage for Bombing at 2012 Olympic Games
+- Israeli Security and False Flag Terror - A Remarkable Love Story
+- Issando le False Bandiere - Casus Belli, una Giustificazione per la Guerra
+- Is the Gaza-Israel Fighting "A False Flag"?
+- It Was a NATO Mortar that Killed 5 Turkish Civilians Last Week - REPORT
+- Japan Not Hit by 9.0 Quake? - False Flag Nuclear Weaponry Actually Destroyed Fukushima, Claims Report
+- La CIA Utiliza a Hollywood para un Ataque de Falsa Bandera
+- La Guerra Gaza-Israele è "Una Falsa Bandiera?"
+- La Historia de 'Usar Niñas para Promover Agendas Políticas'
+- L'Attacco Chimico in Siria è Stata una Copertura Fuorviante e ce ne Saranno di Più - Afferma Putin
+- Los Eventos del 9-11 - Main File
+- Los Países de Todo el Mundo Admiten que Usan el "Terrorismo de Bandera Falsa"
+- Malaysian Airlines MH17 - Who Stands to Gain?
+- Mass Shooting - Orlando False Flag?
+- Mega False Flag Looms - The Surreal Appeal of The Unreal
+- Nine 'Simulations, Drills and Laws' that Planned and Prepared for the Coronavirus
+- Norway Terror Attacks a False Flag
+- Operaciones Extraterrestres de Bandera Falsa - Main File
+- Pearl Harbor False Flag 75th Anniversary - Time to Admit the Deception
+- Perfect Storm Conditions Now in Place for Big Government to Allow (or Even Stage) Terrorism Attacks in...
+- Primeros Elementos Sospechosos de la Matanza de Orlando - ¿Otra Operación de Bandera Falsa?
+- Profile of a False Flag
+- Psychological Warfare and The "False Flag" Meme
+- QAnon on How Ending Iran Peace Deal thwarts Deep State Plans for Nuclear False Flag Attack
+- QAnon sobre cómo Finalizando el Acuerdo de Paz con Irán se frustran los Planes del Estado Profundo de...
+- ¿Que se Esconde tras la Creciente 'Preocupación' por los Asteroides?
+- Selling Illusions and the Dark Side of Politics
+- Spy Agency Launched False Flag Attacks and Used Honey Traps - Snowden
+- State-Sponsored Terror in The Western World
+- The 9-11 Events - Main File
+- The Boston Bombing Web of Lies
+- The Coronavirus and the 'Fear Factor'... - Main File
+- The History of Using Children to Push for Agendas
+- The Obama False Flag Attack That Would Suspend 2012 Elections
+- The Obama Regimes Fabricated "Terror Conspiracy" in Defense of The Police State
+- The Scam of The Zika Virus
+- Una Breve Historia de Terrorismo de Bandera Falsa
+- U.S. Intel Director Prepares Public for False Flag Event - Desperate for War, U.S. Prepares to Blame Iran...
+- "U.S. is Reviving Terror Scare with ISIS to Promote the Terror War Industry" - Says FBI Whistleblower
+- U.S. Naval False Flags - A Brief History
+- Vendiendo Ilusiones y el Lado Oscuro de la Política
+- Virus Zika - ¿Otra Estafa Gigantesca?
+- Will a Missing Nuke be Used in a Simulated Terrorist Attack? - Dick Cheney & Vigilant Shield
+- ...Y 'Dios' creó a Hamas en el Séptimo Día
+- Zika - The CDC is the Medical CIA
+Additional Information
+- About Carol Rosin and The Late Werner Von Braun - Main File
+- Alcune Teorie sulle Cospirazioni che Sono Diventate Realtà
+- Algunas Teorías Conspirativas que se Han Hecho Realidad
+- Amenaza de Asteroide Justo a Tiempo
+- Asteroid Menace Right On Time
+- Aviones Desaparecidos - Demasiadas Coincidencias Inquietantes
+- Be Prepared to Hunker Down for Months - James Rawles Warns...
+- Beyond Conspiracy Theory - SCADs - Patterns of High Crimes in American Government
+- Bullets, False Flags and Biological Warfare - What Is The U.S. Government Planning?
+- Cameron Advocates Greater Stasi-style Surveillance Powers for GCHQ after Charlie Hebdo
+- Canadian Terror Wave - A Modern-Day Gladio
+- Does Fear Lead to Fascism? - A Culture of Fear and the Epigenetics of Terror
+- Economic Armageddon Is Imminent
+- El León Se Despierta - Conciencia Global
+- Engineered Chaos and Fear are the 'New Normal' in America
+- Fukushima Tectonic Nuclear Warfare Monitored by World Partners - Leuren Moret
+- Global Warming - An Official Pseudoscience... - Main File
+- Government Agents Invent False Evidence to Destroy Reputations
+- How Covert Agents Infiltrate the Internet to Manipulate, Deceive, and Destroy Reputations
+- Influenza - Virus H1N1 - Unintentional Contamination or Bioterrorism? - Main File
+- Iran Target of 'False Flag' Strategy?
+- Just How Dangerous is Terrorism, Really?
+- La Guerra Secreta del Petróleo ha Comenzado
+- La Guerra Segreta per il Petrolio è Iniziata
+- La Manipulación de los Medios de Comunicación en Los Atentados de Paris
+- Las 10 Grandes Teorías de la Conspiración de 2014
+- 'Las No-Libertades' Normales
+- "Lockstep" - Written 10 years ago Chronicles how to Bring the World Down with a Pandemic
+- Locura Total - Crece la Sombra de una Posible Guerra Nuclear
+- Mass Bio-Terror Pandemic by December 21, 2012 - Secret Revealed
+- Movimientos Extraños en EE.UU. - ¿Estamos al Borde de Algún Tipo de Cataclismo?
+- NeoCon at Globalist Think-Tank says Use False Flag to Start War With Iran
+- Non-Muslims Carried Out More than 90% of All Terrorist Attacks on U.S. Soil
+- Normal Unfreedoms
+- Operation Gladio - NATO's Secret Wars - Main File
+- Operation Northwoods
+- "Pearl Harbor" Style Attack Will Be Pretext for War on Iran - Ex-Israeli Intelligence Officer Says...
+- Police Commissioner Involved in Charlie Hebdo Investigation "Commits Suicide" - Total News Blackout
+- Presidential Meeting Signals Catastrophic Event - "There Is a Crisis Unfolding Somewhere in The...
+- Project Prophecy - The Death of Money
+- Rockefeller Foundation Predicts 13,000 Dead at London Olympics 2012
+- Scenarios for The Future of Technology and International Development
+- ¿Sigue la Manipulación? - Posibles Amenazas Futuras del Ébola
+- Strani Movimenti negli Stati Uniti - Siamo Vicini a una Sorta di Cataclisma?
+- Terroristas Islamistas - ¿Títeres Controlados por Occidente?
+- The Blueprint for WWIII
+- The Lion Wakes - Global Consciousness
+- The Mass Media and The 9-11 Cover-Up
+- The Mythology of Homeland Insecurity
+- Totale Pazzia - Cresce l'Ombra di una Possibile Guerra Nucleare
+- Turkish President Accuses 'The West' of being Behind Charlie Hebdo Attacks
+- Un Reportero de Sky News Cubriendo los Atentados de Paris, Sufre un Lapsus Muy Significativo
+- URGENT - False Flag Involving Israel to Implicate Syria in The Works, Says RT
+- U.S. Government and NATO Worked with Bin Laden and His Top Lieutenant 3 Months AFTER 9/11
+- Why You Need to Be Ready for Total Grid Failure - You've Been Warned...
+- Year in Review - Our Top Ten Conspiracies of 2014
+- You Are The Hope
+- You Have Been Fooled into Believing WWIII is Real - Here is the Proof
+Ebola
+- And Now, Ladies an' Gentlemen: Obama's 'War on Ebola'
+- Crecen las Sospechas de que La Epidemia de Ébola es Falsa
+- Crescono i Sospetti che L'Epidemia di Ebola è Falsa
+- ¿Conspiranoia o Realidad? - 3 Indicios Inquietantes sobre el Ébola
+- Ebola - 47 Questions and Answers that Will Set your Hair on Fire
+- Ebola - Pandemia, Bioterrorismo o Operazione Falsa?
+- El Ébola - Micoplasma Humano y No Contagia de Forma Natural - Investigación
+- El Ébola - ¿Pandemia, Bioterrorismo u Operación de Bandera Falsa?
+- Is it Wise for Obama to Send Thousands of U.S. Troops into The Ebola Death Zone?
+- Sorpresa! - Adesso l'OMS dice che il Periodo di Incubazione dell'Ebola è di 42 Giorni!
+- ¡Sorpresa! - Ahora la OMS dice que el Periodo de Incubación del Ébola es de... ¡42 Días!
+- The Great Ebola Hoax
+- Un Posible Invierno de Caos - El Ébola y la Gripe
+Books-Reports-Treatises
+- Desinformación - Cómo los Medios Ocultan el Mundo - por Pascual Serrano
+- Operation Northwoods 1962 - Declassified Document
+Multimedia
+- 2012 London Olympics and Prince William as 'Anti-Christ', Heir to Jesus Christ Bloodline - Rik Clay (1982-2008) False Flag
+- 9-11 False Flag
+- 9/11 False Flag - 2008-9/11 Was An Inside Job and This Documentary Proves It!
+- American Terror - Manufactured by The FBI
+- CNN Airs Fake Sandy Hook Helicopter Footage - Anderson Cooper CNN False Flag
+- False Flag Attack - Do You Know What Is It?
+- Goldman Sachs' Crash of Markets Last Year Was a False Flag Operation - 'On the Edge' with Max Keiser
+- Operaciones Con Bandera Falsa - False Flag Operations
+- September 11 - The New Pearl Harbor
+- Ten Characteristics of a False Flag Event
+- The 9-11 Events Unofficial Story - The Fifth Estate - CBC News
+- The Fog of War - The Nature of Modern Warfare
+- The Ultimate False Flag Operation
+Related Reports
+- CIA - The Central Intelligence Agency - Main File
+- Ebola - Global Pandemic or Global Hoax? - Main File
+- Holographics - Main File
+- Martial Law in USA? - The Death of Democracy - Main File
+- The New World Order - Main File
+- 'War on Terror' - Main File
+Return to The New World Order
+Return to Temas / Main Files
+Return to The Global Elite
+Return to EndGame

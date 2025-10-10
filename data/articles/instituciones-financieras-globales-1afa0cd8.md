@@ -1,0 +1,154 @@
+# Instituciones Financieras Globales
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalbanking38.htm
+
+por Mark Evans
+del Sitio Web
+Free-News
+Los "cinco grandes" principales bancos de Wall Street, los propietarios del
+stock de acciones "Clase A" del Banco de la Reserva Federal de Nueva York,
+son:
+El stock de Clase A de la Reserva Federal no ha sido vendido ni comerciado
+en mercado abierto desde que fue herméticamente sellado al público a finales
+del verano de 1914. Es propiedad exclusiva de Wall Street y de los
+principales bancos europeos, cuyos mayores accionistas son la clase
+dominante transatlántica.
+Este modelo funciona igual con los Bancos
+Centrales de todos los países del sector capitalista avanzado. Los Cinco
+Grandes tienen dirigentes entrelazados con las "Siete Hermanas", los
+carteles petroleros anglo-holandeses-americanos:
+Varios de estos carteles transatlánticos de dinero y productos
+financiaron a Mussolini y a Hitler, y mantuvieron activamente sus conexiones con el Reich
+durante toda la Segunda Guerra Mundial.
+También estuvieron
+activamente
+involucrados en la Rusia de Stalin, al principio de los Planes Quinquenales
+de 1928. Ninguno de ellos es realmente secreto, cualquier puede descubrir
+estos hechos con hacer una pequeña investigación. Tampoco debería
+considerarse una "conspiración" (ni por aquellos que promocionan o deniegan
+los hechos esenciales del tema); los banqueros y los hombres de negocios han
+estado "comerciando con el enemigo" durante siglos.
+Es tan solo un ejemplo
+más de la "sabia política de inversión" de los carteles como J.P. Morgan y
+Co., y de la Standard Oil de New Jersey.
+El Centro Financiero Global: B.I.S.
+La sede del capital financiero del primer mundo es Basilea, en Suiza, donde
+los Bancos Centrales del Grupo de los Siete (G-7) forman el equipo directivo
+del
+Bank for International Settlements (BIS), El G-7 incluye a Gran Bretaña,
+Francia, Alemania, Italia, Canadá, Estados Unidos y Japón. El G-7 es llamado
+"los países de moneda fuerte" porque sus Bancos Centrales, corporaciones de
+propiedad privada de los bancos principales de estas naciones, han adquirido
+la mayor parte del oro de las minas, del oro pulido y del oro en lingotes de
+todo el mundo.
+Aproximadamente el 80 por ciento del mismo se halla en las
+cámaras del Crédito Suizo, bajo el Berghoff, el aeropuerto de Zurich. Una
+formación algo más amplia, el G-10, incluye a Bélgica, Holanda y Suecia.
+Estados Unidos se ha convertido en la mayor nación deudora de toda la tierra
+porque los bancos principales de las otras naciones del G-10 (especialmente
+de Gran Bretaña, Holanda y Japón) han comprado la deuda gubernamental
+estadounidense en forma de Fondos del Tesoro de Estados Unidos semestrales y
+libres de impuestos, a través de operaciones Comité Federal de libre mercado,
+la ventana federal de Wall Street.
+De estos Fondos del Tesoro, el 95% se emitieron tras el fin de la Segunda
+Guerra Mundial para financiar la Guerra Fría contra el "Imperio del Mal".
+Ahora el comunismo ha sido desmontado como enemigo; los movimientos
+fascistas nacionalistas están siendo impulsados en todo el globo, y la deuda
+acumulada se acerca al valor neto de todos los bienes raíces y mobiliarios
+del planeta.
+Ahora, también, Estados Unidos y Rusia están uniendo sus
+programas militares y espaciales, Estados Unidos se está convirtiendo
+gradualmente, en un verdadero estado totalitario, y los banqueros están
+empezando a ejecutar las hipotecas sobre sus secuaces y primos en bancarrota
+dentro de su nuevo condominio global.
+El Banco Central Mundial de los banqueros
+El Banco de Pagos Internacionales (Bank for International Settlements
+- BIS),
+la "gran bestia", fue fundado en 1930, y es la primera entidad en ser
+llamada "Banco Mundial". Monetarista basado en el oro, funciona como cámara
+de compensación para el equilibrio de pagos entre naciones. Funcionó durante
+toda la Segunda Guerra Mundial como junta directiva de conexión, y como
+cámara de compensación para la alta finanza, tanto de los aliados como de
+los países del Eje.
+El
+Banco Mundial /
+Fondo Monetario Internacional, la "segunda bestia", fue
+fundado en 1946, tras ser delimitado en
+Bretton Woods, New Hampshire,
+durante la guerra en 1944.
+El Fondo Monetario Internacional funciona como el
+organismo de cobro del Banco Mundial, así como el IRS funciona como
+organismo de cobro del
+Banco de la Reserva Federal. La filial en Wall Street
+de la Reserva Federal es el "agente fiscal" del FMI en Estados Unidos. Los
+recursos comunes del FMI radican en los principales bancos del Primer Mundo,
+que se entrelazan con los conglomerados petroleros y complejos
+militar-industriales del Primer Mundo (G-7)
+El Fondo Monetario Internacional funciona bajo la égida de las Naciones
+Unidas, como una fábrica de crédito en papel keynesiano, concediendo crédito
+en forma de Derechos Especiales de Giro a las naciones deudoras del Segundo
+y Tercer Mundo, exigiendo que ellas compren cantidades concretas de la
+moneda de las naciones del G-7, imponiendo "términos de austeridad" sobre
+sus economías internas, y saqueándoles por medio de las "cédulas de
+reembolso", de sus recursos naturales y minerales.
+Todo esto está canalizado
+a través del
+General Agreement on Tariffs and Trade (GATT) a los carteles
+multinacionales, también centrados en Ginebra, Suiza.
+Con la aplicación del NAFTA y del círculo de Uruguay del GATT, los salarios
+reales de los trabajadores de mono azul y de cuello blanco en Estados Unidos
+quedarán equiparados en el tiempo a una paridad cercana a los del Tercer
+Mundo. El último "Superpoder", los Estados Unidos, no es la principal cabeza
+de la bestia del G-7, sino que, debido a su estatus de deudor, la última
+cabeza, apropiadamente cercana a la cola con cuernos, está comprometida
+desproporcionadamente en las "acciones policiales" del Consejo de Seguridad
+de las Naciones Unidas en todo el globo.
+El capital internacional, habiéndose "globalizado," empleará cada vez más a
+los cascos azules de las Naciones Unidas para reforzar la hegemonía del
+capital en el futuro.
+BIS Junta y Titulares antiguos - Julio 2001
+Junta de Dirección
+Urban Bäckström, Stockholm (Presidente de la Junta de directores, Presidente
+del Banco)
+Lord Kingsdown, Londres (Vicepresidente)
+Vincenzo Desario, Roma;
+David Dodge, Ottawa;
+Antonio Fazio, Roma;
+Sir Edward A J George, Londres;
+Alan Greenspan, Washington;
+Hervé Hannoun, Paris;
+Masaru Hayami, Tokyo;
+William J McDonough, New York;
+Guy Quaden, Bruselas;
+Jean-Pierre Roth, Zürich;
+Hans Tietmeyer, Frankfurt am Main;
+Jean-Claude Trichet, Paris;
+Alfons Vicomte Verplaetse, Bruselas;
+Nout H E M Wellink, Amsterdam;
+Ernst Welteke, Frankfurt am Main
+Suplentes
+Bruno Bianchi or Stefano Lo Faso, Roma;
+Roger W Ferguson or Karen H Johnson, Washington;
+Jean-Pierre Patat or Marc-Olivier Strauss-Kahn, Paris;
+Ian Plenderleith or Clifford Smout, Londres;
+Peter Praet or Jan Smets, Brussels;
+Jürgen Stark or Stefan Schönberg, Frankfurt am Main
+Titulares antiguos
+Andrew Crockett, Director General
+André Icard, Presidente General Diputado
+Gunter D Baer, Secretario General, Jefe de Departamento
+William R White, Consejero Económico, Director del Departamento de Economía
+y Moneda
+Robert D Sleeper, Director del Departamento de Banca
+Renato Filosa, Manager, Departamento de Economía y Moneda
+Mario Giovanoli, Consejero General, Director
+Günter Pleines, Director del Departamento de Banca, Diputado
+Peter Dittus, Secretario General Diputado
+Josef ToÆovský, Chairman, Instituto de Estabilidad Financiera
+Oficina Representativa para Asia y el Pacífico
+George Pickering, Representante en Jefe
+Otros
+Carlo Azeglio Caiampi político italiano
+Lamberto Dini - político y banquero italiano - board of directors BIS
+Antonino Occhiuto- banquero central italiano - BIS 1975 - now
+Tommaso Padoa-Schioppa - banquero central italiano - BIS 1993 - now

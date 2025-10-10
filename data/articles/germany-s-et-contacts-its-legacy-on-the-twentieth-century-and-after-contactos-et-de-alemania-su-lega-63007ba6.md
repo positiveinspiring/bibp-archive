@@ -1,0 +1,244 @@
+# Germany's ET Contacts? - Its Legacy on The Twentieth Century and After... 
+/ ¿Contactos ET de Alemania? - Su Legado en El Siglo XX y Mas Allá...
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_germany.htm
+
+Contents
+- Antarctica Rediscovered - Main File
+- El Superpoder Germánico Que Viene
+- Galactic War III
+- German Disc Aircrafts - 1922-1945 and Beyond - Main File
+- German Wonder Weapons
+- Is the 4th Reich's Dark Fleet abandoning Antarctica?
+Español
+- La Sociedad Thule y la Sociedad Vril
+- Los Alemanes en La Antártica
+- Manipulative Extraterrestrials Influenced Adolf Hitler - Scholars Suggest
+- Obscure 1943 Book Reveals German Plan for World Government
+- Project Paperclip - Main File
+- Snowden Documents Proving "US-Alien-Hitler" Link Stun Russia
+- The Aldebaran Mystery ?
+- The Black Order
+- The Bushes and The New World Order - Main File
+- The Coming German Superpower
+- The Fourth Reich (or continuation of the third) - from 'Tales From Time Loop'
+- The New World Order - Novus Ordo Mundi - Main File
+- The Omega File
+- The Thousand-Year Conspiracy - Secret Germany Behind The Mask - Foreword by Dave Emory
+- The Thule Society - Main File
+- The Vril Society - Main File
+- Thule Gesellschaft and The Vril Society
+- Uncovering the Truth through 'Remote Viewing' - Nazis and Reptilians in Antarctica
+- Wilhelm Landig y la SS Esotérica - El Sol Negro
+Additional Information
+- About Carol Rosin and The Late Werner Von Braun
+- A Different View of 'The Holocaust' - Una Vision Diferente del 'Holocausto' - Main File
+- Aleister Crowley vs. Adolf Hitler - La Guerra Mágica más Épica de la Historia
+- Alemania Acaba de Realizar un Avance Gigantesco en una Máquina de Fusión Nuclear
+- Alemania hace Llamado a un Referéndum ya que 'la Gente Quiere ser Libre de la UE' - La Peor Pesadilla...
+- Alemania - Una Bomba Social a Punto de Estallar
+- An Octopus Named Wackenhut - Main File
+- Baron Otto Von Bolschwing - SS Veteran of Eichmann's "Jewish Affairs"
+- Bilderberg 1955 - Garmisch-Partenkirchen, Germany, September 1955
+- Bormann Ran Hitler for The Illuminati
+- Brotherhood of The Bell
+- Buddhism and The Kalachakra System - Main File
+- Bush Like Hitler Is Vatican's Best Friend
+- Dark Mission - Project Camelot Interviews Richard Hoagland
+- Dark Mission - The Secret History of NASA
+- De Hitler a Bush - Una Brillante Reflexión de Historia y Filosofía
+- Depopulation of Planet Earth - Main File
+- Did Extraterrestrials from Venus Make Contact in 1952?
+- Eight Years after U.S. Banking Collapse, Implosion of Megabank Poised to Decimate the Global Economy
+- El Continente de Mu o Lemuria - Main File
+- El Nuevo Orden Mundial Comenzará con Alemania y China
+- El Pacto Secreto entre Rusia y Alemania
+- El Papa de Hitler - Un Polemico Libro Revela Documentos del Vaticano Sobre el Antisemitismo de Pio XII
+- El Reseteo Global - El Gran Reinicio - Main File
+- ¿Esperan un Desastre Nuclear en Bélgica y Alemania?
+- ¿Extraterrestres de Venus hicieron Contacto en 1952?
+- First Release of Fully Translated Russian Antarctic Documentary
+- Germania - Una Bomba Sociale sul Punto di Scoppiare
+- Germany and The Holy Roman Empire
+- Germany Calls for Referendum as 'People Want to Be Free of EU' - Merkel's Worst Nightmare
+- Germany Just Made a Giant Breakthrough on a Nuclear Fusion Machine
+- Germany Secretly Planning to Join BRICS - Analyst
+- Global Reset - Great Reset - Main File
+- ¿Ha Financiado Alemania las Armas Nucleares de Israel?
+- Hitler and The Banksters - The Abolition of Interest-Servitude
+- Hitler, Buda, Krishna - Una Alianza Impía Desde el Tercer Reich Hasta el Día Presente - Reseña
+- Hitler - El Monstruo Creado por La Banca Internacional
+- Hitler's Antarctic Base - The Myth and the Reality
+- Hitler's Pope - The Secret History of Pius XII
+- I.G. Farben - The International Farben Cartel - Main File
+- Illuminati - Order of the Illumined Wise Men - Main File
+- Kennedys Last Stand - Roots of JFK Assassination Lie in What He Saw in 1945
+- La Germania chiede un Referendum poiché "La Gente Vuole Essere Libera dall'Unione Europea" - Il...
+- La Germania sta Pianificando Segretamente di Unirsi ai BRICS?
+- La Teoria de La Tierra Hueca - Main File
+- La Tierra Hueca - Misterios Sin Resolver - Marielalero
+- Manipulative Extraterrestrials Appear to Use Religion and Capitalism to Control Humanity
+- Mucho Mas que Nuclear - DVD, la Peligrosa y Misteriosa Organización de la que Nadie ha Oído Hablar
+- Operation High-Jump - Main File
+- Partidos de la Oposición Alemanes Advierten que el Gobierno Merkel se Prepara para "Disturbios Civiles"
+- ¿Planea Alemania Unirse Secretamente a Los BRICS?
+- Preparativi in Germania - Aspettano una Guerra o un Disastro?
+- Preparativos en Alemania - ¿Esperan una Guerra o un Desastre?
+- Researchers Suggest Iraq War Was Centrally Motivated From an Extraterrestrial-Inspired Religion
+- Scalar Weapons - Read It and Weep
+- Secretos Ocultos del Dalai Lama
+- Secret Societies That Threaten to Take Over America - Rise of 4th Reich
+- Shambahla - Main File
+- Sinister Forces - Audio Interview With Peter Levenda
+- So Much More Than Nuclear - DVD, the Dangerous and Mysterious Organization Nobody is Aware Of
+- Striving for Accountability in The Aftermath of The Holocaust - The Office of Special Investigations
+- Swastika
+- Tavistock Institute - Main File
+- Tetragrammaton, Lauburu, Crux Gammata - YHWH, Yahweh, Adonai
+- The Carlyle Group - Main File
+- The Continent of Mu or Lemuria - Main File
+- The Cosmic Conspiracy - Secrets of The Universe
+- The Dark History of The Vatican - Main File
+- The Elkhorn Manifesto - Shadow of The Swastika - The Real Reason the Government Won't Debate...
+- The Global Elite - Main File
+- The Great Antarctic Expedition - Operation Highjump
+- The Hollow Earth Theory - Main File
+- The New World Order will Begin with Germany and China
+- The Pentagon Papers Case
+Germany and The EU
+- Alemán Fundador del Euro Hace Llamado para que La 'Catastrófica' Moneda sea Sacada de Circulación
+- Angela Merkel's Benign Dictatorship
+- "Berlín ha Decidido Seguir los Pasos de la Administración Saliente de EE.UU." - María Zajárova
+- Cómo el Fantasma del Nazismo marcha por Europa
+- France, Germany and Holland Are Planning New Currency to Follow The Demise of The Euro
+- German Euro Founder Calls for 'Catastrophic' Currency to Be Broken Up
+- Germans Leaving Germany 'In Droves'
+- Germany and The Vatican Are Moving Toward a Financial New World Order - The Vatican Exploits the...
+- Germany to Bring Home Gold Stored in U.S. and France
+- Germany Weighs Up Federal Europe Plan to End Debt Crisis
+- Grecia es una Nación Bajo Ocupación - Culpando a La Víctima
+- Greece is a Nation Under Occupation - Blaming the Victim
+- Hyper Mario and Germany on Verge of All Out Warfare
+Italiano
+- Il Tedesco Fondatore dellEuro Lancia un Appello per Far Sì che La Catastrofica Moneta SiaTolta dalla...
+- Los Alemanes Están Abandonando Alemania "En Tropel"
+- ¿Para qué Guerra se Está Preparando Alemania?
+- Que el Mundo lo Sepa - Alemania Se Está Hundiendo
+- Spain and Italy are Toast Unless Germany Allows the ECB to Print Trillions of Euros
+- The Real Reasons that Germany Is Demanding that The U.S. Return Its Gold
+Germany Today and The Nazis
+- Antarctica - A Nazi Base? - An Excerpt From 'Alien Agenda'
+- ¿Argentina fue Refugio de los Nazis? ¿Dónde está Hitler? - Hablamos con un Historiador
+- Buddhist 'Iron Man' Found by Nazis is Confirmed to Be Extraterrestrial
+- Did U.S. Navy Battle UFOs Protecting Nazi Antarctic Sanctuary in 1947?
+- Dulce New Mexico and The Nazi Connection
+- El Reino Fantasma - La Conexión Nazi-Tíbet
+- Eugenics and The Nazis - The California Connection
+- Foundations for Globally Managing Extraterrestrial Affairs - The Legacy of The Nazi Germany-Extraterr...
+- German Library Claims Copyright on "Nazi Anthem" Censors Documentary on YouTube
+- Kennedy and The Nazis
+- Klaus Schwab 'Family Values'
+- Klaus Schwab - His Nazi Family History explains the 'Reset Agenda'
+- La Conexión Nazi con Shambala y Tibet
+- La Cruz Malta y La Sociedad Secreta Neonazi, CIA y Vaticano
+- La Familia Bush y La Alemania Nazi
+- La Historia del 'Refugio Nazi' en la Selva del Norte de Argentina
+- "Las Fotos de Hitler después de la Guerra" - Por qué Afirman que el Líder Nazi no se suicidó
+- Las Raíces Nazis de la Unión Europea
+- Los "Ovnis del Reich - Nazis en La Luna - La Prodigiosa Tecnología del Tercer Reich
+- Los Vínculos Nazis del Grupo Bilderberg
+- May 1945 - "Operation Sunrise" - Nazi Germany Surrenders, but on May 7, 8, or 9?
+- Nazi International - Dr. Joseph Farrell
+- Nazi Mind Control
+- Nazis Were Given Safe Haven in U.S. - Report Says
+- Schwab Family Values
+- Secrets of The Nazi-Bell - Uncovering The Mystery With Joseph P. Farrell
+- The Antarctic Germans - An Overview
+- The Bilderberg Group - Founded by a Nazi and Continuing the Agenda of the Nazis
+- The CIA Created 'Safe Haven' for Nazis and Jews
+- The Crooked Cross and The Cross - Nazism and Christianity
+- The Hidden Nazi Background of Walter Hallstein - Founding President of The Brussels EU Commission
+- The "Impending Legal Case Against the USAF" - Were the Nazi's being spied on by Aliens?
+- The Nazi Code - from "The Forbidden Knowledge of Secret Societies"
+- The Nazi Connection With Shambhala and Tibet
+- The "Nazi-ET Connection" - The War for Planet Earth
+- The Nazi Origins of Renewable Energy and Global Warming
+- The Nazi Roots of The House of Windsor
+- The Phantom Kingdom - The Nazi-Tibet Connection
+- The Rise of The Fourth Reich in America - Project Camelot Interviews Jim Marrs
+- The Scientific Background of The Nazi "Race Purification" Program - US & German Eugenics Ethnic...
+- The UFOs of Nazi Germany
+Books-Treatises
+- Adolf Hitler - Founder of Israel - by Kardel
+- Biografía No Autorizada Del Vaticano - Nazismo, Finanzas Secretas, Mafia, etc...- por Santiago Camacho
+- El Cordon Dorado - Hitlerismo Esoterico - por Miguel Serrano
+- El Ultimo Avatar - por Miguel Serrano
+- Frabato The Magician - by Franz Bardon
+- Genesis for The New Space Age - Secret Development of The Round Wing Plane... - by John B. Leith
+- George Bush - The Unauthorized Biography - by Webster G. Tarpley and Anton Chaitkin
+- Germany's Antarctic Claim - Secret Nazi Polar Expeditions - LARGE FILE - by Christof Friedrich
+- Germany's Master Plan - The Story of an Industrial Offensive - by Joseph Borkin and Charles A. Welsh
+- Hellstorm - The Death of Nazi Germany - by Thomas Goodrich
+- Hitler en Colombia - por Abel Basti
+- Hitler Ganó La Guerra - por Walter Graziano
+- Hitler Ha Vinto La Guerra - De Globalizzazione e Bugie - da Walter Graziano
+- Hitler's Pope - The Secret History of Pius XII - by John Cornwall
+- Hitler's Secret Backers - by Sidney Warburg
+- Hitler Was a British Agent - by Greg Hallett
+- Invisible Eagle - The History of Nazi Occultism - by Alan Baker
+- La Crónica de Akakor - por Karl Brugger
+- Las fotos de Hitler después de la Guerra - por Abel Basti
+- Las Raices Nazis de La "UE de Bruselas" - por P. A. Taylor, A. Niedzwiecki, M. Rath y A. Kowalczyk
+- Martin Bormann - Nazi in Exile - by Paul Manning
+- Mein Kampf - by Adolf Hitler
+- Nazi Science - Myth, Truth, and The German Atomic Bomb - by Mark Walker
+- Nuremberg - The Last Battle - by David Irving
+- Reich of The Black Sun - Nazi Secret Weapons and The Cold War Allied Legend - by Joseph P. Farrell
+- Secret Politics - The Schedule to World Domination - by Dieter Rüggeberg
+- Secret Rituals of The Men in Black - by Allen H. Greenfield
+- The CIA Covenant - Nazis in Washington - by Gregory Douglas
+- The Forbidden Knowledge of Secret Societies - by Philip Gardiner
+- The Mass Psychology of Fascism - by Wilhelm Reich
+- The Nazi Roots of The "Brussels EU" - by P. A. Taylor, A. Niedzwiecki, M. Rath and A. Kowalczyk
+- The Occult Roots of Nazism - Secret Aryan Cults and Their Influence on Nazi... - by N. Goodrick-Clarke
+- The Shadow of The Dalai Lama - Sexuality, Magic and Politics in Tibetan... - by Victor and Victoria Trimondi
+- The Thousand-Year Conspiracy - Secret Germany Behind the Mask - by Paul Winkler
+- Trading With The Enemy - An Expose of The Nazi-American Money Plot 1933-1949 - by Charles Higham
+- Tras los pasos de Hitler - por Abel Basti
+- Vril - The Power of The Coming Race - by Edward Bulwer-Lytton
+- Wall Street And The Rise of Hitler - by Antony C. Sutton
+Multimedia
+- A Brief History of Secret Space Programs according to Jason Rise
+- A Jewish Defector Warns America - Benjamin Freedman Speech 1961 - An Alternate Look at WW-1...
+- America Freedom to Fascism
+- A UFO War in Antarctica? - An Untold Story
+- Cortafuego - En Defensa Del Estado Nacional
+- De La Libertad Americana al Fascismo
+- El Espacio Secreto - Secret Space
+- European Union Corruption - Christopher Story
+- Firewall - In Defense of Nation State
+- Operation Paperclip - The Hunt for Nazi Scientists
+- Nazi America - A Secret History
+- Proyecto Huemul - El Cuarto Reich en Argentina
+- Secrets of The 3rd Reich - Secret Nazi Research in Alien Technology
+- Secret Space Program
+- Secret Space Program - Subtitulado Español
+- The Hunt for Hitler's Scientists
+- The IllumiNazi
+- Third Reich - Operation UFO - Nazi Base In Antarctica
+- Wall Street, Los Nazis y La Revolución Bolchevique - Antony C. Sutton
+- You Don't Know Hitler - 2006
+Related Reports
+- Brotherhoods and Secret Societies - Main File
+- Charles Hall and The Tall Whites ETs - Main File
+- Global Militarism - Main File
+- Gravity and Antigravity - Main File
+- Royal Science - Main File
+- The New World Order - Main File
+- The Protocols of The Learned Elders of Zion - Main File
+- Vida en El Universo - Life in The Universe - Main File
+Return to Temas / Main Files
+Return to Ponerology - The Science of Evil
+Return to Globalization and The European Union
+Return to The Divine and The Manipulative Extraterrestrials
+Return to Extraterrestrial Technology And Reverse Engineering
