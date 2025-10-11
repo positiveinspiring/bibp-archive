@@ -1,0 +1,1679 @@
+# The Global Elite - The Transnational Capitalist Class / La Elite Global - 
+La Clase Capitalista Transnacional
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalelite.htm
+
+The 1 %, The Ruling Elite, The Globalists,
+The Global Elite a.k.a. 'The Powers That Be' (TPTB),
+sarcastically "the powers that shouldn't be".
+'The powers that be',
+los poderes establecidos, los poderes fácticos,
+los poderes que están o los poderes existentes.
+Wikipedia
+Today (October 2011) we could start calling them...
+"The Powers That Were" (TPTW)
+The purpose of this Section is to alert the public of the existence, and activities of the 'ELITE,' and to encourage active participation by all concerned citizens to stop the takeover of the US, and the rest of the world by the Elite - the Neoliberal Order - in their efforts to form their
+'Global Union' or New World Order
+"Fascism should more appropriately be called Corporatism
+because it is a merger of State and Corporate Power" Benito Mussolini
+Contents
+- 6G - Manufactured Dystopia - Globalists Won't Stop Hacking Humans
+- About the Pandora Papers
+- Acuérdate del 5 Noviembre... - ¡Recuerda porqué No los Necesitamos!
+Español
+- Algunas Señales que la Nave de la Elite Global se Está Hundiendo
+- America Latina y La Elite Global - Main File
+- America Plundered by The Global Elite
+- America Will Lose the Trade War because that is what Globalists Want to Happen
+- A Milestone for Global Capitalism
+- Amos del Mundo - Las Organizaciones del Poder Planetario
+- Analysis of Financial Terrorism in America
+- Anatomy of False-Flag Events
+- An Elite-led 'Great Reset' Post-Covid? - No, what we Need first is to Get Rid of the Globalist approach that...
+- Apocalypse Now - The Government's use of Controlled Chaos to Maintain Power
+- A Ponerological Profile - Henry Kissinger - Main File
+- Archons - The Secret Pact
+- Arcontes - El Pacto Secreto
+- Are Globalists Evil or Just Misunderstood?
+- Así es cómo Consiguen los Hijos de la Élite que los Contraten en Trabajos de Élite
+- Así es como la Aristocracia de EE.UU. Extiende su Control Mundial - La Verdad sobre Obama
+- Así se Prepara el 1% para el 'Apocalipsis' Climático
+- As Inequality Soars, the Nervous Super-Rich are Already Planning their Escapes
+- As International Trials begin against the Globalists will a 'Return to Public Executions' be necessary
+- Asking Questions the Politicians and the Press Can't Answer
+- Atrocità Commesse dai Governi contro i loro Cittadini
+- Atrocities Committed by Governments against their Citizens
+- At the Point of No Return
+- Autoassemblaggio di Strutture in Tempo Reale rivelate in 2 Anni di Studio su Iniezioni di Pfizer e Moderna per...
+- Big Brother Loves You... - Main File
+- Big Government - An Unnecessary Evil That Should Be Abolished
+- Bilderberg Group - Main File
+- Bill Gates Charged with Murder for COVID-19 Vaccine Death in India's High Court - Death Penalty Sought
+- Bill Gates Lays Out Plan for Global Takeover
+- Bill Gates - Most Dangerous Philanthropist in Modern History?
+- Bill Gates' Web of Dark Money and Influence
+- 'Billionaire Climate Elites' have their Own Rules and Agenda
+- Billionaire Club in Bid to Curb Overpopulation
+- Black Magic and The New World Order - Satanists Rule the World, Not Politicians, Bankers or Military Heads
+- Blueprint for Total Control
+- Bohemian Grove - Main File
+- Bourgeois Democracy meets 'Global Governance' - U.S. Election 2020
+- Brainwashed by The 1% - Are We Merely Puppets? - Hypernormalisation, a Documentary of 'A Fake World'
+- BRICS and The Mission of Reconfiguring The World
+- Brief Description of The Elite Conspiracy - The Bilderbergs, Council on Foreign Relations, and Trilateral...
+- Broken by Design - Why the Elites want Everything and Everyone to have an "Expiry Date"
+- ¡Busquen...! ¡Despiértense Gente...! - Están siendo "Suicidados a la Velocidad de la Luz"
+- 'Cabal Leaders' go to Antarctica to Surrender to Extraterrestrials and Earth Alliance
+- Capitalism for the Rich and Socialism for the Poor - The Great Reset VII
+- Capitalism is Doomed - Without Alternatives, So Are We
+- Capitalismo Transnacional
+- Carlo Maria Viganò address at the 'Bornholm Conference 2023' - Lashed out to the WEF
+- CFR - The Council on Foreign Relations - Main File
+- Changing The President Won't Matter - Who is Really Running this Country?
+- Chi Governa il Mondo? - Angoli Oscuri delle Potenze Globali Segrete
+- 'Chipping' Humanity - The Global Power Elite's 'Product of the Future'
+- Cinco Ejemplos de Chantaje de Élite
+- Clueless Globalists Wondering Why People are Rejecting Them
+- Collapse of the 2020s
+- Collasso del Decennio 2020
+- Colonial Elite Rules China for The Illuminati
+Italiano
+- Come una Pandemia virale Giova all'Agenda Globalista
+- Como Abortarán la Revolución
+- Cómo Identificar a un Criminal Globalista
+- ¿Como Opera la Élite Global en el Mundo?
+- Cómo una Pandemia Viral Beneficia a la Agenda Globalista
+- Conclusion - Private Entities are Taking Over the World
+- Confirmado que lo que Sucede en Cataluña es una Rebelión contra las Élites
+- Conoce a La Firma
+- Conoce a la Verdadera 'Docena de La Desinformación'
+- Conspiradores, Mentirosos, Manipuladores y Egoístas
+- Corrupt to the Core - The Fire Power of the Financial System
+- Cosas que los Conspiradores Dirigentes No Quieren que Usted Sepa
+- COVID Dictators Plead for Amnesty
+- "Criaturas No Humanas Controlan el Mundo" - Ex-ejecutiva del Banco Mundial
+- Crímenes contra la Humanidad - Main File
+- Crimes Against Humanity - Main File
+- Crisi Globale del Cibo - Fingere ha delle Conseguenze
+- ¿Cuánta Evidencia hay de que el Máximo Liderazgo del Planeta Tierra 'No es Humano'?
+- David Icke Expone Sobre a Qué la Élite Teme Más
+- Deagel 2025 Forecast Population by Country
+- Deagel 2025 Updated - by Craig Paardekooper
+- Dear Neocon
+- Declaración de Sanya - Reunión de Líderes BRICS
+- Declaración de Mons. Carlo Maria Viganò sobre la 'Crisis Rusia-Ucrania'
+- Deconstructing The Power of The Global Elite
+- ¡Despierta! - Cómo las Élites están Controlando el Mundo
+- Destrucción y el Gran Juego del Cambio Global - Nuestra Civilización se dirige hacia el Destino de la Edad del...
+- Dick Cheney - The Ultimate American Terrorist
+- Did the Global Elite Meet in Antarctica?
+- Die Jagd ist eröffnet beschleunigte Inhaftierung von Verschwörern
+- Digging Deeper Into Who Controls The World
+- Discurso de Carlo Maria Viganò en la 'Conferencia de Bornholm 2023' - Arremetió contra el FEM
+- Dissent into Madness...
+- Divide and Rule - The Plan to Make You Disposable
+- Divided Nation - President Trump "Declares War" on Ruling Elite as Media and Protesters Declare War...
+- Dominar el Mundo y Controlar las Vidas y el Pensamiento - Soy Yo soy Libre - Guía del Robot para la Libertad
+- Don't Be Fooled by the Political Game - The Illusion of Freedom in America
+- Do We Have Psychopaths Misruling Our World? - Schwarzenegger, DSK, and Gingrich
+- El Actor Matt Damon Llama a la Desobediencia Civil Global
+- El Actual Encubrimiento Oligarca de Mentiras, Robo, Muerte y Destrucción son Expuestas como Nunca...
+- El Arzobispo Viganò revela los Perversos Planes del Globalismo en una impactante Entrevista
+- El BRICS y la Misión de Reconfigurar el Mundo
+- El Cementerio de las Élites
+- El Comité de los que Realmente "Mandan" en cada País - Un nuevo Cambio en las "Octavas Kármicas"
+- El Expolio de África explicado en Modo Sencillo - Un Mecanismo que Sostiene a Occidente
+- El Final de La Globalización
+- El Futuro de la Tecnología - ¿Sólo los Más Ricos Sobrevivirán y Trascenderán la Condición Humana?
+- El Gran Hermano Te Ama... - Main File
+- El "Gran Reinicio" - Un Colapso Deliberado diseñado por las Élites a través del Estado Profundo y los Bancos...
+- El Invisible Deslizarse de los Invasores Serpentinos
+- Elite Controllers, ET/UFOs in Washington DC and Disclosure - Robert M. Stanley
+- Elite is Planning Genocide of Two-Thirds of The World Population - Kevin Trudeau Personally Spoke With...
+- Elite Openly Paying to Ingest the Blood of the Young - No Longer a 'Conspiracy Theory'
+- Elite's Depopulation Agenda is Now Irrefutable
+- Elites Pushing Class Warfare is Just Another False Paradigm
+- Elites Que Aspiran a Ser Los Amos del Mundo - Emmanuel Ratier - "Le Siècle" Es La Matriz del...
+- Elite Watch
+- Elitismo Global - Los Rasgos del Carácter de Gente Realmente Malvada
+- El Mayor Truco de Todos
+- El Pacto Rusia-China y la Conspiración Marx-Rothschild
+- El Papa Francisco planea 'Arreglar' el Capitalismo Global con la ayuda de los Rothschild, Rockefellers y...
+- El Plan de La Élite Para un Nuevo Orden Social Mundial
+- El Plan Globalista para Echar Abajo el Mundo Entero
+- El Poder de las Dinastías Familiares
+- El Potente Ámbito Financiero
+- El Príncipe de las Tinieblas se Reúne con Su Élite Global
+- El Proyecto Soros y la Alianza entre la Izquierda y el Gran Capital
+- El Reino Unido y el Brexit - Main File
+- El Reseteo Global - El Gran Reinicio - Main File
+- El Sistema de Control de la Élite Gobernante Juega con Nosotros - Ya es Hora de un Nuevo Paradigma
+- El Sistema de Control de la Elite Gobernante versus Nuestro Despertar - Cuál va a Ganar?
+- En el Punto de No Retorno
+- Engaño Global Desenredándose Rápidamente - Documentos del HHS admiten que CDC Nunca Aisló "Virus...
+- En Grecia somos Testigos del Jaque Mate de las Élites
+- Enloquecimiento - El Mal es una Fuerza Significativa y Real en nuestro Mundo
+- Equipo del Reino Unido presenta una Denuncia por 'Crímenes de Lesa Humanidad' - Corte Penal Internacional
+- Es Difícil Encontrar Satisfacción en una Civilización que gira en torno a las Ganancias Corporativas
+- Está Confirmado - ¡Los Tiranos Aman a China!... ¿Pero por qué
+- Está Creciendo la Guerra en la Sombra entre la Cábala Bancaria y la Alianza Mundial
+- Estudio Genealógico demuestra que Hillary Clinton y Donald Trump son Primos Lejanos - Descienden de...
+- Evidence of The Old Order Collapsing Is All Around Us
+- Evil Triumphs
+- Exposing The Group of 30 - Rogues Gallery
+- Exposing the Hidden Truth behind Global Terror, False Flags and Assassinations - Ole Dammegard
+- Fabricando Disidencia - Globalistas y Elites Controlan Movimientos Populares
+- False Flag Operations - Main File
+- Farsa Capitalista - La Falsa Donación Post Mortem de Los "Súper Ricos"
+- Fifty Ways to Starve The Beast
+- Finalizando la 'Pandemia' - ¿Qué nos Deja y qué nos Desvela?
+- "First Amendment Stands as Major Block" to "Govern" - John Kerry says the quiet part Out Loud...
+- Five Examples of Elite Blackmail
+- Food As a Weapon - The Pyramid of Power: Chapter 8
+- Francesco, un Papa per i Poveri, un Papa per l'Ambiente o un Papa per l'Elite Globale?
+- Francis - A Pope of the Poor, a Pope for the Environment or a Pope of the Global Elite?
+- From 7 Billion People to 500 Million People - The Sick Population Control Agenda of The Global Elite
+- G-20 Bali Leaders' Declaration - November 2022
+- General Flynn confirms Elite did 'Dummy Run' for Covid-19 in 2017...!
+- George Soros and The Rothschild - Main File
+- George Soros on The Coming U.S. Class War
+- Giants - The Global Power Elite
+- Global Elite Belief in Extraterrestrial Creator Gods - Alex Jones Has A Problem
+- Global Elite committing Crimes against Humanity
+- Global Elite Desperate as Their Plans for World Government Are Exposed and Hampered
+- Global Elite taken to Guantanamo GITMO by U.S. Special Forces - Full Disclosure Implications
+- Global Elitism - The Character Traits of Truly Evil People
+- Global Food Crisis - Pretending has Consequences
+- Global Governance Divide
+- Global Income Inequality in Numbers - In History and Now
+- Globalistas Despistados Preguntándose porqué la Gente los Está Rechazando
+- Globalists are Now Openly Demanding New World Order Centralization
+- Globalists are 'Taking the Mask Off' and that's a Bad Sign...
+- Globalists release 'Timeline for Health Tyranny'
+- Globalists suggest "Finance Shock" and Climate Controls to launch their Great Reset
+- Globalists will Need Another Crisis in America as their Reset Agenda Fails
+- Globalist War Against Humanity Shifts into High Gear - Cars, Cash, Literature and Independent News all...
+- Globalizacion - El Pulpo del Nuevo Orden Mundial - Main File
+- Globalización - Un Juego de Tronos
+- Globalization's 'Game of Thrones'
+- Globalization - The Octopus of The New World Order - Main File
+- Global Pathocracy - Authoritarian Followers and the Hope of the World
+- Global Power and Global Government
+- Global Power Project - Examining the Activities and Individuals Behind the Bilderberg Group
+- Global Power Project - Institutions and Individuals Who Comprise Today's Global Power Oligarchy
+- Global Reset - Great Reset - Main File
+- Global Swamp - How Planet Earth is being Ruined
+- Global Tax Scam Shifts from Climate Change To Poverty
+- Global Upraising - Main File
+- Global Wealth Report 2014 - Credit Suisse
+- Gobernar para Las Élites - Secuestro Democrático y Desigualdad Económica
+- Goodbye Democracy and Capitalism - It Was Fun...
+- Gracias, Políticos Alarmistas, Desinformadores a Sueldo y Globalistas Mentirosos - Mensaje del Dr. L. Fouché
+- Grand Jury - Revealing the Agenda for World Domination
+- Haciendo Preguntas que los Políticos y la Prensa No Pueden Responder
+- Hallazgo de 'Nanobots' en Vacunas Covid en 96 Millones de Ciudadanos en Japón - Estado de Emergencia
+- ¿Hartos de la Frivolidad? - Hablar sin Ambages de temas considerados hasta hace poco como el culmen de...
+- Here is the Web of Technocrat Propagandists who Silence Truth
+- "Hipócritas Asesinos" - Indignación por sugerencia de 'The Atlantic' por 'Amnistía' para Autoritarios Pandémicos
+- Historical Analysis of The Global Elite - Ransacking the World Economy until 'You'll Own Nothing'
+- Historical Lessons from Rebellions - Countering Globalist Strategies Post-Collapse
+- History Regurgitates
+- How America's Aristocracy Extends Its Global Control - The Truth about Obama
+- How a Viral Pandemic Benefits the Globalist Agenda
+- How 'Big Tech' is Becoming the Government
+- How Corporate Power Killed Democracy
+- How does the Global Elite Operate in the World?
+- How Fanatics 'Took Over the World'...
+- How the General Public was Kept in the Dark over Covid
+- How the Great Reset is 'Accelerating into Global Tyranny'
+- How the Powerful Captured the Public in a 'Pandemic'
+- How the Power Imbalance between Corporations, Governments and People prevents Sustainable Solutions
+- How THEY Got Control
+- How to Identify a Globalist Criminal
+- How to Win the War Against Tyranny
+- I Burattini del Potere
+- I Cartelli che Gestiscono il Mondo
+- "Ice-Nine" - Il Lockdown Finanziario Globale
+- "Ice-Nine" - The Global Financial Lockdown
+- Identificando las Instituciones de Control del "Poder Global"
+- I Globalisti hanno un Grosso Problema - Dietro Bilderberg, la Trilaterale, il WEF...
+- I Globalisti si prefiggono "Shock Finanziario" e Controlli del Clima per lanciare il loro Great Reset
+- Il Web di Bill Gates del Dark Money e dell'Egemonia
+- ¿Impedirán que Trump Llegue a Ser Presidente?
+- I Multimilionari Si disfano delle loro Azioni - Cosa sta succedendo?
+- In Greece we are Now Witnessing the Elites' EndGame
+- "Inside the COVID-19 Global Coup d'état"
+- Interventionism and The Elites - The Ideological Origins of The Military-Industrial-Media Complex
+- I Retroscena dell'Inganno Globale
+- It's Hard to Find Fulfillment in a Civilization that Revolves Around Corporate Profits
+- It's Time for the Elites to Rise Up Against the Ignorant Masses
+- It Turns out Hillary Clinton and Donald Trump are Distant Cousins
+- Japan declares State of Emergency after 'Nanobots' found in 96 Million Citizens' Covid Vaccinated
+- Japan declares State of Emergency - 'Nanobots' found in 96 Million Citizens' Covid Vaccinated
+- Just Who Exactly Benefits Most from the Global Giving of Billionaires like Bill Gates?
+- Kennedy and The Nazis
+- Klaus Schwab 'Family Values'
+- Klaus Schwab's 'School for Covid Dictators' - Exposed...
+- La Batalla Civilizatoria a Nivel Mundial
+- La Cacería Ha Empezado - Los Arrestos del Grupo de Conspiradores Se Están Acelerando
+- La Camarilla Criminal Está Creando Incidentes en Todas Partes en un Intento de Empezar la Ley Marcial...
+- La 'Ciencia del Miedo' - Cómo la Usan los Elitistas para Controlarnos y Cómo Liberarse
+- La Conspiración de la Teoría de Conspiración
+- La Democrazia Borghese incontra "La Global Governance" - Elezioni 2020 in USA
+- La Desigualdad que Lleva a la Inestabilidad
+- La Élite Bancaria Está Comprando Todo el Agua del Mundo
+- La Élite Financiera y la Realeza Europea que está Apoyando a Donald Trump
+- La Élite Global está Demente
+- La Élite Global está siendo llevada al Centro de Detención de Guantánamo por Fuerzas Especiales USA
+- La Élite Global Sorprendida 'In Fraganti' cometiendo Crímenes Genocidas contra la Humanidad
+- La Élite paga Abiertamente para Ingerir la Sangre de los Jóvenes - Ya No Es una 'Teoría de la Conspiración'
+- La Élite son Mutantes
+- La Élite Tiene un Gran Temor de La Muerte
+- La Estafa de la Pandemia fue Muy Grande el Año Pasado - Esto es lo que Viene a Continuación...
+- La Federación Galáctica inició la Limpieza Planetaria
+- La FED - Es necesario Detener el Mayor Robo de Todos los Tiempos
+- La Fine dei Re
+- La Fuente de Nuestra Ira - La Élite Gobernante está Protegida de las Consecuencias de su Predominio
+- La Gobernanza de los Psicópatas
+- La Historia se Vuelve a Repetir
+- La Ley de la Selva es Muy Superior a la Ideología del Globalismo
+- La Maldad Triunfa
+- La Mitad de la Población Mundial perecerá en los Próximos 20 años - ¿Una Profecía? - Reprint de info del 2012
+- La Oligarquía de Siempre
+- La Psicopatía de la Codicia
+- La Relación entre el Despliegue de la OTAN, la Guerra Económica, Goldman Sachs y el Próximo Colapso...
+- La Resistencia No Es Inútil... ¡Es Fértil!
+- Las 20 Bases Religiosas de los Señores del Dinero
+- Las Élites Multicéfalas
+- La Sorte di Mubarak è Segnata - Fidel Castro
+- Las Razones de Porqué los Globalistas están Destinados a Perder
+- La Suerte de Mubarak Está Echada - Fidel Castro
+- La Tercera Guerra Mundial y el Control del Agua
+- Latin America and The Global Elite - Main File
+- La Trampa de Google - ¿Su Inteligencia Artificial está Manipulando Cerebros?
+- L'Attore Matt Damon Incita alla Disobbedienza Civile Globale
+- La Verdad detrás de la Pandemia de Coronavirus - Bloqueo Covid-19 y Colapso Económico - David Icke
+- La Verdad Detrás del Capitalismo
+- La Élite Bancaria sta Comprando Tutta l'Acqua del Mondo
+- La Élite paga Apertamente per Iniettarsi il Sangue dei Giovani non è più una "Teoria della Cospirazione
+- 'Líderes de la Cábala' van a la Antarctica para Rendirse a los Extraterrestres y a la Alianza de la Tierra
+- Llamemos a Las Cosas Por Su Nombre
+- Lo chiamano il 'Good Club' - E vogliono 'Salvare' il Mondo...
+- Look Up! Wake Up People! You are Being "Suicided in Warp Speed"
+- Lo que Hitchcock Enseñó a los 'Ingenieros Sociales'
+- Lo que la Ciencia dice sobre la Política
+- Los Anunnaki y sus Híbridos Humanos - La Elite Global
+- Los Dictados del Cambio Climático son Autodestructivos - Pero también forman Parte de una Agenda Mayor
+- Los Dioses del Dinero y Su Proyecto de un Nuevo Orden Mundial - El JuegoFinal Ha Empezado
+- Los Dueños del Imperio - El Vaticano, la Corona y el Distrito de Columbia
+- Los Elitistas Globales No Son Humanos
+- Los Globalistas están Admitiendo abiertamente 'Su Agenda de Control de la Población' - Y es una Mala Señal...
+- Los Globalistas han entrado en la Fase de Eliminación del Great Reset - ¿Recuerdas el Pronóstico de Deagle?
+- Los Globalistas publican el 'Cronograma de la Tiranía de la Salud'
+- Los Globalistas vienen por 'Tus Coches, Tu Dinero y Tu Integridad Corporal' - Si lo consiguen serán Dueños...
+- Los Líderes Mundiales acuerdan 'Etiquetar al Ganado' del Planeta
+- Los Lunáticos se han Apoderado del Asilo
+- Los Motivos por los cuales los Globalistas están Destinados a Perder
+- Los Multimillonarios de EE.UU. han Aumentado su Riqueza en 1,3 Billones de dólares durante la 'Pandemia'
+- Los Multimillonarios se Deshacen de sus Acciones - ¿Qué está Sucediendo?
+- Los Papeles de Pandora
+- Los Papeles de Pandora - EE.UU. es uno de los "Principales Actores del mundo 'Offshore'"
+- Los Planes de la Élite Global para Buscar Refugio
+- Los Políticos Como Empleados Corruptos del Poder Económico
+- Los Recovecos Nauseabundos de la 'República' Francesa - La Indecente Arrogancia de Ricos y Poderosos
+- Los Reptilianos y el Consejo de Los 13
+- Los Siete Objetivos para Reducir la Población mediante Leyes
+- Los Super Millonarios del Mundo huyen a Búnkeres en medio de la Crisis del Coronavirus
+- Los Títeres del Poder
+- Magia Negra y el Nuevo Orden Mundial - Los Satanistas Gobiernan el Mundo y No los Políticos, Banqueros...
+- Mass Depopulation, Genocide, WW-3?
+- Masters of Deceit - The Government's Propaganda of Fear, Mind Control and Brain Warfare
+- Max-Neef Cree que La Economía Neoliberal Mata Más Gente que Todos los Ejércitos Juntos
+- Meet The Firm
+- Meet the Secretive Committees that Run the Global Economy
+- Meet the Secret "Rulers" of The World - The Truth About The Bohemian Grove
+- Meet the World Money Power
+- Monkeypox - Technocracy's next wave of 'Crimes Against Humanity'
+- More Global Elite Psycho-Attitudes
+- Mubarak's Fate is Sealed - Reflections by Fidel Castro
+- Named Names of the Covid-19 Bioweapon Genocidal Killers
+- Navegando en el 'Cuarto Giro' - Estos son los Tiempos que prueban a las Almas de los Hombres
+- Navigating the 'Fourth Turning' - These are the Times that try Men's Souls
+- Neo-Liberalism seems to have Reached a Dead End
+- Neoliberalism - The 'Zombie Doctrine' at the Root of All Our Problems
+- Never Forget - For 2 Years, Tyrants Locked us Down, forcibly Medicated us, and Destroyed our Livelihoods
+- New "Dark Money" Documentary Shines Light into the Shadows Cast by the Super-Rich
+- New World Order - Main File
+- New World Order - The Endgame Has Begun
+- "No Confíen en las Élites - Se han Equivocado completamente con el Covid" - DeSantis Gobernador de Florida
+- No Hay Diferencia entre Psicópatas y Políticos - La Patocracia del 'Estado Profundo'
+- No Hay una Crisis Energética - Lindsey Willians: "Tras Años de Colapso, Su Intención Es Poseerlo Todo"
+- Nombran a los Criminales Genocidas detrás del Arma Biológica Covid-19
+- ¡NO te pongas a Dormir! ¡Este no es el Fin!
+- Nuestra Sociedad tiene los Mismos Síntomas que el Imperio Romano justo antes de su Caída - ¿Colapso...
+- Nuestros Malévolos Benefactores y su Plan Maestro para la Humanidad
+- 'Nuevo Sistema Alimentario Controlado' ya está en Marcha y No se Detendrán Ante Nada para Acelerar su...
+- Obama Impulsa una Serie de Tratados Secretos que Cambiarán el Mundo
+- Occult Activities at The Elite Bohemian Grove - in Northern California Exposed!
+- One Million North American Satanists Seeking Refuge From Expected Pogrom
+- On the Psychology of the 'Conspiracy Denier' - A closer Look at the Class that Mocks
+- Open Letter to Warren Buffett - Put Your Money Where Your Mouth Is
+- Order Out of Chaos - How the Ukraine Conflict is Designed to Benefit Globalists
+- Our 'Leaders' - Whose Sick Joke?
+- 'Our Oppressors are Very Frightened People' - Brian Gerrish's Testimony to Reiner Füllmich
+- Our Ruling Elites have No Idea how much we want to See Them All in Prison Jumpsuits
+- Our Society has the Same Symptoms as the Roman Empire just Before the Fall - Is a Collapse Inevitable?
+- Owners of Empire - The Vatican, the Crown and the District of Columbia
+- "Pandemic Treaty" will hand WHO keys to Global Government...!
+- Pandora Papers - Massive data leak Exposes World Leaders' Offshore Millions
+- 'Pandora Papers' - New Leaks reveal how World Leaders use Offshore companies to Dodge Millions of Dollars...
+- Papa Francesco pianifica di 'Risolvere' il Capitalismo Globale con l'aiuto dei Rothschilds, dei Rockfeller e...
+- Pasos para el Dominio Mundial: Primero, Destruir a la Humanidad...
+- Patocracia Global - Seguidores Autoritarios y la Esperanza del Mundo
+- Perché i Globalisti e i Governi sono così alla Disperata Ricerca di Tassi di Vaccinazione del 100%?
+- Perché quest'Anno Non Cambierà Nulla - Benvenuti ad un'altra stagione della "Sciarada"
+- Permacrisis - The New Normal
+- Plan for Mass Arrests 2012 - Memo to Wilcock, Drake, Fulford, Romanov, Daikaku
+- Plan Para El Control Total
+- Ponerology - The Science of Evil - Main File
+- Pope Francis plans to 'Fix' Global Capitalism - With the help of the Rothschilds, Rockerfellers and Mastercard
+- ¿Porqué están tan Histéricos los Políticos y Medios Españoles con la Victoria de Trump?
+- Porqué las Élites Aman los Drones
+- Porqué Nada Cambiará este Año - Bienvenidos a otra temporada de 'La Charada'
+- ¿Porqué Permitimos que Bancos Privados y ciertas Familias Controlen el Dinero del Mundo?
+- Possession is Nine Tenths of Your Soul
+- Post Encierro Covid-19 - La Jugada de Rockefeller
+- Post Lockdown - The Rockefeller Game Plan
+- Preventing a Disrupted Presidential Election and Transition
+- Propagando el Miedo - La Munición necesaria para Construir un 'Nuevo Orden Mundial'
+- Psicópatas y Psicopatía - Una "Rama" de La Ponerología - Main File
+- Psychopaths and Psychopathy - A Ponerological "Branch" - Main File
+- Puppets of Power
+- Putin Calls Out "The Powers That Be" and the "Imaginary and Mythical" Threats they Use to Control Us
+- Putin dice "I Ricchi Devono Pagare" per il Coronavirus
+- Putin says 'The Rich Must Pay' for the Coronavirus
+- ¿Qué es "El Gran Reinicio" y Quién lo Impulsa?
+- ¿Qué Pretende Realmente la Agenda 2030 y qué Podemos hacer Nosotros?
+- ¿Qué Saben esta Gente? - Imágenes del Bunker del "Juicio Final" para Multimillonarios
+- ¿Qué se Necesitaría para Construir 'Un Mundo Sin Globalistas'?
+- ¿Qué son los 'Pandora Papers'?
+- Questions for Washington D.C. 'Swamp Creatures'
+- ¿Quién Controla el Mundo? - La Alta Cábala...
+- Quien Controla el Suministro de Alimentos, Controla a la Gente
+- ¿Quién Dirige el Mundo? - Rincones Oscuros de las Secretas Potencias Mundiale
+- ¿Quiénes Son los Globalistas y Qué Es lo que Quieren?
+- ¿Quién Está Detrás de las "Noticias Falsas" - 'Fake News'?
+- Q: What's the Difference between a Politician and a Psychopath? - A: None
+- Reacción en la Cadena Alimentaria - Otra "Simulación" Globalista se hace Realidad
+- Real-Time Self-Assembly Structures revealed in 2-Year Study of Pfizer and Moderna Covid-19 Shots
+- "Reducir la Población Mundial" - Reunión Secreta en 2009 del Club de Multimillonarios 'Good Club'
+- Reiner Fuellmich's 'Grand Jury Court of Public Opinion' - Covid-19 Crimes Against Humanity
+- Reptilians and The Council of 13
+- Retrospectiva del Atentado contra Trump - ¿Beneficia a la Secta de la Dominación Mundial
+- Revealed - The Capitalist Network that Runs the World
+- Revealed what the 'Totalitarian Future Globalists' want for the Entire World
+- Revelación de los Objetivos Transhumanistas de la Elite
+- Revelaciones de Un 'Insider' de Una Familia Elite
+- Revelations of An Elite Family Insider
+- Revolution or World War III - The Road Through 2012
+- Ricchi e Buoni? - Le Trame Oscure del Filantrocapitalismo
+- "Robar No Merece la Pena"
+- Robber Barons - Revolution and Social Control
+- Rockefeller Admite 'El Gol de La Elite es Controlar La Población Mundial Con Microchips'
+- Rockefeller Admitted Elite Goal of Microchipped Population
+- Rockefeller Internationalism - Main File
+- Role of Secret Societies in Bringing Forth the Coveted 'New World Order'
+- Rothschild Crony Capitalist Summit Plots Against Free Markets
+- Ruptura en El Gobierno Mundial
+- Russia vs. Ucraina... e gli Anglo-Americani - La Dimensione Esoterica
+- Russia vs. Ukraine... and the Anglo-Americans - The Esoteric Dimension
+- Sanctions - Cut the Globalists Off From Humanity
+- Sanya Declaration - BRICS Leaders Meeting
+- ¿Se acerca ya el Ajuste de Cuentas? - El Genocidio del Covid-19 clama por un Tribunal Mundial Independiente
+- Secret Billionaire Club Seeks Population Control
+- Secretos Financieros al Descubierto - Publican los 'Papeles de Pandora', la Filtración más Extensa que...
+- Seis Problemas Fabricados que Están Detrás de Seis Importantes Agendas Mundialistas
+- Seizing Everything - The Theft of the Global Commons
+- ¿Se reunió la Élite Global en la Antarctica?
+- Seven Ways Republicans and Democrats are Exactly the Same!
+- ShadowPlay - 911 Puppetmasters
+- "Shrink the World's Population" - Secret 2009 Meeting of Billionaires "Good Club"
+- Six Manufactured Problems that are Behind Six Major Globalist Agendas
+- Slavery Ahead - The Technocratic Convergence of Humans and Data
+- Sobre Alienados, Soberbios y Manipuladores
+- Sobre la Psicología del 'Negador de Conspiraciones' - Una Mirada más cercana a la Clase que se Burla
+- Social Fragmentation Suits the Powers That Be
+- Some Implications of the World Company - A Bilderberg Document
+- Some Signs that the Global Elite's Ship is Sinking
+- Spreading Fear - The Ammunition Needed to Construct a 'New World Order'
+- Steps to World Rule: First, Destroy Humanity...
+- Supervivencia de los Más Ricos - Ellos no Creen que puedan Afectar el Futuro
+- "Survival of the Richest" - Researcher Douglas Rushkoff - AUDIO
+- Survival of the Richest - They don't believe they Can Affect the Future
+- Taking a Look Inside the Secret Leftist Billionaires Club
+- Techné, Terraformación y el Impulso Trascendental - Un Imperativo Evolutivo
+- Techne, Terraforming and the Transcendental Impulse - An Evolutionary Imperative
+- Technocratic Elite Domination via Mind Control and Mass Surveillance - Brzezinski called it 45 Years Ago
+- Thanks to 'Swiss Leaks' we Know How Much Money Rich People are Hiding from the World
+- The 2020-21 Worldwide Corona Crisis - The "Great Reset", Destroying Civil Society, Engineered Economic...
+- The Acceleration of A Global Gilded Age - Wealth Inequality Across The Globe
+- The "Amazing Tale" of How Three Billionaires Plunged the World into Climate Catastrophism
+- The Anunnaki - Main File
+- The Anunnaki and Their Human Hybrids - The Global Elite
+- The Bilderberg Group - Main File
+- The Bi-polar World of Rich Bankers - Wall Street "Take-Off" 2012-2013
+- The Black Nobility - Main File
+- The Brookings Report - Main File
+- The Brotherhood and The Manipulation of Society
+- The Building Blocks of Money
+- The Bushes' Clan and The New World Order - Main File
+- The Cartels that Run the World...
+- The Chaos "IS" The Plan...
+- The Clintons - America Politics - Main File
+- The Coming World Government - The Global Elite
+- The Conspiracy Theory Conspiracy
+- The Criminal Cabal is Creating Incidents Everywhere in A Bid to Start Martial Law in The West
+- The Critical Unraveling of U.S. Society
+- The Cults of Empire
+- The Dark Agenda Behind Globalism and Open Borders
+- The Dark History of The Vatican - Main File
+- The Debts Are Finally Being Called In and Those Who Thought They Were Gods Fall to Earth
+- The Documentary the 'Elites' Hope You Never See - 'Uninformed Consent'
+- The Doomsday Bunker for Billionaires
+- The Economic-Corporate Oligarchy of the World
+- The Economic Elite vs. The People of The United States of America
+- The Elite are Mutants
+- The Elite Coup to Kill or Enslave Us - Why can't Governments, Legal Actions and Protests Stop Them
+- The Elite Have a Great Fear of Death
+- The Elite Plan for A New World Social Order
+- The Elite's Drug Management - Main File
+- The Elite's Flawed Depopulation Agenda is Quickly Morphing into Genocide
+- The End of Excesses - The Collapse of Everything
+- The End of Kings
+- The Federal Reserve Cartel
+- The Fight For Health Freedom - Why Focus on Health Freedom? Because Our Future is Worth Protecting
+- The Final Battle for Humanity - It is 'Now or Never' in the 'Long War Against Homo Sapiens'
+- The Fire Power of the Financial Lobby - A Survey of the Size of the Financial Lobby at the EU level
+- The Five Pillars of the Elitist Parasite's Deranged Mindset
+- The Fruits of Elite Immunity - Fear That One Day Someone Will 'Pinochet' Dick Cheney
+- The Global Banking Cartel Has One Card Left to Play - The Road to World War III
+- The Global Elite is Insane
+- The Global Elite - Jeff Rense and David Icke
+- The Global Elite's Digital Agenda Played Out as Censorship and Cyber Warfare
+- The Global Elite's Plan for the Future - 4IR and the TransHumanist Endgame
+- The Global Elites' Secret Plan for Cryptocurrencies
+- The Global Elite - Who Are They?
+- The Global Hoax is rapidly Unraveling - HHS Documents admit the CDC has Never Isolated any "Covid-19 Virus"
+- The Globalists
+- The Globalists are 'Making Really Big Moves' which would fundamentally Change how our Society Operates
+- The Globalists are Openly Admitting to 'Their Population Control Agenda' - And that's a Bad Sign
+- The Globalists have a Major Problem - Behind Bilderberg, Trilateral, WEF...
+- The Globalist Vision - "15-Minute" Prison Cities and the End of Private Property
+- The Graveyard of the Elites
+- The Heart of Darkness - The Sexual Predators within America's Power Elite
+- The Hidden Hand of Controlled Opposition
+- The History of The Powers And Authorities - Of His Excellency Dr. Ray C. Dam
+- The Hunt Is On - Cabal Arrests Accelerating
+- The Illuminati - Main File
+- The Kissinger Continuum - The Unauthorized History of the WEF's 'Young Global Leaders Program'
+- The Left's Descent to Fascism
+- The Lunatics have Taken Over the Asylum
+- The Men Who Run the World - Inside the Global Power Elite's Quest for Domination
+- The Nexus of Evil - A Pre-emptive Strike on Humanity
+- The Oil-igarchs - How and Why Big Oil Conquered the World
+- The Original Pioneers of Mind Control on 'Why You Must Protect Your Mental Sovereignty Now'
+- The Origins of The Overclass
+- The Orsini Family - The MAXIMUS Clan
+- The Parasitical Elite - Defining The Shifting Enemy of The Common Man
+- The Plundering of Africa Explained in a Simple Way - A Mechanism that Sustains the West
+- The Power behind the Throne and the Bankers' Forever Wars
+- The Prince of Darkness Meets His World Elite
+- The Propaganda System that has Helped Create a Permanent Overclass is Over a Century in The Making
+- The Psychopathy of Greed
+- The Rapid Destruction of Countries
+- The Real 'Reset' is Coming
+- There are No Solutions - Impossible to Change the System from Within
+- The Reasons Why the Globalists are Destined to Lose
+- There is a 'Deafening Media Silence' on Global Protests
+- There is No Difference Between Psychopaths and Politicians - The Pathocracy of the Deep State
+- The Rothschilds - Main File
+- The Rulers of The World - A Project Avalon Video Interview
+- The Ruling Elite's Control System versus Our Awakening - Which One will Win?
+- The 'Science of Fear' - How the Elitists use it to Control Us and How to Break Free
+- "The Secret Group of Scientists and Billionaires pushing a 'Manhattan Project' for COVID-19" - A Look...
+- The Shadow Forces Behind the NWO - These 13 Families Rule the World
+- The Shadow Government
+- The Shadow War is Escalating Between the Banking Cabal and the Global Alliance
+- The Single Global Mafia
+- The Slithering Stealth of the Serpentine Invaders
+- The Source of our Rage - The Ruling Elite is Protected from the Consequences of its Dominance
+- The Structure of Power in American Society
+- The Tools the Elites Use to Manipulate People
+- The Trials of Henry Kissinger
+- The Trilateral Commission and Technocracy - A short 'Conspiracy-free' history of the New World Order
+- The Truth Behind Capitalism
+- The Truth behind the Coronavirus Pandemic - Covid-19 Lockdown and the Economic Crash
+- The Tyranny of Modern Scientism
+- 'The Ultimate Doomsday Escape' - California Entrepreneur Builds $1 Billion Bunker for Millionaires
+- The United Kingdom and Brexit - Main File
+- The Unspoken War and Silent Weapons - The Blueprint to Control
+- The Vulnerability of Elites - Geopolitical Risk in 2013
+- 'The Washington Post' told America of Globalist Plan to be Implemented by 2025
+- The World's New Order
+- The World's Richest 8% Earn Half of All Planetary Income
+- They're called the 'Good Club' - And they want to 'Save' the World...
+- Today's Oligarch Curtain of Lies, Theft, Death and Destruction are Exposed as Never Before
+- 'Todo lo que Contribuye a la Fragmentación facilita el Proyecto de Soros' - Carlos Astiz
+- Transforming the entire World into a Planetary Technocracy - The Geopolitics of Elite Insanity
+- Transhumans - Frozen Heads, New Blood, Computer Brains
+- Trilateral Commission - Main File
+- Triumph of the Beast vs. Triumph of the People - U.N. Agenda 2030 vs. The People
+- Trump and Brexit are Retaliation for Neoliberalism and Corruption
+- Trump y el Brexit son Represalias contra el Neoliberalismo y la Corrupción
+- Try to Contain Your Laughter - Prince Charles and Lady de Rothschild Team Up to Talk About 'Inclusive...
+- Twelve Challenges for a Post-Covid Shattered World
+- Two Years that Trampled on 'Freedoms earned over Centuries' - 'Junk Science' in the Service of Totalitarianism
+- UK Team File Complaint of 'Crimes Against Humanity' with the International Criminal Court
+- Una "Doctrina de Esclavos" para entender a Jefes y Empleados de Hoy - El Estoicismo ha Vuelto
+- Una Larga Conspiración - La Creación de La Tiranía Tecnocrática
+- Uncovering World-Tyranny and its War Strategies - David Icke
+- Understanding The Ruling Elite
+- Un "Enemigo Común" Colectivo acecha ahora a la Humanidad
+- Uno Studio Genealogico Dimostra che Hillary Clinton e Donald Trump sono Cugini alla Lontana
+- Viejos Planes para Nuevas Masacres
+- Violations of the Nurenberg Code - Covid Vaccines - by Hannah Rose and Team
+- Vladimir Putin en Guerra contra los "Straussianos"
+- War for Total Control - Planning the Ultimate 'Big Brother' Surveillance Society
+- War in the Middle East and The Rothschilds - Confidential Pentagon Memo: "Take Out 7 Countries..."
+- War Profiteering - A Cancer Upon America
+- Watch Putin's full Censored speech to the West warning of 'Corrupt Globalist Elites' pushing for World War
+- Wealth Concentration Drives a New Global Imperialism
+- Wealthy Technocrats are Subverting National Media
+- We are being Smashed Politically, Economically, Medically and Technologically by the Elite's 'Great Reset'
+- WEF Davos 2025 - More Grotesque than ever, Robotizing and Depopulating
+- Well-Funded Climate Activists waging Psychological Warfare on the Public
+- What do They Know? Why are So Many of The Super Wealthy Preparing Bug Out Locations?
+- What is 'The Great Reset' and who is Driving It?
+- What Replacing The Government of The Planet Means
+- What the Global Status Quo Optimizes - Protecting Elites and the Clerisy Class that Serves Them
+- What Will Happen When the Arrests Begin? - A Futuristic Picture of Mass Arrests, Critical Mass and...
+- What would it Take to Build a 'World Without Globalists'?
+- When the IMF Meets - Here's What Happened at the Global Plutocracy's Pow Wow in Peru
+- Who Are The Globalists and What Do They Want?
+- Who is Behind the Economic Collapse?
+- Who Rules the World? - A Portrait of the Global Leadership Class
+- Who Rules the World? - Dark Corners of Secretive Global Powers
+- Who Runs the World? - Solid Proof That a Core Group of Wealthy Elitists is Pulling The Strings
+- Who's Who of The Elite
+- Why are Globalists and Governments so Desperate for 100% Vaccination Rates?
+- Why are Most People Cowards? - Obedience and the Rise of Authoritarianism...
+- Why are They Doing It?
+- Why do mRNA Vaccines alter your DNA? - To make You Legal Property...!
+- Why do Some People Support Tyranny while others Defy It?
+- Why do We Allow Private Banks and Families to Control the World's Money?
+- Why Elites Love Drones
+- Why Nothing will Change this Year - Welcome to another Season of 'The Charade'
+- Why the "New World Order" is Impossible to Implement without 'Creating Mass Chaos'
+- Why We Must #ExposeBillGates
+- Will Gates, Rockefeller, Musk and Klaus Schwab prevail in the Class War? - Activists and Thinkers Speak Out
+- Working for The Few - Political Capture and Economic Inequality
+- World Bank Whistleblower Karen Hudes Reveals How the Global Elite Rule the World
+Additional Information
+- 12 Million Americans Are Sociopaths
+- 2008 World Corruption Perceptions Index
+- 2016 Candidates Must Build an 'Integrated' North America - CFR
+- 9-11 - Who Really Benefited? - Fact and Not Fiction...
+- Academic Oligarchy - Majority of Science Publishing is Controlled by Just Six Companies
+- A Deeper Understanding of Technocracy
+- After Losing Vote, U.S.-EU Threaten to Undermine Treaty to Prevent Human Rights Abuses by...
+- Agenda 21 in China and the Technocratic Vision for Global Dictatorship
+- Alcuni Stati degli USA cercano di deporre Fauci ed altri Alti Funzionari nel Caso della Censura BigTech del...
+- Al Gore and "An Inconvenient Truth"... - Main File
+- Algunas de las Grandes Ilusiones que Nos Mantienen Esclavizados a La Matrix
+- Algunas Razones por las que Creer en la Autoridad es la 'Superstición Más Peligrosa'
+- Alien Origins of Sociopathy - How Bloodlines Have Been Genetically Tweaked to Produce an Abundance...
+- All I Want for Christmas Is The Truth
+- Alternative 3 - The Saga Lives On - Main File
+- A March 31st Deadline Has Been Delivered to The Committee of 300 by The Gnostic "Illuminati" Faction
+- Amazon Sells Out of Orwell's '1984' as America Starts Paying Attention to What's Really Going On
+- America - A Sunset Empire
+- American Laws Most Americans Don't Know! - But Should Know!
+- An Open Letter to Wall Street
+- A Note of Appreciation from The Rich of The Global Elite
+- Antes del 2016 Puede Estallar una Revolución en EE.UU. - Advertencia de un Economista
+- Anunnakis y Fractal Universal
+- Anunnaki - The Elite and The Remnants
+- Archons in The News
+- Are these 100 People Killing the Planet?
+- Arquitectura para El Nuevo Orden Mundial - La Pirámide de "La PAX y La Conciliación"
+- Artificial Intelligence (AI) will Serve Humans - But Only about 1% of Them
+- A Short History of The Round Table
+- Así es La Nueva Elite - Indignante Opinión sobre los Pobres de un Joven Empresario de EE.UU.
+- A Timeline of CIA Atrocities
+- Avatar - American Terrorists Invade a New World
+- Avatar - Terroristas Estadounidenses Invaden un Nuevo Mundo
+- Beyond The Manufactured Apocalypse
+- Big Tech 'Indenture entire Populations into Servitude' to Corporations and Governments - Snowden
+- Bill Clinton Was Not Even Allowed Out of The Plane When He Arrived in Japan Seeking Money Last Week
+- Billionaires Dumping Stocks - Economist Knows Why
+- Brain Dead Obama
+- Brussels Bombing Psyop a Victory for the Ruling Elite and Global Police State
+- Business Culture and Dishonesty in The Banking Industry
+- By Refusing to Relinquish Power, The Cabal Will Face Lynch Mobs
+- Cabal Resorting to Desperate Tactics As They Try to Prevent Reboot of Financial System
+- Cabal Struggles Desperately to Create Fascist World Government as Multiple Criminal Investigations...
+- Capitalism's New Era
+- Carta al Pueblo Estadounidense Acerca de Ucrania
+- Catherine Austin Fitts on Wall Street's Corruption, The Austrian School and Who's 'Really' in Charge
+- Changes in U.S. Family Finances from 2010 to 2013 - Evidence from the Survey of Consumer Finances
+- China Lockdowns leading to 'Total Control of Population'
+- Chosen Leaders, Proven Failures and Political Debacles
+- CIA - The Central Intelligence Agency - Main File
+- Climate Alarmist Admits the Real Motive Behind 'Warming Scare' is Redistribution of Wealth
+- CNN Director admitting that his Network is "Propaganda"
+- Collapse is 'A Process', Not an Event - How does one 'Get Ahead' during Hard Times
+- Cómo las Pandemias del 'Pasado y Presente' alimentan el Auge de las Mega Corporaciones
+- Comprendere più Profondamente la Tecnocrazia
+- Conciencia COVID - ¿Un Contagioso Despertar o una Realidad Consensuada?
+- Contact by a Rothschild's Family Descendant?
+- Corrupt Regimes Crumble When The Foot Soldiers Refuse to Carry Out The Tyrant's Draconian Orders
+- Could Humans One Day Live to 500? That's what a Group of Eccentric Billionaires Believe
+- COVID Consciousness - A Contagion of Awakening or a Consensus Reality?
+- CPI - Corruption Perception Index 2009
+- CPI - Corruption Perception Index 2020 - Global Highlights
+- Crashing Finances
+- ¿Cuán Fascistas son Los Estados Unidos? - Diez Indicadores del Fascismo
+- Dark Rulers are Trying to Suppress our Ascension
+- David Icke on Terrorism, 'Totalitarian Tiptoe' and The Coming Post-Industrial Technocracy
+- Debt = Serfdom
+- Declaración Conjunta Sobre Wikileaks - ONU y CIDH
+- De La Servidumbre Moderna
+- Del Porqué El Gobierno Mundial En La Sombra Destruye Su Propio Planeta de Origen
+- Demented Democracy
+- Democracy's Fatal Flaw: Us...
+- Depopulation and the mRNA Vaccine
+- Der Sturz der Satanistischen Verschwörer (Kabalen) ist weiter glatt am Laufen
+- Despoblación y Vacunas de ARNm
+- Dialogo Con Un Autoproclamado Illuminati - "Hidden Hand"
+- Dialogue With a Self-Proclaimed Illuminati Insider - "Hidden Hand"
+- Distrust in Governments Growing - Survey Finds
+- Do Reptilian-Human Hybrids Run Our World? - The Biggest Secret
+- Dreams of Empire Ruined
+- Ecco come Riescono i Figli dell'Elite a farsi Assumere nei Lavori d'Elite
+- Echo Down and the Tunnel Men
+- El Colapso de Los Sistemas Astral y Físico
+- El Colapso es 'Un Proceso', no un Evento - ¿Cómo hacemos para 'Salir Adelante' en Tiempos Difíciles?
+- El Covid-19 ha Envalentonado a nuestros 'Censores' Modernos
+- El Covid-19 podría ser el Detonador del Peor Sistema Totalitario de la Historia - Afirma Yuval Noah Harari
+- El Culto al Oro - ¿Porqué se Fueron los Dioses, y porqué iban a Regresar?
+- El Ex-Agente de la CIA que Llama a La Revolución Global - Robert Steele
+- El Fin de La Democracia Programada
+- El Fin Del Capitalismo - Según Wallerstein
+- El Gran Teatro - ¿Que hay Detrás de La Falsa Pugna entre Putin y Occidente?
+- Elite Panicking? - Independent Media has More Power than Mainstream Media
+- Elites "Going Rogue" suggests the Global Neoliberal Architecture is Collapsing
+- Elite Underground
+- El Jaque Mate - Informaciones Para Materializar Un Mundo Nuevo
+- El Lado Oscuro de las Irrupciones - 'La Economía Gig' es el Nuevo Término para 'Servidumbre'
+- El Mal Escondido - Medios y Técnicas Para Desacreditar
+- El Mapa de La Hambruna Mundial y Del Apocalipsis Social
+- El Mayor Secreto de Cambio en El Mundo - Jake Simpson
+- El Nuevo Orden Mundial y el Gran Reset
+- Elon Musk en Épico Discurso expone el Control de la Oligarquía de los Medios de Comunicación
+- Elon Musk just Exposed the Oil Oligarchy's Control over Mainstream Media in Epic Rant
+- El Padre de la Propaganda Moderna de la Élite Gobernante - Edward Bernays
+- El Poder - La Pregunta Que Todos Nos Hacemos - ¿Por qué? ¿Para qué? ¿Cuál es el Ultimo Eslabón?...
+- El Poder Político de Facebook
+- El por qué Fauci y la Cábala Mundial insisten en Vacunar a tus Hijos...
+- El Sistema Se Autodestruye - Señales del Apocalipsis
+- Empower Yourself to Fight The Power
+- EndGame - JuegoFinal - Main File
+- Entendiendo y Desmantelando El Sistema de Control Global
+- Estafando Al Ladrón
+- Esta Vez Estamos Cargándonos con Nosotros Al Planeta Entero
+- Estudio muestra que los Ricos dicen Más Mentiras y son Menos Éticos que los Pobres
+- Eugenesia, Despoblación y la Mentalidad de la Élite
+- Eugenesia - El Sostén de la Psicopática Mentalidad de la Élite
+- Eugenics and Population Control - How The 85 Richest see The 3.5 Billion Poorest
+- Eugenics - Buttress of the Psychopathic Elite Mindset
+- Eugenics, Depopulation and The Elite Mindset
+- Expendable - Sacrificing Humanity for Corruption in Australia
+- Extraño Informe Advierte sobre "Epidemia de Disturbios Globales"
+- Facebook says its 'Rules Apply to All' - Company Documents reveal a Secret Elite that's Exempt
+- Facts that Privileged Americans don't want Us to Know
+- False East/West Paradigm Hides the Rise of Global Currency
+- False Flag Attacks Part of Global Elite's Plan for Tyrannical Police State
+- False Flag Event in Syria - The Third Force and Exopolitics
+- Fatti che Gli Statunitensi Privilegiati Non vogliono farci Sapere
+- Federally Funded Boffins Want To Scrap The Internet
+- FED Plan to Bring Private Armies Into U.S. Will Be Stopped
+- Financial Warfare Against Russia, Multibillion Dollar Bonanza for Wall Street - The Malaysian Airlines MH17
+- Five Reasons Obama is A Proven Stooge of The Elite
+- Follow the Money - How the Monetary System is Rigged to Enslave Humanity
+- Food Crisis A Conspiracy? - Silent Tsunami
+- For our Rulers, Smearing a Dissident Journalist like Julian Assange is as Good as Killing Him
+- Galactic Federation attacks on Corporate Satellites and Mars Exodus - Update
+- "Gate Rape" of America
+- Genetically Modified Politicians
+- Genetic Engineering, Eugenics and The Ideology of The Rich - Social Control in The 21st Century
+- Globalists Pull Plug on KONY 2012 with Spectacular Crash and Burn
+- Globalización y Militarización - La Causa Raíz de la Guerra a Nivel Mundial contra la Humanidad
+- Globalization and The Who's Who of the New Ruling Elite
+- Global Justice or World Domination
+- Global Leadership Project (GLP)
+- Global Population - Predictions 1
+- Global Population - Predictions 2
+- God's Algorithm
+- Google y La Ultima Trampa para Proteger a Los Poderosos
+- Governing Elites Think We're All Morons - New Study
+- Government Protects Criminals by Attacking Whistleblowers
+- Hechos que los Estadounidenses Privilegiados no Quieren que Sepamos
+- Hey, Hey, Hey, Ha, Ha, Ha... They Think It's All Happening by Accident... Hey, Hey, Hey, Ha, Ha, Ha...
+- Hippocratic Hypocrisy - A Tale of Two Snakes
+- Historia de la Educación Obligatoria - Sistema de Adoctrinamiento
+- Hitler and The Banksters - The Abolition of Interest-Servitude
+- How Access to Information can Make or Break the Elite Stranglehold
+- How Long Do the Vaccinated Have to Live?
+- How Much CO² is in a Raindrop? The Ocean? The Air?
+- How Pandemics 'Past and Present' fuel the Rise of Mega-Corporations
+- How Real Mind Control Works
+- How to Run the World - Mega-Diplomacy - The New World Order
+- "Human Beings Have No Right to Water" and Other Words of Wisdom from Your 'Friendly' Neighborhood...
+- Human Race Get Off Your Knees!
+- Identity Politics = Totalitarianism
+- Iguales: Acabemos con la desigualdad extrema - Es hora de cambiar las reglas
+- Il Culto del Covid e i 10 Piani di Genocidio
+- Il Padre della Propaganda Moderna dell'Elite che Governa - Edward Bernays
+- I'm Just Sayin...
+- Imperio Reciclado - Porqué Obama Hace Lo Mismo Que Bush - Las Líneas Matrices
+- Industry "Weapons" for Earth's Depopulation - Main File
+- Información Actualizada del Futuro Inmediato - Marielalero
+- In The Shadow of The Dragon
+- Is India's 100 Smart Cities Project a Recipe for Social Apartheid?
+- Is It Fear of Uprisings or Altruistic Punishment?
+- Is Science Only for The Rich?
+- Is the WHO an Undercover Terrorist Organization?
+- JFK, RFK, and MLK, Were All Killed by The Same Forces
+- Joined Dots and Spontaneous Synchronicity...
+- Joint Statement on Wikileaks - UN and IACHR
+- Just How Fascist is The U.S.? - Ten Indicators of Fascism
+- Killing the Biosphere to Fast-track Human Extinction
+- Killing the Culture of Death
+- Kim Yong Il Asesinado Como Parte de La Lucha Asiática por El Poder
+- Kim Jong Il Murdered as Part of Major Asian Power Battle
+- KONY 2012 Part 2 - License for Imperial Conquest
+- KONY 2012 Psy-Op Collapsing
+- La Algo-Matrix y los ETs - La Tierra Como una Iniciativa Extraterrestre
+- La Casta de Clases
+- La Chiave Omerica e il Grande Segreto de il Potere nell'Ombra
+- La Ciencia 'Oficial' - Otra Religión Creada por los Controladores
+- La City de Londres - Una Ciudad dentro de Otra
+- La Clave Homérica y el Gran Secreto del Poder en la Sombra
+- La "Crisis de la Democracia" y el Ataque a la Educación
+- La Dictadura del Futuro - Los Magnates Invierten sus Fortunas en Alcanzar la Vida Eterna
+- La Esterilización con Vacunas de Niños Escolares Mexicanos en 1974 - Elites Quieren Eliminar a los...
+- ¿La Élite en Pánico? - Los Medios de Comunicación Independientes tienen Más Poder que los Medios de...
+- La Extraña Casualidad de "Los 500 Días para el Caos Climático
+- La Fase Apocalittica della Tecnocrazia e del Transumanesimo - In Arrivo Presto
+- La Fragilità della Democrazia - Atene e i "Trenta Tiranni"
+- La Guerra Global contra los Niños
+- La Historia de 'Usar Niñas para Promover Agendas Políticas'
+- La Institución Más Ridícula del Mundo
+- La Manera de Superar la Conspiración
+- La Mente Crédula Explicada
+- La Moda que Cambiará el Mundo
+- La 'Nueva Era' es una Religión de Sueño de las "Élites"
+- La Reingeniería de la Vida y Cómo Prevenirla
+- Las 10 Grandes Teorías de la Conspiración de 2014
+- "Las Crisis Están Creadas para Beneficiar a los Ricos" - Dice Nobel de Economía 2015
+- Las Dos Caras de La Misma Moneda - Obama-McCain
+- La Senda de la Obnubilación
+- Las Llamadas Democracias...
+- Las Universidades del Capitalismo y el Imperio - Entrevista a James Petras
+- La Tierra Para Quien la Trabaja
+- La Tiranía Escondida - Entrevista en 1976 a Harold W. Rosenthal
+- La Trampa Está en la "Solución"
+- Libertad, Igualdad, Fraternidad - Providencia, Milagro o Lo Que Realmente Sucedió
+- Liberté, Egalité, Fraternité - Providence, Miracle or What Really Happened
+- "Lockstep" - Written 10 years ago Chronicles how to Bring the World Down with a Pandemic
+- Lo que Piensas está Controlado por lo que Miras - Y lo que Miras está Controlado por la Élite
+- Los Bancos y el Estado
+- Los Juicios de Henry Kissinger
+- Los Poderosos Usan el Conocimiento Esotérico Mientras lo Mantienen Alejado de la Humanidad
+- Luxembourg Takes the Heat, but the World's Worst Tax Haven - The City of London - Remains Unscathed
+- Mainstream Science - Another Religion Created by The Controllers
+- Majestic Project - MJ-12 - Main File
+- Major Realignment of Power Taking Place in Asia
+- Maneras en que la Élite Global Manipula Nuestra Percepción de la Realidad
+- Mathematical Model Explains How Complex Societies Emerge, Collapse
+- Meaning of Life Questions - A Speculative Look at The Big Picture of Life in The Universe
+- Medios y Técnicas Para Desacreditar - El Mal Escondido
+- Meet The World Money Power
+- Me he "Apropiado" 492.000 Euros de Quienes Más Nos Roban Para Denunciarlos y Construir Alter...
+- Mind Control - It's All Around You!
+- Monsanto's 'Partnership' With The Actual U.S. Presidential Candidates
+- Naming Names - Your Real Government
+- Nation of 65 Million Gets Lesson on Globalist Agenda - Thailand Local Media Mogul Gives 2 Hour Talk...
+- 'New Age' is a Dream Religion of the "Elites"
+- New Freedom - Something For Everyone
+- Newly Released Obama Birth Certificate Forensic Forgery - Washington Times Report
+- New Studies say 'Conspiracy Theorists' Sane - Government Dupes Crazy and Hostile
+- New York Times Says "Lack of Major Wars may be Hurting Economic Growth"
+- Noam Chomsky - Contra el Nuevo Orden Mundial - Main File
+- Noam Chomsky - Top 10 Media Manipulation Strategies
+- Noam Chomsky y Las 10 Estrategias de Manipulación Mediática
+- Non Studierai Mai a Harvard anche se tuo Padre può Pagare
+- No Privacy, No Property - 'The World in 2030' according to the WEF
+- Nunca Estudiarás en Harvard aunque tu Padre pueda Pagarlo
+- "Nuremberg Trials" for The Banksters
+- Obama's Birth Certificate - Not The Issue
+- Official Culture in America - A Natural State of Psychopathy?
+- Old Religious Hegemony, NWO - Jesus to the Palestinians: "Love One Another" / God to the Jews: "Get..."
+- On Modern Servitude
+- Orígenes Alienígenas de La Sociopatía - Cómo Los Linajes han Sido Genéticamente Ajustados para...
+- Orwell's Ideas remain Relevant 75 years after 'Animal Farm' was Published
+- "Our Politicians Are Money Launderers in The Trafficking of Power and Policy" - Bill Moyers
+- Outer Space Cult Popular Among Tech's Biggest Billionaires
+- Overwhelming The Illusion
+- Paradigm Lost as The Western Oligarch's Lies Unravel
+- Periódico Oficialista advierte que la Robotización podría conducir a Guerras de Clase y Genocidio
+- Plan 'B' of The Powers That Were
+- Planean las Primeras Ciudades Solo Para las Élites
+- Plato and the Disaster of Democracy
+- Played by the Ruling Elite's Control System - It's Time for a New Paradigm
+- Political Violence Contagion - A Framework for Understanding the Emergence and Spread of Civil Unrest
+- Populace of USA - Transition Into Reformation - Predictions
+- 'Population Control Quotes' Show the Elites are Quite Eager to Reduce the Number of People on the Planet
+- Porqué nos Desprecian Los Gobernantes - Análisis Shock...
+- Porqué Nos Quieren Llevar a una Tercera Guerra Mundial...
+- ¿Porqué se Siente como si el Mundo se Hubiera Vuelto Loco? - El Dominó y la Caída
+- Privatization and Land Grabbing in Spain - Land For Those Who Work It!
+- Projecting Evil Onto Russia
+- Putin to Western Elites: Play-Time is Over
+- Racism and U.S. War - Iraq Veteran
+- Read Between The Lines - Hollywood Mogul Buys 2,600 Acres of Farmland - Moving to New Zealand
+- Reality Check
+- Regime Change at The IMF - The Frame-Up of Dominique Strauss-Kahn?
+- Rhetoric of Change - Among Politicians, Actors, and Preachers
+- Rich Americans Are Fleeing the Country
+- Ríndete al Nuevo Imperio
+- Sarkozy and Soros Send Negotiator to Visit White Dragon Society But Talks Inconclusive
+- Satanic Cabal Threatens to Make San Francisco and Damascus "Uninhabitable"
+- Satanic Reality
+- Scenarios for The Future of Technology and International Development
+- Se Acabaron los Juegos - El Mensaje de Putin a las Élites Occidentales
+- Secret Meeting of 57 Finance Ministers on Ship Charts New Financial System
+- Seven Stumbling Blocks on the Road to Higher Consciousness
+- Siete Escollos en el Camino hacia una Conciencia Más Elevada
+- Siga el Dinero - Cómo el Sistema Monetario está Amañado para Esclavizar a la Humanidad
+- Signos de que las Élites de EE.UU. se Preparan para "Algo Grande"
+- Silicon Valley está Construyendo un Sistema de Crédito Social al estilo de China
+- Simultaneous Military, G7 and BIS Summits Point to Something Big
+- Smart Cities in Mumbai
+- Social Transformation - The Truth Behind Capitalism Decoded
+- Sólo les Importa el Costo Político
+- Some Grand Illusions that Keep us Enslaved to The Matrix
+- Some Reasons why Belief in Authority is the 'Most Dangerous Superstition'
+- Space-Based Technocracy - Asgardia Exceeds 1,000,000 Citizens
+- States Seek to Depose Fauci - Other Top Officials in Big Tech-Government Censorship Case
+- Superando La Ilusión
+- Tactics Used by the Mainstream Media to Manufacture Consent for the Oligarchy
+- Te Controlan Para Dominarte Mejor - Tu Peor Enemigo es Tu Cabeza
+- Ten Reasons America Will Be Judged as The Most Brutal Empire in History
+- Terrified of Freedom - Why most Human Beings are Embracing the Global Elite's Technotyranny
+- The Algo-Matrix and the ETs - Earth as an Alien Enterprise
+- The Apocalyptic Phase of Technocracy and Transhumanism - Coming Soon...
+- The Architecture of History - How the World Has Been Set-Up: Proof Revision
+- The Ascendancy of The Scientific Dictatorship
+- The Assets of The World
+- The Atlantean Conspiracy - Exposing the Illuminati - from Atlantis to 2012
+- The Biggest World Change Secret - Jake Simpson
+- The Bilderbergers and The New World Disorder - Lawmakers Finally Get Earful About Global Government
+- The Bush Impeachment Movement - Main File
+- The Class Caste
+- The Class Pay Gap in Higher Professional and Managerial Occupations
+- The Class War Has Begun
+- The Collapse of Astral and Physical Systems
+- The Covid Cult and the 10 Stages of Genocide
+- The Dark Side of Disruption - 'The Gig Economy' is the New Term for Serfdom
+- The Demon-cratic Cryptocracy "Puppet Show" Book - How the New World Order Cult Communicates...
+- The Economic Elite Vs. The People of the United States of America
+- The Elite chose "Alternative 3"
+- The Elites Had to Have The Branch Davidian Village Eliminated Because...
+- The Elkhorn Manifesto - Shadow of The Swastika - The Real Reason the Government Won't Debate Med...
+- The End of The New World Order
+- The Eve of Destruction
+- The Extortion System of The Ruling Elite
+- The 'Fake News' and 'Russian Propaganda' Psyops - Censorship and Information Control in the NWO
+- The Four Business Gangs That Run The U.S.
+- The Fragility of Democracy - Athens and the 'Thirty Tyrants'
+- The Game That Goes On and On - A Swiss Bank, A President and The Permanent Government
+- The Gemstone Papers - A Skeleton Key
+- The Global Dominance Group - 9/11 Pre-Warnings & Election Irregularities in Context
+- The Global Protests - A Riddle Wrapped in A Mystery Inside An Enigma
+- The Global War on Children
+- The Gullible Mind Explained
+- The Hard Road to World Order
+- The Hidden Tyranny - The Harold Wallace Rosenthal Interview 1976
+- The History of Using Children to Push for Agendas
+- The Lack of Major Wars May Be Hurting Economic Growth
+- The Lesson Offered by the Dark Ones
+- The New World Order and The Rise of The East
+- The Next Presidential 2016 Election Will Move the World Closer to War
+- The Perfect No-Prosecution Crime
+- The Phoenix Will Arise From The Ashes of The Old World Order
+- The Piece of The Puzzle 'They' Always Leave Out - Post 9/11 Conspiracy Theory Remains Disconnected...
+- The Plan to Divide and Conquer America at The New Madrid Fault - And How We Can Remain Free of...
+- The Power Elite's Use of Wars And Crises
+- The Powerful Use Esoteric Knowledge while Keeping It from Humanity - Empower Yourself by Awakening...
+- The Project for The New American Century
+- The Real Agenda of The Gates Foundation
+- The Really Creepy People Behind the Libertarian-Inspired Billionaire Sea Castles
+- The Real Reason Behind The 9-11 Terror Was a Battle for Control of The Global Collateral Accounts
+- The Reengineering of Life and How to Prevent It
+- The Rise of Global Governance
+- The Road from Rome - The Fall of the Roman Empire wasn't a Tragedy for Civilization
+- The Rockefeller Plan
+- The Serpentine Stealth of The Long Range Planners
+- The Slow Fuse Will Keep Burning Through July
+- The Stone is Lifting... On "The Group"
+- The Story Behind "Changing Images of Man" - Scientists On Acid
+- The Strategic Battle for Lithium - Huge Reserves in Bolivia, Argentina, Chile
+- The Takedown of The Satanic Cabal Is Proceeding Smoothly
+- The Telltale Signs of Imperial Decline
+- The Third Force
+- The Third Force Begins its Take-Down of Mystery Babylon - Secret Space War X
+- The Truth Behind FED's Alarming Wealth Distribution Report
+- The U.S. Dictatorship and Its White House Servant 'President'
+- The U.S. versus the World - A Majority of One, a Minority of 192 in UN General Assembly Resolutions
+- The War Is Over... And We Won
+- The Way to Overcome the Conspiracy
+- This Time We're Taking The Whole Planet With Us
+- Tiranos, Cuidado - 2012 Podría Ser el Año de Consecuencias Imprevistas
+- Top Secret America - A Hidden World Growing Beyond Control
+- Total Health Tyranny - The Year's Biggest Story No One is Talking About
+- Toward a North American Union
+- Transformación Social - Decodificada la Verdad Detrás del Capitalismo
+- Truth, Propaganda and Media Manipulation
+- Tunnels to At Least 13 Underground Bases Being Sealed Off
+- Two Faces of The Same Coin - Obama-McCain Presidential Candidates of The Global Elite
+- Tyrants Beware - 2012 Could Be The Year of Unintended Consequences
+- Una Comprensión más Profunda de la Tecnocracia
+- Una Nota de Aprecio de Los Ricos de La Elite Global
+- Una Realidad Satánica
+- Una Revolución Increíble que te han Ocultado y que Debes Conocer - La Revolución del Coco
+- "Unavoidable" Dystopian Future for World's Biggest Cities - Pentagon Video Warns
+- Understanding and Dismantling The Global Control System
+- United Nations "Education for All" - The Elite Mono-Minding Global Plans for All Children
+- United Nations Tackles Mental Disorders - Supervise World Sanity Via 'People's Charter for Mental Health?'
+- U.S. Addicted to Oil - An Ominous Drilling Sign for The Truth
+- U.S. Presidents Charged With Crimes Against Humanity as Universal Jurisdiction Dies in Spain
+- U.S. to Start 'Trade Wars' With Nations Opposed to Monsanto, GMO Crops - Leaked Information
+- Un Estudio de La Fundación Rockefeller Analiza La "Década de La Fatalidad" - Desastres Naturales...
+- Un Estudio Psicológico Demoledor sobre La Mente de Los Banqueros
+- Verschwörer Kämpfen Verzweifelt um Erreichung der Weltherrschaft
+- Visualizing The World's Rich
+- Vocero del Clima Admite que Verdadero Motivo del 'Miedo del Calentamiento' es Re-Distribución de la...
+- Vuelve La Era de Los Politburós - Comité Central
+- Wall Street Aristocracy Got $1.2 Trillion in Fed's Secret Loans
+- Wall Street Bankster Soros to Open "Official Presence" in Myanmar
+- Warum sind die Dokumente der Thinktanks der Globalisten öffentlich?
+- Washington D.C. - The Secret History of America's Capital - Main File
+- Ways the Global Elite Manipulate our Perception of Reality
+- Wealth - Having it All and Wanting More
+- We are The "Delta" Types of Huxley's 'Brave New World'
+- Welcome to 2030 - 'I Own Nothing, Have No Privacy, and Life has Never Been Better'
+- Welcome to the Grand Tour of the Washington Swamp...!
+- Western Bankers Threatened Japan With HAARP Eco-Destruction a Year Before China Quakes
+- Western Elites and The Threat of Mass Starvation
+- What on Earth is Happening to Our Planet?
+- What You Think is Controlled by What You Watch - And What You Watch is Controlled by The Elite...
+- When Empire Hits Home
+- Who Really Runs The World - An overview of what's behind the "New World Order"
+- Why Are Globalist Think-Tank Documents Public?
+- Why Does The World Shadow Government Destroy Its Own Home-Planet?
+- Why Don't The Corrupt Players on Wall Street and in D.C. Show Remorse for Their Destructive Actions
+- Why Ex-Federal Government and Wall Street Executives are Going Into Hiding
+- Why the Revolution Must Start in America - Chris Hedges's Endgame Strategy
+- Why the World Feels Like It's Going Crazy - The Dominos and the Fall
+- Why WikiLeaks Is Good for Democracy
+- Working for the Few - Political Capture and Economic Inequality
+- World Changes - Project Camelot Interviews
+- World Government Chart
+- World of Resistance (WOR) Report
+- Year in Review - Our Top Ten Conspiracies of 2014
+- Young Blood Reverses Age-Related Impairments in Cognitive Function and Synaptic Plasticity in Mice
+- Y tras Los BRICS Llega el N-11 - Otra Pieza Mas en el Gran Engaño
+- Zeitgeist - Main File
+BlackRock-Vanguard
+- Assault on Humanity - The Corruption is Real and Sickening - Video
+- At BlackRock we are Forcing Behaviors - Video
+- Blackrock and Vanguard rake in Billions - Omicron Variant makes Moderna and Pfizer shareholders more than...
+- BlackRock CEO says 'Xenophobic' Countries with Shrinking Populations may be the 'Big Winners' in AI-Driven...
+- BlackRock quita apoyo a los objetivos "ambientalistas" de la ONU y se retira del programa 'Net Zero Asset...'
+- Cómo BlackRock Conquistó el Mundo
+- El Complejo Militar-Financiero que se Alimenta de la Sangre de las Guerras y Controla a los Estados Unidos
+- El Pulpo del Complejo Financiero-Digital - Desvelando el 'Pulpo Financiero'
+- JFK Exposes the Truth about the Ukraine War
+- JFK ha esposto la Verità sulla Guerra di Ucraina
+- Only Two Companies, Vanguard and BlackRock, Control the Planet - While World's Richest 1% Own 82% of...
+- Protestas contra Macron - En París Manifestantes toman sede de BlackRock el Mayor fondo financiero Mundial
+- Rise of the Climate Oligarchs
+- The Corruption is Real and Sickening
+- The Investment Sector - The Case of BlackRock, Inc.
+- The Long Shadow of BlackRock
+- The Same Shady People Own Big Pharma and the Media - BlackRock-Vanguard
+- Who Owns the World?
+- Who Really Profits from the Ukraine War?
+- Who will eventually 'Own Everything' including You?
+- 'World Economic Forum' was Created by U.S. Policies
+Collectivism - Colectivismo
+- Are Individuals The Property of The Collective?
+- La Guerra Es La Paz - Teoría y Práctica del Colectivismo Oligarquico
+- The Collectivist Conspiracy - G. Edward Griffin
+- The Future is Calling
+- War is Peace - The Theory & Practice of Oligarchical Collectivism
+Multimedia:
+- How the "Greater Good" is Used as a 'Tool of Social Control'
+- Thrive 1 - ¿Cuánto le Costará al Planeta?
+- Thrive 1 - What on Earth Will it Take?
+- Thrive 2 - This is What it Takes
+Corporatism-Corporatocracy / Corporativismo-Corporatocracia
+- Are Corporations Masquerading as Government in Australia and World Wide?
+- Can The Corporate Media Turn Lies Into Truth?
+- "Casino Jack and The United States of Money" - A Look at Corporate Money and Politics - DemocracyNow!
+- Corporatism and the Ghost of the Third Way
+- Corporatism - A System of Control Designed by The Monopoly Men of The Global Elite
+- Crunch Time for the Global Corporatocracy
+- ¿Desarrollo Sostenible o Explotación Sostenible...?
+- El Nuevo Orden Mundial del Papa Francisco - Vaticano utiliza 'Iniciativa Rothschild' para Reformar el Capitalismo
+- FinCEN Files Investigations from across Asia
+- From Bill Gates to "The Great Refusal" - Farmers on the Frontline
+- From Global Depression to Global Governance - The Role of The Corporate Elites' Secretive Global Think...
+- Future of Corporatism in 2016
+- Il Nuovo Ordine Mondiale di Papa Francesco - Vaticano usa "Iniziativa dei Rothschild" per riformare il Capitalismo
+- La Tiranía de la Tecnocracia - La Nueva Normalidad No Es Normal
+- Los Archivos Filtrados - Bancos Globales sirven a Oligarcas, Narcotraficantes y Terroristas en medio de un...
+- Los Complejos Industriales del Siglo 21 - Fascismo y el Führer, Marcas de Corporativismo
+- Pact for the Future - A Planetary Technocracy to Manage Global Crises on behalf of the Global Corporatocracy
+- Political and Corporate Elite Shun GM Food on Their Own Plate
+- Pope Francis's New World Order - The Vatican is using a 'Rothschild Initiative' to reform Capitalism
+- Previniendo la Tercera Guerra Mundial - Las Fuerzas Corporativas que impulsan la Crisis en Ucrania son...
+- Technocracy's Tyranny - The New Normal Isn't Normal
+- The Corporation - The Pathological Pursuit of Profit and Power
+- The First Corporation
+- The Neo-Imperialist Corporatist Order and the "Men Behind the Curtain"
+- The Network of Global Corporate Control
+- The Real Consequences of Corporatism, "Smart" Grid and Corrupt Government
+- The Rise of 'Corporate Nations'
+- These 25 Companies are More Powerful than Many Countries
+- The Spartacus Letter
+- The Trans Pacific Partnership (TPP) and Why it's Nothing but A Corporate Takeover
+- The United States Isn't a Country - It's a Corporation!
+- The UN's "Pact for the Future" translated from the 'Globalese'
+- The Wolves of Psycho Street - America's Economic Enslavement by the Psychopathic Corporate Elite
+- Veinte Realidades Sombrías desenterradas por los Confinamientos del Covid
+- Welcome to 'Life Inside a New World Order'
+- What Is The Basis For Corporate Personhood?
+- The Corporation
+- 'The Corporation' - Instituciones o Psicópatas
+Coup d'État - Cambios de Regimen
+- A Coup without Firing a Shot
+- Are you Ready for the Revolution?
+- Cómo contar con un Golpe contra 'Los Dioses'
+- Cómo Sobrevivir a un Cambio de Régimen
+- El Golpe de Estado Mundial
+- How a 'Private Coup' in Venezuela funded by U.S. Billionaires Fell Apart
+- How to Count Coup on 'The Gods'
+- Sei Pronto per la Rivoluzione?
+- The Global Coup d'Etat
+- The Global Elite and The Coronavirus Coup D'état with Patrick Wood
+Europe
+- Anger Builds in Italy as Old Guard Plots Fresh Technocrat Take-Over
+- "Bribes Are Necessary - They Are Not Crimes" - Berlusconi Says
+- Britain's Royal Wedding - A Big Day For The Global Oligarchy
+- Britain's Royal Wedding Fiasco and Its "Dirty little Secret" in Bahrain
+- Cuerpo sin Vida Encontrado en El Patio Delantero Real Levanta Preguntas Acerca de Las Vidas Perso...
+- Dead Body Found on Royal Front Lawn Raises Questions About Personal Lives of The Elite
+- Euro Elite Using Financial Crisis to Centralize Power
+- EU's Recipe for The United States of Europe and Seizure of Our Money Through Homemade "Crises"
+- EU-US Trade Pact Can Halt West's Decline - Brzezinski Says
+- Farage Unleashed - "You Are Common Criminals"
+- Fear of 'Nuremberg Trials' for Corrupt Italian Politicians
+- Former Italian PM Berlusconi Gets 1-Year Reduced Sentence for Fraud
+- Hologramas de La Política
+- Italy Paralyzed as Grillo Plots Exit Route from Euro
+- Leaked 1955 Bilderberg Document Outline Plan For Single European Currency
+- Political Union In Europe - Governance Of, By, And For The Elite
+- Prince Bernhard of The Netherlands - Personal Background and His Part in Starting the Bilderberg...
+- Reducen a 1 Año la Pena de Cárcel a Berlusconi por Fraude
+- Ridotta a 1 Anno la Pena di Carcere a Berlusconi per Frode
+- The British Establishment - Pedophiles Everywhere
+- The European Union Is a Neo-Feudal Kleptocracy - 500 Million Debt-Serfs
+- The Long Story - The British Establishment
+- There is No Way Out for Europe
+- España, Reino Unido y Australia a la Vanguardia del 'Totalitarismo Global'
+- Kincora - How an Establishment Pedophile Ring Leads to The Monarchy, MI5 and the Rothschilds
+Feudalism
+- Feudalism and the "Algorithmic Economy" - Using AI and Algorithms to Return to Feudal Economic Models
+- I Nuovi Signori Feudali
+- Los Nuevos Señores Feudales
+- Origin of Technocracy - Neofeudalism, Peasants and Pitchforks
+- Neofeudalism and Peasants with Pitchforks - Corporate Power Destroys Democracy
+- Serfdom and The Feudal System - What's Old is New Again
+Jeffrey Epstein and the Global Elite - Jeffrey Epstein y la Elite Global
+- Bill Clinton and The Pedophile - The Sex Scandal that Could Destroy Hillary's Presidential Ambitions
+- List of 71 'Clinton Associates' who Died Mysteriously or Committed 'Suicide' before Testimony
+- Los Nombres y Apellidos del Libro Negro de Epstein
+- Meet Bill Gates
+- RFK Jr. - Another 'Former Associate' with Jeffrey Epstein Files to Run for U.S. President in 2024 - Addendums
+- RFK Jr. - Un altro "Ex Collaboratore" con Jeffrey Epstein si presenta per candidarsi come Presidente USA 2024
+- Royal Family implicated in Billionaire Pedophile Scandal as Court Case begins in Florida
+- The Clintons built a 'Global Trafficking Empire' through War Zones, Fake NGOs, and Epstein's...
+- The Truth about Bill Gates, Microsoft, and Jeffrey Epstein - The Cover-Up Continues
+Plutocracy-Oligarchy
+- 1984/2024 - La Esperanza Oculta en la Advertencia de Orwell
+- 1984/2024 - The Hidden Hope in Orwell's Warning
+- A 'Biden Presidency' would be a Dream Scenario for our Corporate Overlords
+- ¿Amarás tu Servidumbre?
+- Beware, Fellow Plutocrats, the Pitchforks are Coming - Nick Hanauer
+- Bilderberg 2023 - Junto a Henry Kissinger, los 'Dueños del Mundo' debaten la Guerra en Ucrania
+- Central Bankers Plan for Master Reset into 'Green Economy'
+- Climate Lockdowns are Coming
+- Close-Knit Financial Oligarchy Controls All Major Corporations
+- Corruption in America - by Zephyr Teachout
+- Cuidado, Compañeros Plutócratas, las Horcas están Llegando - Nick Hanauer
+- Dictatorship in Disguise - Authoritarian Monsters Wreak Havoc on Our Freedoms
+- El Dólar es una Herramienta para Castigar a los Países del Tercer Mundo
+- El extraño Descubrimiento del 'Poder de las Grandes Fortunas' en la Política
+- El Reinado Plutocrático Mundial - Busca mantener a la Inmensa Mayoría en un nivel de "Pobreza Sostenible"
+- From Democracy to Plutocracy - The United States of Corporate America
+- Grand Corruption as a Systemic-Parasite upon Society - High Crimes and Cabals
+- Hegemony and Propaganda - Love Your Servitude...!
+- La Lucha de Joe Biden por la "Democracia"
+- Las Horcas están Llegando... para Nosotros los Plutócratas - Carta Abierta de Un Multimillonario
+- L'Esecuzione sta Arrivando ... per Noi i Plutocrati - Lettera Aperta di Un Multimilionario
+- Message to all Plutocrats - A Declaration of Emergence
+- Mission Creep - How the Police State acclimates us to being 'Modern-Day Slaves'
+- Of Foxes and Chickens - Oligarchy and Global Power in the UN Security Council - by James A. Paul
+- Oligarchy and The War on Individualism
+- Oligarchy - by Jeffrey Winters
+- Our Protected, Predatory Oligarchy - Dirty Secrets, Dirty Lies
+- Philanthropy Is The Enemy of Justice
+- Plutocrats vs. Oligarchs - America's Superrich and The Influence They Wield
+- Prospering in the Pandemic - The Top 100 Companies - Financial Times
+- Rockefeller Internationalism
+- Rothschilds pianificò il Covid-19 nel 2015 - Ufficio Brevetti degli Stati Uniti...
+- Rothschilds planned Covid-19 in 2015 - U.S. Patent Office...
+- Testing Theories of American Politics - Elites, Interest Groups, and Average Citizens
+- The 5 Step Recovery Program for Plutocrats
+- The Cabal - A Geoplutocratic "Elite" Bent On Global Domination
+- The Global Banking System - Main File
+- The Oligarch Takeover of U.S. Media
+- The Pitchforks are Coming for Us Plutocrats
+- The Purpose of War According to George Orwell in "1984"
+- Universal Basic Income + Automation + Plutocracy = Dystopia...
+- U.S. No Longer an Actual Democracy - Princeton Study
+- Will You Love Your Servitude...?
+- El Futuro Nos Pertenece - ¡Por La Libertad...!
+- Plutocracy - Political Repression in the U.S.A.
+- Plutocracy II - Solidarity Forever
+Technocrats Billionaires - Space and More / Tecnócratas Billonarios
+- Actualización de la Estructura de SC - El Sistema de Control 2024
+- Did Bezos, Branson and Musk secretly Travel to Jupiter for Negotiations with the Galactic Federation?
+- Elon Musk and Twitter-'X' - Main File
+- El Poder Fáctico No se Esconde - Elon Musk mueve sus Fichas en Latinoamérica
+- Four Billionaire Technocrats are Creating an Alternate, Autocratic Reality
+- Harvard shuts Bill Gates-funded Geoengineering Project to Preserve Climate Narrative
+- Health Officials admit Bill Gates runs the World
+- Hungría aprueba la Ley "Stop Soros" - Se ilegalizarán ONGs financiadas desde el Extranjero que atenten...
+- La Fortuna de Zuckerberg creció 6 Veces por esta razón...
+- La Industria del Futuro es la Vigilancia, el Control y la Represión
+- Los intereses de EE.UU. y Elon Musk en Venezuela
+- L'Ungheria approva la Legge "Stop a Soros" - Saranno illegali le ONG finanziate dall'Estero che attentano...
+- Millones responden a Encuesta que Pregunta si el Foro Económico Mundial debería "Controlar el Mundo"
+- No Farmers, No Food...! - A Global Food Crisis is Coming...
+- 'PayPal Mafia' - La Historia de un Grupo de colegas que ha acabado dominando el Sector Tecnológico
+- Peter Thiel is revealed as the 'Master Architect of the Technocratic Takeover' of Washington, D.C.
+- Technocrat Billionaires Plot Leaving 'Dying' Earth
+- Ten Reasons why Human Flourishing has Reversed
+- The Names and Faces - The 150 Bilderbergers who Influenced and Controlled the Response to COVID-19
+- The Strange Story of Peter Thiel
+- U.S. Grounds Virgin Galactic after Space Flight 'Mishap'
+- Vaccine Billionaires and Human Guinea Pigs
+- What does Palantir actually Do?
+- Windows-Microsoft-Bill Gates - Main File
+- No Farmers, No Food
+The Panama Papers
+- Confessions of a Panama Papers Hit Man
+- Detrás de los Papeles de Panamá - La Mayor Estafa de la Historia
+- Dietro i Panama Papers - La più Colossale Truffa del Pianeta
+- Fabricated Putin Link to Leaked Panama Papers - Secret Offshore Money
+- Guess what Occupation is Most Frequently Cited in The Panama Papers?
+- How Reporters Pulled Off the Panama Papers - The Biggest Leak in Whistleblower History
+- Non Lasciarti Ingannare - Questo è l'Obiettivo Finale dei "Documenti di Panama"
+- No te Dejes Engañar - Este es el Objetivo Final de los "Papeles de Panamá
+- ¿Qué se Esconde Realmente Tras los "Papeles de Panamá"?
+- Qué se Esconde tras los Escándalos de Evasión Fiscal
+- Selective Leaks of The "Panama Papers" Create Huge Blackmail Potential
+- The Panama Papers - Biggest Leak in History Exposes Global Corruption
+- The Panama Papers - What Happens when Corruption is Systemic
+Universal Basic Income - La Renta Básica Universal
+- Finland abandons Universal Basic Income Experiment after Two Years
+- La Clase Inútil - El Significado de la Vida Sin Trabajo y una Renta Básica Universal
+- La Classe Inutile - Il Significato della Vita Senza Lavoro e un Reddito di Base Universale
+- La Terrible Verdad que se Oculta tras la Renta Básica Universal
+- The Useless Class - The Meaning of Life with No Work and a Universal Basic Income
+- Universal Basic Income Spreading Like Wildfire - Now Finland...
+Wealth Inequality - Desigualdad de Riqueza
+- América Latina Repiensa su Desarrollo para Superar la Desigualdad
+- An Economy for the 1% - How Privilege and Power in the Economy drive Extreme Inequality and how this...
+- An Economy for the 99 %
+- Architects of Power - How the Global Elite "Profit from Extreme Inequality" and Pre-empt the Backlash
+- At the Crossroads of Humanity's Future - The Steps towards the Universal Human Nation
+- Billionaires' Combined Wealth has reached a Record $10.2 Trillion - Thanks to Covid-19
+- By 2030 Richest 1% will Own 66% of All Wealth
+- Combined Wealth of World's Billionaires Now Tops $6 Trillion, and Rising Fast...
+- Cómo la Desigualdad está Aniquilando a la Humanidad
+- Cómo Nacen las 'Aristocracias'
+- Cómo Perú Deslumbró al Mundo al Reducir más de 50% de la Pobreza en 10 Años
+- Crece la Desigualdad entre Ricos y Pobres
+- Crece Percepción de Distribución Injusta de la Riqueza entre Latinoamericanos
+- Despite Global Economy Plummeting into Despair, Mega Banks Boast All-Time Record Profits
+- El 1% Más Rico acumula casi el Doble de Riqueza que el resto del Mundo - Crece la Desigualdad
+- El 1% - ¿Porqué Insistimos en Mentirnos a Nosotros Mismos?
+- El Círculo Vicioso de la Concentración de la Riqueza
+- Elites, Not the "Ignorant Masses", Pose the Greatest Threat to Global Society
+- Elites vs. Deplorables - The US is now a Two-tier Nation
+- El País Latinoamericano que ha Sacado de la Pobreza a 7 Millones de Personas en 5 Años - Perú
+- Entro il 2030 l'1% più Ricco Possiederà il 66% di Tutta la Ricchezza
+- Gap Between Rich and Poor Manipulated to be Wider and Wider
+- Globalization's Few Winners and Many Losers
+- Global Poverty in an Unequal World - Who is Considered Poor?
+- How 'Aristocracies' are Born
+- How Inequality is Killing Off Humanity
+- How The "1%" Will Escape?
+- Il Circolo Vizioso della Concentrazione di Ricchezza
+- Il Gap tra il Ricco e il Povero è più Grande che Mai - La Frustrazione sta Crescendo a Livelli molto Pericolosi
+- Inequality's Getting Worse - How Do We End This
+- In Stunning Reversal IMF Blames Globalization for Spreading Inequality - It Causes Market Crashes
+- La Desigualdad Atenta contra la Democracia
+- La Desigualdad es Cada Día Peor - ¿Cómo Podemos Ponerle Fin a Esto?
+- La Desigualdad Social se Basa en las Leyes de la Física - Según una Nueva Teoría
+- La Diseguaglianza Peggiora Sempre di Più - Come Possiamo Mettere Fine a Tutto Ciò?
+- La Familia Rothschild es Cinco Veces Más Rica que los Primeros 8 Multimillonarios del Mundo Juntos
+- La Fortuna de los 26 Más Ricos del Mundo equivale a la de 3.800 Millones de Pobres
+- La Globalización de los Pocos Ganadores y Muchos Perdedores
+- Las Elites y No las Masas Ignorantes son la Mayor Amenaza para la Sociedad Global
+- Los Hábitos de Ahorro del 1% de los Super-Ricos exacerban la Deuda del 90 % de la Población - Estudio
+- Mapa de la Desigualdad muestra los Países con Más Grande Brecha entre Ricos y Pobres
+- Mappa della Diseguaglianza mostra i Paesi con il maggior divario tra Ricchi e Poveri
+- Más Ricos en la 'Pandemia'...
+- Millionaires Now Control Half of the World's Personal Wealth
+- Ocho Empresarios Acumulan la Riqueza de la Mitad del Mundo - Reporte Oxfam sobre la Desigualdad
+- Only Apocalyptic Destruction can Eliminate the Gap Between Rich and Poor - Historian Says
+- People in Financial Stress behave more Morally
+- Porqué Estamos en 'Una Nueva Edad Dorada'
+- Public Good or Private Wealth?
+- ¿Qué está Mal con el 1%?
+- ¿Quién tiene más Empatía, un Rico o un Pobre? - Estudio
+- Richest 1% Will Own More than All The Rest by 2016
+- The 1% - Why Do We Insist on Lying to Ourselves?
+- The Gap Between the Rich and the Poor is Larger than Ever - Frustration is Growing to Very Dangerous Levels
+- The Global 1% - Exposing The Transnational Ruling Class
+- The Great Leveler - Violence and the History of Inequality from the Stone Age to the 20th... - by Walter Scheidel
+- The History of the 'End of Poverty' has just Begun
+- The Open Source Revolution is Coming and It Will Conquer the 1% - Ex CIA Spy Says
+- The Richest 0.1% Have Launched a War on Us - It's Time to Fight Back and Hold These 400 Billionaires...
+- The Super-Wealthy have a Problem
+- The Top 1% Own... Half
+- The Vicious Circle of Wealth Concentration
+- "Todos vs. el 1%" - Vandana Shiva desenmascara la Agenda Multimillonaria
+- Una Economía para el 99 %
+- Under 'Real Capitalism' Billionaires shouldn't Exist
+- U.S. Billionaires 'Gained $1 Trillion' since the Pandemic Started
+- Wealth Gap - 10% of Americans Own 91% - But the Queen and Rothschilds Still Own Almost Everything...
+- Wealth Inequality - The Physics Basis
+- What is Wrong with The 1%?
+- While Poorest Scapegoated, analysis of 25 World's Wealthiest Families a Reminder of Inequality's Economic...
+- Why Billionaires Need Society more than Society Needs Billionaires
+- World's Billionaires became 20% Richer in 2017 - Report Reveals
+- World's Wealthiest People Now Richer Than Before The 2008 Credit Crunch
+DAVOS:
+- 2021 - El "Gran Reinicio" de Davos
+- A New Problem Emerges for The Davos Elite
+- "A New System" - Inside the Davos Summit 2023
+- 'Build Back Better' and the Great Reset - A Respectable 'Conspiracy'
+- Conservative Speaker slams Davos Globalists to their Faces
+- Conspiracy Theories Aside - There is something Fishy about the 'Great Reset'
+- "Cooperation" in Triggering "Depopulation" and a "Fractured World" - Prelude to the 2023 WEF Davos Meetings
+- Covid Failed to do 'the Job' - Bill Gates is making a Second Run at Culling the Population
+- Dangerous Thought Control from the World Economic Forum
+- Davos - A 'Family Reunion' of People who Broke the World
+- Davos Attendee admits to WEF Elites that 'Trump Won' and Globalists Lost
+- Davos boss Klaus Schwab Steps Down - A 'symbol' of Globalization...
+- Davos e la Globalizzazione in Crisi - Al World Economic Forum dominano le Autocrazie
+- Davos Elite Seeks Fixes to Defend the System from Populists
+- Davos - La Fuente de Los Problemas Económicos
+- Davos People - Source of Economic Problems, Not a Solution
+- Davos se está Convirtiendo cada vez más en un 'Gobierno Mundial No Electo' - La Gente nunca pidió y No...
+- Defeating the Demons of Davos
+- El Cardenal Müller advierte contra el "Gran Reset" promovido en Davos por los "Amos del Mundo"
+- El Discurso de Javier Milei en el Foro de Davos 2024
+- El FEM, el Gran Reinicio y sus Cerebros - ¿Existe una Conspiración Mundial después de todo...?
+- El Foro de Davos 2024 incluye "Preparación para la Enfermedad X" con presencia de Tedros Ghebreyesus
+- El Futuro 'Orwelliano' que los Expertos en Tecnología Plantean en la Cumbre de Davos 2015
+- "El Gran Reinicio" y la Revolución Post-Capitalista
+- Elites meet to 'Plan Your Health' - The Role of the Council on Foreign Relations
+- El Peligroso 'Control de los Pensamientos' del Foro Económico Mundial
+- Estos serán los Representantes de América Latina en Davos
+- Foro de Davos 2025 - Cuáles serán los Temas este año y quiénes los Principales Invitados
+- Foro de Davos investiga a Klaus Schwab - Uso de Fondos del Organismo para pagar "Masajes Privados"
+- Gates and Kissinger - On Same Path to Population Control
+- Gates e Kissinger - Lo stesso Cammino per il Controllo della Popolazione
+- Geneva - The Head of the Snake
+- Gran Reseat? - Putin ha detto: "Non così in Fretta" - Il Presidente Russo ha rilasciato un'Intervista al WEF
+- Great Reset? Putin Says, 'Not So Fast' - Russian President delivers Speech at 'Virtual WEF'
+- Green Governance to 'Save the World' - Davos 2013
+- Have Authoritarians used '1984' as a Handbook?
+- Henry Kissinger at WEF Annual Meeting - Davos 2022 - Main Geopolitical Challenges facing the World right Now
+- Hiperconcentración de la Riqueza y Expansión de la Pobreza - Actores de Davos Continúan Constru...
+- I Leader del Mondo chiedono più Globalizzazione per 'Risolvere' la 'Pandemia' Globale
+- Ivermectin could have Saved Millions of Lives - Why was it Suppressed...?
+- Klaus Schwab dimite a los 88 años como Presidente del Foro Económico Mundial (FEM) de Davos
+- La Invasión de Rusia a Ucrania ¿hace parte de 'El Plan'...?
+- Lawyers promise 'Nuremberg Trials' Against all behind COVID Scam
+- Legal Team wants 'Second Nuremberg Tribunal' to try Global Lockdown Promoters for Crimes Against Humanity
+- L'invasione della Russia in Ucraina fa Parte del 'Piano'...?
+- Los Líderes de los Países y la Sombría Agenda de Control de Davos - Parte 1
+- Los Líderes de los Países y la Sombría Agenda de Control de Davos - Parte 2
+- Los Líderes de los Países y la Sombría Agenda de Control de Davos - Parte 3
+- No hubo 'Pandemia'
+- Nuremberg 2.0 - Update on legal proceedings against the CDC, WHO and Davos Group
+- Nuremberg Trial 2.0' is in Preparation - WHO and World Leaders will have to Answer for 'Crimes Against...'
+- Pedro Castillo detenido y asumió Dina Boluarte, referente de la "Izquierda Caviar" del Perú aliada a Davos
+- Presidenta de Perú Dina Boluarte miente en Davos 2025
+- Putin Blasts World Economic Forum (W.E.F.) Big Shots at Davos Backchat
+- Sconfiggere i Demoni di Davos
+- Segundo Juicio de Nuremberg - Reiner Fuellmich anticipa una Victoria de la Humanidad
+- Sex, Drugs and Do-Gooders - Inside the so-called 'Superbowl of Capitalism' at the Annual WEF Davos Gathering
+- 'Silent Fear' - Party of Davos Founder Emergency DC Meeting to Discuss How to Handle Donald Trump
+- The Dark Origins of the Davos Great Reset
+- The Dark Origins of the Great Reset and the Fraud that is Klaus Schwab
+- The Davos Revolution and the Re-Making of Civilization
+- "The Great Reset" and the Post-Capitalist Revolution
+- The Great Reset Snakes are Slithering together in Davos
+- There Was No 'Pandemic' - An essay by Denis Rancourt
+- Trilateral Commission Member Larry Fink to Co-Lead the World Economic Forum (WEF)
+- Una Carta Abierta a la 'Multitud' de Davos...
+- The WEF Reveals the Agenda for Davos 2023
+- Vladimir Putin avverte sul Dominio "Big Tech" degli USA - Davos
+- Vladimir Putin warns of US 'Big Tech' Dominance - Davos
+- WEF-Davos 2024 - The World is Falling Apart but the Show Must Go On...
+- WEF Davos 2025 - Più Grottesco che mai, Robotizzazione e Spopolamento
+- WEF Davos - La Nuova Sodoma e Gomorra?
+- WEF Davos - The New Sodom and Gomorrah?
+- WEF views Trump and Putin as 'Major Threat' to Globalist Agenda - Davos Insider Reveals
+- What is the 'Global Public-Private Partnership'
+- What we Learned at Davos 2024 - Global Aristocracy intends on 'Rebuilding Trust' through Surveillance and...
+- What you Need to Know about Agenda 2030 - The Globalist Overlords meeting in Davos
+- Why THEY Need World War III
+- World Economic Forum believes People are "Useless Eaters" - Views their "Brains and Bodies" as product...
+- World Economic Forum opens New Probe into Founder Klaus Schwab
+- World Leaders Call for More Globalization to 'Solve' Global 'Pandemic'
+- World's Elite Discuss 'The Davos Plan' to Capitalize on Coronavirus and Roll Out the NWO
+- Decifrare Davos - Gioco Finale Globale
+- Decoding Davos - The Global Endgame
+- El Gran Flujo de Dinero - Como los Ricos se vuelven Mas Ricos
+- El Gran Reseteo - Documental
+- "El Gran Reseteo" - La Película Completa
+- En Busca de la Verdad - Volver a las Grandes Preguntas
+- George Soros llama a "Derrotar a Putin o No Sobreviviremos" - ¿Qué prepara la Elite Global en Davos?
+- Inequality - How Wealth Becomes Power
+- The Gap Between Rich and Poor - The Divide
+- The Great Reset - Documentary
+- The Money Deluge - How the Rich get Richer - Money in the World Economy
+- The One Percent
+Books-Treatises
+- 13 Bloodlines of The Illuminati - by Fritz Springmeier
+- A Government of Wolves - The Emerging American Police State - by John W. Whitehead
+- Architects of Deception - by Jüri Lina
+- Armas Silenciosas Para Guerras Secretas - Un Manual Introductorio de Programación
+- Armas Silenciosas Para Guerras Tranquilas - autor desconocido
+- Arquitectos del Engaño - por Jüri Lina
+- A Theory of Socialism and Capitalism - by Hans-Hermann Hoppe
+- Brave New World - by Aldous Huxley
+- Brave New World Revisited - by Aldous Huxley
+- Changing Images 2000 - Integral Approaches to Re-Imagining and... - by Thomas Hurley
+- Changing Images of Man - by Joseph Cambell, Duane Elgin, Willis Harman, Arthur Hastings, O. W. Markley
+- Children of The Matrix - by David Icke
+- Connectome - How the Brain's Wiring Makes Us Who We Are - by Sebastian Seung
+- Controligarchs - Exposing the Billionaire Class, their Secret Deals, and the Globalist Plot to... - by Seamus Bruner
+- De la Servidumbre Moderna - por Jean François Brient
+- ¡Despierta! - Cómo las Élites están Controlando el Mundo - por Fernando Paz
+- El Capital en el Siglo XXI - por Thomas Piketty
+- El Discurso de la Servidumbre Voluntaria - by Étienne de La Boétie
+- Estos Mataron a Kennedy! - Reportaje A Un Golpe De Estado - por Robinson Rojas
+- Giants - The Global Power Elite - by Peter Phillips
+- Guide to Surviving and Thriving during an Economic Collapse - by Nick Giambruno and Jeff Thomas
+- Historia y Estructura Oculta del Poder Mundial - por Fausto Frank
+- How to Prevent the Next Pandemic - by Bill Gates
+- Infected - by J.D. Morvan and Huang Jia Wei - EU Publications
+- Killing Hope - U.S. Military and CIA Interventions since World War II - by William Blum
+- Kissinger - The Secret Side of The Secretary of State - by Gary Allen
+- La Doctrina del Shock - El Auge del Capitalismo del Desastre - por Naomi Klein
+- Matrix of Power - How The World Has Been Controlled By Powerful People Without... - by Jordan Maxwell
+- Nadie Se Atreve A Llamarle Conspiración - por Gary Allen y Larry Abraham
+- None Dare Call It Conspiracy - by Gary Allen and Larry Abraham
+- Occult Theocrasy - by Lady Queenborough
+- One Nation Under Blackmail - Vol. 1 and Vol. 2 - by Whitney A. Webb
+- Oneness vs. the 1% - Shattering Illusions, Seeding Freedom - by Vandana Shiva
+- On Modern Servitude - by Jean François Brient
+- Order Out of Chaos - Elite Sponsored Terrorism and the New World Order - by Paul Joseph Watson
+- Propaganda - by Edward L. Bernays
+- RFK Jr and the Dark Side of the Dream - by Jerry Oppenheimer
+- Shaping the Future of The Fourth Industrial Revolution - by Klaus Schwab
+- Silent Weapons for Quiet Wars - unknown author
+- Soy Yo - Soy Libre - Guía del Robot Para la Libertad - por David Icke
+- The Code to The Matrix - by James Evans Bomær III
+- The Contrarian - Peter Thiel and Silicon Valley's Pursuit of Power - by Max Chafkin
+- The Corporation - The Pathological Pursuit of Profit and Power - by Joel Bakan
+- The Fourth Industrial Revolution - by Klaus Schwab
+- The Hidden Evil - The Financial Elite's Covert War Against The Civilian Population - by Mark M. Rich
+- The Impact of Science on Society - by Bertrand Russell
+- The Master and His Emissary - The Divided Brain and the Making of the Western World - by Iain McGilchrist
+- The Most Dangerous Superstition - by Larken Rose
+- The Origins of Totalitarianism - by Hannah Arendt
+- The Politics of Obedience - The Discourse of Voluntary Servitude - by Étienne de La Boétie
+- The Power Elite - by C. Wright Mills
+- The Question Concerning Technology - by Martin Heidegger
+- The Shape of Things to Come - by H.G. Wells
+- The Treason of the Experts - Covid and the Credentialed Class - by Thomas Harrington
+- The World Order - A Study in the Hegemony of Parasitism - by Eustace Mullins
+- Trilaterals Over Washington - by Antony C. Sutton and Patrick M. Wood
+- Un Mundo Feliz - por Aldous Huxley
+- Western Hostility to Russia - The hidden Background to War in Ukraine - by Terry M. Boardman
+Multimedia
+- 13 Illuminati Bloodlines and Mind Control
+- 2da Cumbre Covid-19 Global - Líderes Mundiales dicen 'lo mismo' con un Único Mensaje - ¿Porque será...?
+- 2012 - Jaque Mate a La Humanidad - Checkmate to Humanity
+- Abolishing Capitalism
+- Agenda 21 - The Depopulation Agenda for A New World Order
+- Agenda "Esoterica" - Esoteric Agenda
+- Amazing Speech by War Veteran
+- An Inconvenient Death - A Documentary on The Death of The Working Class
+- Apartheid Did Not Die
+- Are Spike Proteins being Released onto Cities? - Dr. Lee Merritt
+- Así Funciona El Mundo
+- Asombroso Discurso de Un Veterano de Guerra
+- Big Pharma's Nano Tech Rape of All Humanity?
+- Bill Gates nos Pone al Corriente de los Planes de la Élite
+- Camino a La Libertad - El Viaje de La Humanidad desde el 7000BC hasta el 2012AD - David Icke
+- Casino Jack and The United States of Money
+- Childhood Under Siege - How Big Business Targets Children
+- Cimática - La Continuation de Agenda Esotérica
+- Cómo Rockefeller fundó la Medicina Moderna y Acabó con las Curas Naturales - Clip
+- Conectando los Puntos hacia el Amor Propio - David Icke y las Vacuna
+- Connecting the Dots towards Self-Love - David Icke and Vaccines
+- Conspiracy of Silence
+- Conspiracy Theory - 2012 - Jesse Ventura
+- Dark Money
+- David Icke - Melbourne 2009 - Human Race Get Off Your Knees!
+- Deja de Ser Alimento - El Cerebro Reptiliano
+- Democracy in Shambles - "Money First, People Second... If At All" - Bill Moyers
+- Despertar Masivo - Manifiesto a Favor de la Libertad de los Seres Humanos
+- Dick Cheney and David Rockefeller on The Council of Americas - 2002
+- Dirty Secrets of The Bush's and The Clinton's
+- Do You Hear The People Sing
+- Draquila - L'Italia Che Trema
+- El Banquero
+- El Dinero Nunca ha sido tan Barato - El Gran Flujo de Dinero
+- El Fin de La Democracia
+- Elite Undeniably Engaged in Poisoning The Masses - Slow Kill Holocaust
+- El Pacto Reptil
+- El Papa - Vacunarse es un "Acto de Amor"
+- 'El Plan' - Foro Económico Mundial y Otros...
+- El Proyecto Matriz - Presentacion Multimedia
+- Endgame - Blueprint for Global Enslavement - with Alex Jones - Subtitulos en Español
+- Entrevista a Rashid Buttar - Covid-19 y el Engaño a Nivel Mundial
+- Fall of The Cabal - The New World Order
+- Fall of The Republic - The Presidency of Barack H. Obama
+- Fork in The Road - "They" Want To Trigger World War III - David Icke
+- Four Horsemen
+- Freemason Technocrat Elon Musk
+- Globalización y Globalismo - Una Gran Diferencia - Miklos Lukacs en Radio RCN
+- Google's Jigsaw to Be Used to Undermine Alternative Media?
+- Guerra Psicológica
+- Hillary Clinton - A Movie
+- Historic Interview With Aaron Russo on The Agenda of The Global Elite
+- How the Elite Stay in Power
+- How they Pulled Off the 'Pandemic' - An Animated Film Explanation by David Icke
+- HyperNormalisation
+- Igualdad y Fiscalidad - Menos Impuestos a los que Más Tienen
+- Il Monopolio - Chi Possiede il Mondo?
+- Interview with Rashid Buttar - Covid-19 and Global Deceit
+- Into The Fire
+- Iraq for Sale - The War Profiteers
+- Jaque Mate - El Periódico Que Sólo Saldrá Una Vez
+- John Perkins "Confessions of an Economic Hitman" - Extended Interview 2008
+- KONY 2012 - A Ponerological Example in Africa
+- Kymatica - The Sequel to Esoteric Agenda
+- La Caída del Cabale - El Nuevo Orden Mundial
+- La Conspiración del Capitalismo
+- La Conspiración del Silencio
+- La "Elite" Habla - Lindsay Williams
+- La Élite ordenó Destruir España
+- La Pedofilia en Las Elites - Daniel Cohn-Bendit y Sus Experiencias "Erotico-Maníacas"
+- La Pirámide de Poder
+- La Servidumbre Moderna - Documental Alternativo
+- La Verdad Jamás Contada - Zeitgeist
+- "La Pesadilla de Darwin"
+- Laura Eisenhower - Mensaje a 'Los Controladores Oscuros'
+- Laura Eisenhower - Message to 'The Dark Controllers'
+- L'Elite Globale e il Colpo di Stato del Coronavirus - Con Patrick Wood
+- Los Gobernantes del Mundo
+- Los Planes de La Oligarquía - Los Banqueros Internacionales y Sus Planes Para El Mundo
+- Los Secretos más Oscuros de la Élite al fin Revelados - Mario Conde
+- Matrix of Evil - Alex Jones
+- Matrix of Power
+- Metropolis - A Movie by The Elite, for The Elite?
+- MONOPOLY - Who Owns the World?
+- Mozambique - Life after Death
+- Nine Eleven IS the Litmus-Test
+- Nosotros Los Esclavos
+- NWO About to Nuke The World With WW3 - URGENT BEN FULFORD MESSAGE
+- Oliver Stone Exposes U.S. Warmongers at 'Writers Guild Awards'
+- One of The Global Elite's Visible Faces - Strictly Scum Dancing...
+- On Modern Servitude - Shattered Times
+- Operaciones Con Bandera Falsa - False Flag Operations
+- Origins and Symbolism of The European Union (EU) - David Icke
+- Orwell Rolls in His Grave
+- Pepe Mujica - Montesquieu, los Oligarcas Rusos, la Elite Global y Conciencia
+- Plandemia - En el Mundo de Los Doctores
+- Plandemic - 'Indoctornation'
+- Pope Francis "urges people" to Get Vaccinated against Covid-19
+- PsyWar - Wake Up!
+- Pueblos Despiertos = Terror para la Elite Global
+- ¿Quienes Manejan el Mundo? - La Mejor Conferencia 2021
+- Reality Check - Alan Watt
+- Reclaiming Dominion - Santos Bonacci
+- Reflections and Warnings - An Interview With Aaron Russo - Subtitulado en Español
+- Ring of Power - The Empire of "The City" - World Superstate
+- Rule from The Shadows - The Psychology of Power
+- Secret Rulers of The World - with David Icke
+- Statism is Dead - True News
+- The Anglo-Saxon Ruling Elite - Skull and Bones
+- 'The Answer' - David Icke at London Real - August 2, 2020
+- The Banker
+- The Best Democracy Money Can Buy
+- The Capitalist Conspiracy
+- The Elite EXPOSED!
+- The Elite Speak - Lindsey Williams
+- The End of Poverty
+- The Freedom Road - The Human Journey 7000BC to 2012AD - David Icke
+- The Hollie Greig Case - The Scottish Elite Connections to The World Wide Satanic... - David Icke
+- The Madness of A Lost Society
+- The Matrix - True News
+- The Money Deluge
+- The Most State Censored Citizen Film Ever
+- The New Clinton Chronicles
+- The Office of The International Treasury Control - Dr. Ray C. Dam
+- The Pandora Papers - How the World of Offshore Finance is still Flourishing
+- The Problem is Civil Obedience - Matt Damon from Howard Zinn's Speech
+- The Psychosis of Mind Control of the Many by the Very Few
+- The Pyramid of Power
+- The Rulers of The World
+- The Secret Rulers of The World
+- The Sequel to The Fall of the Cabal - Bill Gates
+- The Story of Your Enslavement
+- The Trials of Henry Kissinger - Los Juicios de Henry Kissinger
+- The Truth behind the Coronavirus Pandemic - Covid-19 Lockdown and the Economic Crash - David Icke
+- The Truth Vibrations - David Icke and The Awakening of The Great Spirit
+- The Vindication - Rose/Icke 6
+- The Yes Men - Subtitulado en Español
+- Three 'City States' Rule the World
+- Through The Eyes of A Slave
+- Trump y lo que Vas a Ver en las Noticias...
+- Uninformed Consent
+- U.S. Quest for Global Dominance - Superpower - The Film
+- War of The Rich
+- We Are The Plan!
+- We Can Rule The World - David Icke
+- What is Technocracy, Who are the Technocrats and What is their Agenda
+- What the Elite have done to America - Gaylon Ross on Alex Jones Show
+- What the NWO Doesn't Want You to Know About - Kevin Trudeau on Alex Jones TV
+- Who Controls The Web? - David Icke
+- Who Controls de World - David Icke Interview - Oracle Films - May 2021
+- Who Runs The World? Psychopaths and Liars - Simple Really - David Icke
+- Will It Be World Government? - Adrian Salbuchi
+- World Government - Influence Networks Map
+- You Are a Stock on The Stock Exchange of USA - Jordan Maxwell
+- Zuckerberg's Virtual Reality Photo - Our Future in the Matrix
+Related Reports
+- ...And The Truth Shall Set You Free
+- Biden - A 2021 U.S. President - Main File
+- Brotherhoods and Secret Societies - Main File
+- Central Banks - CBDC - MAIN FILE
+- Conspiracy Theories - Main File
+- Control Mental - Main File
+- Covid-19 and Anthony Fauci - Main File
+- Operation Gladio - Main File
+- Technocracy - Main File
+- The 2008 Big Crash - The Collapse of World's Financial System - Main File
+- The BIS-IMF-World Bank - World "Smart" Governance - Main File
+- The Coronavirus and the 'Fear Factor'... - Main File
+- The NSA - The Super Secret National Security Agency - Main File
+- The Protocols of The Learned Elders of Zion - Main File
+- The Sociopolical 'Discoveries' of Benjamin Fulford - Main File
+- Trump - Main File
+- Vaccines and Covid-19 - Gene Therapy - Main File
+- Vatican-Pope and The New World Order - Main File
+Return to "The Family"
+Return to Temas / Main Files
+Return to Big Brother Loves You...
+Return to Germany's ET Contacts?
+Return to The Watchers - Nephilim
+Return to Ponerology - The Science of Evil
+Return to Capitalism is a Collapsing System - What's Next?
+Return to The Secret-Shadow Government - The 'Deep State'
+Return to The Divine and The Manipulative Extraterrestrials

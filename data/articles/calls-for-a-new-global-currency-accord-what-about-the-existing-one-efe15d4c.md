@@ -1,0 +1,45 @@
+# Calls for a New Global Currency Accord - What About the Existing One?
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalbanking415.htm
+
+by Marc Chandler 27 December 2014
+from EconomyWatch Website
+At best, it is the holiday season when hopes and wishes abound. It may be as it was for Ebenezer, "an undigested bit of beef, a blot of mustard, a crumb of cheese, a fragment of undone potato." At worst, it is spiked eggnog and the peppermint schnapps.
+At best, it is the holiday season when hopes and wishes abound.
+It may be as it was for Ebenezer, "an undigested bit of beef, a blot of mustard, a crumb of cheese, a fragment of undone potato."
+At worst, it is spiked eggnog and the peppermint schnapps.
+Implement What's Already There
+How else could reasonable people, like former ECB President Jean-Claude Trichet, say that there is a "window of opportunity" for a new agreement on foreign exchange among the major high-income countries?
+Other economists go further and fancifully include China too in a new global accord. Trichet talks of a conceptual convergence among the countries whose currencies make up the IMF's Special Drawing Right, the,
+dollar euro yen pound
+dollar
+euro
+yen
+pound
+He notes that these central banks have all adopted inflation targets around 2%, adopted similar rules aimed at limiting financial risk, conduct surveys of member banks, and use similar communication tools, like press conferences. Do not confuse the adoption of best practices, an evolving process, with coordination. It cannot conceal that, when shocked (The Great Financial Crisis), there were different policy responses. Those policy responses have produced different economic outcomes.
+The dramatic moves in the foreign exchange market among the major currencies reflect this economic divergence. Even where Trichet sees a common understanding, like the near 2% inflation target, there are significant differences. So much that on the eve of the financial crisis, during Trichet's presidency, the ECB hiked rates in July 2008, due largely to the inflation implications of $150 per barrel oil.
+Trichet also led the ECB to hike rates twice in H1 2011. These were quickly unwound when Mario Draghi replaced Trichet later that year. During both periods, the Federal Reserve was easing policy. Note too that the ECB defines its mandate of price stability by targeting near-but-lower-than 2% CPI.
+The headline rate is noisy, subject to perturbations that create volatility, but are of little durable economic consequence. The Bank of Japan targets core inflation. Its definition of core excludes fresh food, but not energy.
+The Federal Reserve defines its mandate of price stability as 2% increase in the core personal consumption expenditure deflator. Its definition of core excludes food and energy. Starting in 2015, the ECB will adopt a rotating voting system for meetings every six weeks, and for the release of a report on the deliberations. This is strikingly similar to the Federal Reserve. However, it is not the basis of coordination. The problems faced by the high-income countries do not lend themselves to enhanced coordination. The international arena does not have the remedy for the economic downturn sparked by the hike in Japan's retail sales tax in April. Europe's problems are also largely self-induced. Their rules and ideology (ordo-liberalism) pose high hurdles to stronger aggregate demand.
+The U.S. has just strung together its strongest six-month economic performance in over a decade. Not only is there no basis for new coordination, but it is not clear that there is a material need. The thinking at the highest levels has evolved over the nearly thirty years since the Plaza Agreement (September 1985).
+Because currency markets are so vulnerable to political forces that can lead to ruinous beggar-thy-neighbor competitive currency devaluations, policymakers at the highest levels have agreed to forswear such use. The "strong dollar policy", first articulated by Robert Rubin as Treasury Secretary nearly twenty years ago, needs understanding in this context.
+It is the economic equivalent of arms control. There are certain weapons that most nations have agreed not to use first. Similarly, there are certain economic practices, such as targeting foreign exchange prices, to which the major industrialized countries have agreed to refrain. There have been a few exceptions over the years. There was coordination in 2000 to support the euro. In 2011, there was coordinated attempt to push the yen lower. These are the exceptions. Sometimes countries flirt with the threshold.
+During Shinzō Abe's campaign as Prime Minister of Japan, some senior advisers suggested targets for dollar-yen (and the Nikkei). The push back resulted in a fresh commitment to the financial arms control agreement in early 2012.
+The ECB's Draghi confirmed taking this threshold seriously, and recently asked whether the ECB would consider buying foreign bonds. I have suggested that the ECB could take a page from the Swiss National Bank's playbook and buy foreign bonds, namely U.S. Treasuries that would be one form of QE that would remain true to the letter of its mandate and still expand its balance sheet.
+Draghi dismissed the possibility by saying that it was too close to intervention. This is why we need to be exceptionally careful when some claim a country is engaged in a currency war. When the Brazilian finance minister claimed the U.S. was engaged in a currency war by pursuing unorthodox monetary policy, the U.S. defended its right to pursue an appropriate policy given its domestic economy. Some claim that the Eurozone and Japan are engaging in a currency war.
+If they are, it begs a certain policy response. However, the ECB and BOJ are pursuing unorthodox monetary policies because their economies are stagnant or worse, and they are fighting deflationary forces.
+Even with the rapid expansion of the BOJ's balance sheet, the pace of core CPI has been slipping for several months and now, when adjusted for the sales tax hike, stands at 0.7%. Given the relative cyclical performance, a decline in the euro and yen is part of the adjustment process. Even though those currencies are already undervalued, according to the OECD's measure of purchasing power parity, further decline is both expected and necessary.
+We note that even assuming an unbiased investor, the premium the U.S. pays over Germany for borrowing (both 2-year and 10-year money) is the most in seven years. Rather than be seduced by the siren calls of currency wars, U.S. Treasury Secretary Jack Lew noted that a stronger dollar was a symptom of the strengthening of the U.S. economy. Yes, some U.S. corporations will attribute disappointing earnings to the strength of the dollar, but this is often difficult to verify, and two companies in the same industry frequently report different currency impacts.
+The real issue is that analysts and the media often shy away from pressing companies on their hedging program. In any event, the U.S. economy has gotten stronger, exports are at record highs, U.S. employment has accelerated even as the dollar has risen. Yes, someday, it is conceivable that an appreciating dollar bites harder, but that day is not today or tomorrow.
+Moreover, it is important to keep the dollar's strength in perspective.
+On a broad, trade-weighted measure adjusted for inflation, it is only now reaching the average over the last ten years. It remains more than 5% below its post-crisis high. The case for a new global accord, some economists say, is to safeguard the U.S. expansion.
+If that is truly the goal, it is not clear how a global accord makes it more likely.
+What is the U.S. to do? Is it practical for the U.S. to lean against a strong dollar by providing more monetary and fiscal stimulus? Is that really the basis for a quid pro quo with Germany to reduce its current account surplus? Is a new global accord necessary to prompt France or Italy into implementing the kind of structural reforms that they have long promised? Does that really provide a basis for China to reduce its household savings, boost consumption, or open up its capital account?
+What is the U.S. to do?
+Is it practical for the U.S. to lean against a strong dollar by providing more monetary and fiscal stimulus?
+Is that really the basis for a quid pro quo with Germany to reduce its current account surplus?
+Is a new global accord necessary to prompt France or Italy into implementing the kind of structural reforms that they have long promised?
+Does that really provide a basis for China to reduce its household savings, boost consumption, or open up its capital account?
+The G7 and G20 have called for international imbalance reductions and to move toward market-determined exchange rates where they do not exist. This is the framework of the existing global accord. There is no need for a new one.
+Fuller implementation of the existing one is preferable.
+Return to The Global Banking System

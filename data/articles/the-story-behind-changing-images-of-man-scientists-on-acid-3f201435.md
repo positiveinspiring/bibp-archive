@@ -1,0 +1,43 @@
+# The Story Behind Changing Images of Man - Scientists On Acid
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalelite11.htm
+
+July 12, 2007 from Skilluminati Website
+"Changing Images of Man" - Stanford Research Institute (now SRI International) released a report in 1974 that has become a classic in the alternative futures literature. It has been adopted as a text in non-traditional courses at more than a dozen universities and reprinted repeatedly by SRI.
+Changing Images of Man explores the reasons why changes may have to take place in the fundamental conceptual premises, laws, attitudes and ethics once suitable for guiding the development of the United States and other highly industrialized nations if a humane (and workable) future is to be achievable.
+It discusses the evidence that such changes may be occurring and the possibility that an evolutionary transformation may be underway that is at least as profound as the transition in Europe when the Medieval Age gave way to the rise of science and the Industrial Revolution.
+Sometimes it can take months for the meaning of a sentence to really sink in.
+It's been months since we got a PDF copy of the legendary "Changing Images of Man" document from Stanford Research Institute, and having read it through several times I feel safe saying the book exceeded my expectations. However, unpacking all the information - especially in terms of it's connections with contemporary events, then and now - has proven to be a much larger, longer task.
+Consider the "alternative methodology" behind the project itself:
+First, we attempted to identify and assess the plausibility of a truly vast number of future possibilities for society. We next followed a method of analysis that determined which sequences of possible futures (that is, which "alternate future histories") appeared to be the most plausible in light of human history and to most usefully serve the needs of policy research and development. Lastly, we derived a variety of policy implications, some of which dealt with how best to continue this type of inquiry.
+First, we attempted to identify and assess the plausibility of a truly vast number of future possibilities for society. We next followed a method of analysis that determined which sequences of possible futures (that is, which "alternate future histories") appeared to be the most plausible in light of human history and to most usefully serve the needs of policy research and development.
+Lastly, we derived a variety of policy implications, some of which dealt with how best to continue this type of inquiry.
+Without the context, without knowing these people and how they work and what they talked about, it's difficult to really decipher a paragraph as apparently clear as that one. What was the "method of analysis" in the second step? They never say, but take note of the term they use in quotes: "alternate future histories." Let me quote from Jim Keith's excellent book Mind Control, World Control, from Chapter 12, which discusses the spread of LSD and the role of OSS/CIA agent Al Hubbard:
+One associate of Hubbard's was New World Order theorist Willis Harman at the Stanford Research Institute. SRI had earlier received grants from the US Army to research chemical incapacitants. When visited by a representative of the underground press at SRI, Harman told the man, "There's a war going on between your side and mine. And my side is not going to lose."
+For the record, that "representative of the underground press" was Michael Rossman of the Berkeley Free Speech Movement. Anyways, according to Keith, Willis Harman hired Al Hubbard in 1968 as a "Special Investigative Agent."
+It's worth noting that according to Todd Brendan Fahey's classic article on Hubbard, The Original Captain Trips, Hubbard was (at least officially) hired as a security guard. It was Fahey's article that abruptly came back to me today, especially the following lines: Hubbard was specifically assigned to the Alternative Futures Project, which performed future-oriented strategic planning for corporations and government agencies.
+Harman and Hubbard shared a goal,
+"to provide the [LSD] experience to political and intellectual leaders around the world." Harman acknowledges that "Al's job was to run the special sessions for us."
+Well, Boy Howdy. Of course, this is decades ago, and juxtaposed quotes are proof of nothing.
+But there's that weird term again, this time slightly different: "the Alternative Futures Project."
+When you look for a formal program by that name, you're led not to the Stanford Research Institute, but the University of Illinois, where Charles Osgood and Stuart Umpleby wrote a report entitled "A Computer-based Exploration of Alternative Futures for Mankind 2000."
+The report was included in the book Mankind 2000, which is full of rather disturbing quotes like this one:
+"In the organization of a civilization of the future we anticipate that the individualistically-oriented man will become an anachronism. Indeed, he will be viewed as a threat to the group organization as well as to his fellow man. Hence, as stated, he in all likelihood will have few individual expectations. While such a picture may not be pleasant to contemplate, when viewed with our present orientation and value judgment, we would be amiss to deal with unrealistic imageries that would blind us to future reality."
+"In the organization of a civilization of the future we anticipate that the individualistically-oriented man will become an anachronism. Indeed, he will be viewed as a threat to the group organization as well as to his fellow man. Hence, as stated, he in all likelihood will have few individual expectations.
+While such a picture may not be pleasant to contemplate, when viewed with our present orientation and value judgment, we would be amiss to deal with unrealistic imageries that would blind us to future reality."
+This kind of stuff could almost be comic relief.
+After all, a computer program about the future had a lot of time and money invested in it, and when they ran the program, it said the future would be a lot like a computer program. If you're not familiar with the phrase garbage in, garbage out, now is a good time to get familiar.
+What keeps this material from being funny is the line that comes right after the quote above, which sounds more or less exactly like the conclusion of Changing Images of Man:
+The new world of the closed, automatic system will necessitate a radical change in the political, technologic, and social thinking. All too often, however, we remain bound by the conventional tenets and wisdom of past generations. The cyber-cultural revolution is changing all this.
+The Alternative Futures project at the University of Illinois was funded by the same people who paid for SRI's work: the Charles F. Kettering Foundation.
+Kettering was big on "the vision thing" during the 60s and 70s - they were looking everywhere to get an edge on futurism, putting a lot of money in very "out there" places.... and for what it's worth, the folks at SRI were very much out there.
+"Changing Images" co-author O.W. Markley left behind a very curious paper entitled "Visionary Futures" that outlines some other SRI "alternative methodologies" - including "channeled material in the book Seth Speaks, by Jane Roberts (1972)."
+This is the same SRI who employed top Scientologists, Hal Puthoff and Ingo Swann, to develop their Remote Viewing program. That doesn't mean they're jackasses or something - it means that SRI gets paid, very well, for being very much out there. It's what people depend on them for, then and now. Channeled material, after all, is mainstream today. (Witness the bestseller success of the "Conversations with God" series.)
+Everyone gets weird - hell, tomorrow we'll take a look at Zbigniew Brzezinski's hippie youth, just to prove it. Don't think for a second just because these people are gobbling LSD means they're down for the cause - or even remotely sympathetic.
+Anyone exploring Changing Images of Man should bear Willis Harman's words in mind:
+"There's a war going on between your side and mine. And my side is not going to lose."
+So did Al Hubbard run LSD visionary sessions for the SRI staff involved with Changing Images of Man?
+I have no idea, only clues - after all, Hubbard was hired the same year that the Changing Images project started: 1968. Until further documentation comes out - or someone feels like speaking up - there's no way of knowing.
+(Read a follow up to this report, called "Changing Images 2000 - Integral Approaches to Re-Imagining and Re-Making Ourselves and the World.")
+Return to The Global Elite
+Return to The New World Order
