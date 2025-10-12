@@ -1,0 +1,5 @@
+# Alice Bailey & Djwhal Khul - The Destiny of Nations - The Nations and the Rays
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/desnat/dest1023.html
+
+This soul ray must be evoked into an increased functioning activity by the New Group of World Servers, for this is one of their main objectives and tasks. This must never be lost to sight. Much could be written about the historical influence of the rays during the past two thousand years and of the way in which great events have been influenced or brought about by the periodic ray influence. Interesting as it is and indicative of the present national trends and problems, all that I can now do is to point out the energies governing each nation, and leave you to study and note their effect and to comprehend their relation to the present condition of the world. One thing I would point out and that is that those rays which govern a particular nation and which are at this time actively working are very potent, either materially or egoically; some of the problems may be due to the fact that certain rays, governing certain nations, are not at this time active.

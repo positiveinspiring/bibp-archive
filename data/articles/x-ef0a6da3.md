@@ -1,0 +1,85 @@
+# x
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/esp_sociopol_clubrome10.htm
+
+by Mihajlo Mesarovic and Eduard Pestel, Directors CONFIDENTIAL September 17, 1973
+from OneHeartBooks Website
+Motivation and ObjectivesThe world problematique formulated by the CLUB OF ROME is not only global in nature, involving factors traditionally considered as unrelated, but also points to the crisis situations which are developing in spite of the noblest of intentions and, indeed, as their corollary. To point out the problematique and the spectrum of critical and traumatic situations it entails is not enough; the acceptance of the reality of the problematique MUST BE FOLLOWED BY CHANGES IF THE CONCERN IS NOT TO REMAIN PURELY ACADEMIC. It is necessary, therefore, to present the issues within the problematique in specific and relevant terms which requires regions interpretation of the global issues. Furthermore, a basis should be provided for the resolution of conflicts (inevitably accompanying the problematique-type situations) through cooperation rather than confrontation. These factors have provided the motivation for initiation of the Strategy for Survival project which calls for the construction of a regionalized and adaptive model of the total world system with the following specific objectives: TO ENABLE THE IMPLEMENTATION OF SCENARIOS FOR THE FUTURE DEVELOPMENT OF THE WORLD SYSTEM which represent visions of the world future stemming from different cultures and value systems and reflecting hopes and fears in different regions of the world. To develop a planning and options-assessment tool for long-range issues, and thereby TO PROVIDE A BASIS FOR CONFLICT RESOLUTION by cooperation rather than confrontation. Basic Structure of the ModelThe basic characteristics of the model are: THE WORLD SYSTEM IS REPRESENTED in terms of interacting regions with provisions made to investigate any individual country or subregion in the context of regional and global development. Presently the world system is represented BY TEN REGIONS: NORTH AMERICA WESTERN EUROPE EASTERN EUROPE JAPAN REST OF DEVELOPED WORLD LATIN AMERICA MIDDLE EAST REST OF AFRICA SOUTH AND SOUTH EAST ASIA CHINA In order to be able to deal with the complex of factors involved in problematique in a way which is sound, credible and systematic, a hierarchical structure has bee adopted for the model in which each level in the hierarchy represents the evolution of the world system within a context defined by a given set of laws and principles. Specifically, the levels involved are: GEO-PHYSICAL ECOLOGICAL TECHNOLOGICAL (MAN-MADE ENERGY AND MASS TRANSFERS) ECONOMIC INSTITUTIONAL SOCIOPOLITICAL VALUE-CULTURAL HUMAN-BIOLOGICAL Such and approach enables an optimal use of confirmed scientific knowledge and available data An adequate view of the conditions in which the problematique is emerging and under which the solutions must be found require the recognition of the purposive aspects of the human community and adaptiveness of human beings. The model of the world system will have, therefore, two parts: the so-called causal part, representing dynamical processes which follow histoical patterns of development the so-called goal-seeking part which represents purposive changes under new conditions. The goal-seeking part in turn includes two levels: the decision-making or actions level the norms level The former represents the purposive response of the system while the latter represents the values and norms which constrain and condition such a response. Progress in the Model ConstructionThe construction of the model as described in Sec. 2 and with the objectives as specified in Sec. 1 is certainly a rather complex task and the research is organized to proceed in parallel in several directions. The overall assessment of the model status is the following: The model has been developed up to the stage where it can be used for policy analysis related to a number of critical issues, such as: energy resources utilization and technology assessment food demand and production population growth and the affect of timing of birth control programs reduction of inequities in regional economic developments depletion dynamics of certain resources, particularly oil reserves phosphorus use as fertilizer regional unemployment constraints on growth due to labor, energy or export limitation, etc.
+Motivation and ObjectivesThe world problematique formulated by the CLUB OF ROME is not only global in nature, involving factors traditionally considered as unrelated, but also points to the crisis situations which are developing in spite of the noblest of intentions and, indeed, as their corollary.
+To point out the problematique and the spectrum of critical and traumatic situations it entails is not enough; the acceptance of the reality of the problematique MUST BE FOLLOWED BY CHANGES IF THE CONCERN IS NOT TO REMAIN PURELY ACADEMIC.
+It is necessary, therefore, to present the issues within the problematique in specific and relevant terms which requires regions interpretation of the global issues. Furthermore, a basis should be provided for the resolution of conflicts (inevitably accompanying the problematique-type situations) through cooperation rather than confrontation.
+These factors have provided the motivation for initiation of the Strategy for Survival project which calls for the construction of a regionalized and adaptive model of the total world system with the following specific objectives:
+TO ENABLE THE IMPLEMENTATION OF SCENARIOS FOR THE FUTURE DEVELOPMENT OF THE WORLD SYSTEM which represent visions of the world future stemming from different cultures and value systems and reflecting hopes and fears in different regions of the world.
+To develop a planning and options-assessment tool for long-range issues, and thereby TO PROVIDE A BASIS FOR CONFLICT RESOLUTION by cooperation rather than confrontation.
+Basic Structure of the ModelThe basic characteristics of the model are:
+THE WORLD SYSTEM IS REPRESENTED in terms of interacting regions with provisions made to investigate any individual country or subregion in the context of regional and global development.
+Presently the world system is represented BY TEN REGIONS:
+NORTH AMERICA
+WESTERN EUROPE
+EASTERN EUROPE
+JAPAN
+REST OF DEVELOPED WORLD
+LATIN AMERICA
+MIDDLE EAST
+REST OF AFRICA
+SOUTH AND SOUTH EAST ASIA
+CHINA
+In order to be able to deal with the complex of factors involved in problematique in a way which is sound, credible and systematic, a hierarchical structure has bee adopted for the model in which each level in the hierarchy represents the evolution of the world system within a context defined by a given set of laws and principles.
+Specifically, the levels involved are:
+GEO-PHYSICAL
+ECOLOGICAL
+TECHNOLOGICAL (MAN-MADE ENERGY AND MASS TRANSFERS)
+ECONOMIC
+INSTITUTIONAL
+SOCIOPOLITICAL
+VALUE-CULTURAL
+HUMAN-BIOLOGICAL
+Such and approach enables an optimal use of confirmed scientific knowledge and available data
+An adequate view of the conditions in which the problematique is emerging and under which the solutions must be found require the recognition of the purposive aspects of the human community and adaptiveness of human beings.
+The model of the world system will have, therefore, two parts:
+the so-called causal part, representing dynamical processes which follow histoical patterns of development
+the so-called goal-seeking part which represents purposive changes under new conditions. The goal-seeking part in turn includes two levels:
+the decision-making or actions level
+the norms level
+The former represents the purposive response of the system while the latter represents the values and norms which constrain and condition such a response.
+Progress in the Model ConstructionThe construction of the model as described in Sec. 2 and with the objectives as specified in Sec. 1 is certainly a rather complex task and the research is organized to proceed in parallel in several directions.
+The overall assessment of the model status is the following:
+The model has been developed up to the stage where it can be used for policy analysis related to a number of critical issues, such as:
+energy resources utilization and technology assessment
+food demand and production
+population growth and the affect of timing of birth control programs
+reduction of inequities in regional economic developments
+depletion dynamics of certain resources, particularly oil reserves
+phosphorus use as fertilizer
+regional unemployment
+constraints on growth due to labor, energy or export limitation, etc.
+Specific developments which enable use of the model as described above include the following:
+A COMPUTER MODEL OF THE WORLD ECONOMIC SYSTEM HAS BEEN DEVELOPED AND VALIDATED BY AN EXTENSIVE SET OF DATA. The model has two levels - macro and micro. On the MACRO LEVEL the model of each region INCLUDES THE GROSS REGIONAL PRODUCT, TOTAL IMPORTS AND EXPORTS, CAPITAL AND LABOR PRODUCTIVITY AND VARIOUS COMPONENTS OF FINAL DEMAND SUCH AS PUBLIC CONSUMPTION, GOVERNMENT EXPENDITURE, AND TOTAL INVESTMENT. ON THE MICRO LEVEL EIGHT PRODUCTION SECTORS ARE RECOGNIZED: AGRICULTURE MANUFACTURING FOOD PROCESSING ENERGY MINING SERVICES BANKING AND TRADE RESIDENTIAL CONSTRUCTION The input-output framework is used for the intermediate demands. A FULL SCALE MICRO TRADE MATRIX ALSO HAS BEEN DEVELOPED. A WORLD POPULATION MODEL HAS BEEN CONSTRUCTED IN TERMS OF THE SAME REGIONS AS THE ECONOMIC MODEL. The model has been validated by the data available. In each region the population structure is represented in terms of four age groups with appropriate delays which make possible assessment of population momentum and assessment of the effectiveness of implementation of various population control measures. AN ENERGY MODEL HAS BEEN CONSTRUCTED which gives for each region the consumption and production of energy and interregional exchange of energy resources as a function of economic factors. Energy is treated both in composite terms and in reference to individual energy sources, namely solid fuel, liquid fuel, nuclear, gas and hydro. A FOOD PRODUCTION AND ARABLE LAND USE MODEL HAS BEEN CONSTRUCTED which allows the assessment of a number of food related issues including: the need and availability of phosphorus required for intensive agriculture THE CONSEQUENCES OF TIMING AND MAGNITUDES OF NATURAL DISASTERS SUCH AS DROUGHT, CROP FAILURE DUE TO DISEASE, ETC. A MAJOR CONCERN IN THE APPLICATION OF THE COMPUTER MODEL is its proper utilization so as to avoid dependence on the deterministic aspects of model operation. In order to avoid this an interactive method of computer simulation analysis has been developed. THE METHOD REPRESENTS A SYMBIOSIS OF MAN AND COMPUTER IN WHICH THE COMPUTER PROVIDES THE LOGICAL AND NUMERICAL CAPABILITY WHILE MAN PROVIDES THE VALUES, INTUITION AND EXPERIENCE. The method utilizes an option specification and selection program which enables the policy analyst or decision-maker to evaluate alternative options on various levels of the decision process, i.e., with respect to goals, strategies, tactical and implementational factors. SPECIAL ATTENTION IS PAID TO THE NORM CHANGING PROCESSES. Progress in Application. THE MODEL HAS BEEN USED both for the assessment of alternative scenarios for future regional and global developments (under different regional conditions) as well as in the interactive mode selection of policy options (specifically for the energy crises issues in developed regions). OUR EFFORTS IN THE IMMEDIATE FUTURE WILL BE CONCENTRATED ON FURTHER USE OF THE ALREADY DEVELOPED MODEL. THE PLANS INCLUDE EMPHASIS IN THE FOLLOWING THREE DIRECTIONS: Assessment in the changes over time of the span of options available to solve some major crisis problems. IMPLEMENTATION of the regional models in different parts of the world and their connection via a satellite communication network for the purpose of joint assessment of the long term global future by teams from the various regions. Implementation of the vision for the future outlined by leaders from an underdeveloped region in order TO ASSESS with the model EXISTING OBSTACLES AND THE MEANS WHEREBY THE VISION MIGHT BECOME REALITY.
+A COMPUTER MODEL OF THE WORLD ECONOMIC SYSTEM HAS BEEN DEVELOPED AND VALIDATED BY AN EXTENSIVE SET OF DATA. The model has two levels - macro and micro.
+On the MACRO LEVEL the model of each region INCLUDES THE GROSS REGIONAL PRODUCT, TOTAL IMPORTS AND EXPORTS, CAPITAL AND LABOR PRODUCTIVITY AND VARIOUS COMPONENTS OF FINAL DEMAND SUCH AS PUBLIC CONSUMPTION, GOVERNMENT EXPENDITURE, AND TOTAL INVESTMENT.
+ON THE MICRO LEVEL EIGHT PRODUCTION SECTORS ARE RECOGNIZED:
+AGRICULTURE MANUFACTURING
+FOOD PROCESSING
+ENERGY
+MINING
+SERVICES
+BANKING AND TRADE
+RESIDENTIAL CONSTRUCTION
+The input-output framework is used for the intermediate demands. A FULL SCALE MICRO TRADE MATRIX ALSO HAS BEEN DEVELOPED.
+A WORLD POPULATION MODEL HAS BEEN CONSTRUCTED IN TERMS OF THE SAME REGIONS AS THE ECONOMIC MODEL. The model has been validated by the data available. In each region the population structure is represented in terms of four age groups with appropriate delays which make possible assessment of population momentum and assessment of the effectiveness of implementation of various population control measures.
+AN ENERGY MODEL HAS BEEN CONSTRUCTED which gives for each region the consumption and production of energy and interregional exchange of energy resources as a function of economic factors.
+Energy is treated both in composite terms and in reference to individual energy sources, namely solid fuel, liquid fuel, nuclear, gas and hydro.
+A FOOD PRODUCTION AND ARABLE LAND USE MODEL HAS BEEN CONSTRUCTED which allows the assessment of a number of food related issues including:
+the need and availability of phosphorus required for intensive agriculture
+THE CONSEQUENCES OF TIMING AND MAGNITUDES OF NATURAL DISASTERS SUCH AS DROUGHT, CROP FAILURE DUE TO DISEASE, ETC.
+A MAJOR CONCERN IN THE APPLICATION OF THE COMPUTER MODEL is its proper utilization so as to avoid dependence on the deterministic aspects of model operation. In order to avoid this an interactive method of computer simulation analysis has been developed.
+THE METHOD REPRESENTS A SYMBIOSIS OF MAN AND COMPUTER IN WHICH THE COMPUTER PROVIDES THE LOGICAL AND NUMERICAL CAPABILITY WHILE MAN PROVIDES THE VALUES, INTUITION AND EXPERIENCE.
+The method utilizes an option specification and selection program which enables the policy analyst or decision-maker to evaluate alternative options on various levels of the decision process, i.e., with respect to goals, strategies, tactical and implementational factors.
+SPECIAL ATTENTION IS PAID TO THE NORM CHANGING PROCESSES.
+Progress in Application. THE MODEL HAS BEEN USED both for the assessment of alternative scenarios for future regional and global developments (under different regional conditions) as well as in the interactive mode selection of policy options (specifically for the energy crises issues in developed regions).
+OUR EFFORTS IN THE IMMEDIATE FUTURE WILL BE CONCENTRATED ON FURTHER USE OF THE ALREADY DEVELOPED MODEL.
+THE PLANS INCLUDE EMPHASIS IN THE FOLLOWING THREE DIRECTIONS:
+Assessment in the changes over time of the span of options available to solve some major crisis problems.
+IMPLEMENTATION of the regional models in different parts of the world and their connection via a satellite communication network for the purpose of joint assessment of the long term global future by teams from the various regions.
+Implementation of the vision for the future outlined by leaders from an underdeveloped region in order TO ASSESS with the model EXISTING OBSTACLES AND THE MEANS WHEREBY THE VISION MIGHT BECOME REALITY.
+Return to The Club of Rome
