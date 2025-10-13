@@ -1,0 +1,34 @@
+# Obama Crea una Ley para "Controlar Mentalmente a la Población"
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/esp_sociopol_mindcon83.htm
+
+17 Septiembre 2015
+del Sitio Web ElRobotPescador
+Obama, el "premio Nóbel de 'la Paz'," parece dispuesto a sentar las bases para las tiranías del 'futuro'. Una reciente Orden Ejecutiva firmada por el presidente de EE.UU., parece ser un cruce entre el Ministerio de Propaganda del Reich Nazi y el Ministerio de la Verdad de George Orwell. Mediante esta Orden Ejecutiva, las agencias federales deberán contratar a psicólogos para experimentar y encontrar formas de manipular mejor al pueblo estadounidense a voluntad del gobierno federal. De forma cínica lo llaman,
+"uso de las ciencias de la conducta para 'servir' mejor a la población americana".
+Esto es lo que escribió Obama en la Orden Ejecutiva publicada este martes en la Web gubernamental de la Casa Blanca, WhiteHouse.gov:
+"Un creciente conjunto de pruebas demuestran que los conocimientos sobre las ciencias de la conducta, (resultado de la investigación en campos como la economía del comportamiento o la psicología, que estudian cómo las personas toman decisiones y actúan), pueden ser utilizadas para diseñar las políticas de gobierno para servir mejor al pueblo estadounidense"
+El origen de la orden ejecutiva se remonta a una propuesta política de 2013 llamada "Fortalecimiento de la Capacidad Federal para el conocimiento de la Conducta". Cada uno podrá llamarlo como quiera, pero para ser claros, estamos ante una gigantesca Operación de Manipulación Psicológica Masiva, que encima se anuncia públicamente. Las Operaciones Psicológicas o PSYOP son operaciones planificadas que tienen el objetivo de transmitir información e indicadores seleccionados para el público para influir en sus emociones, motivaciones, razonamientos y en última instancia en el comportamiento de organizaciones, grupos e individuos. Y esto es exactamente lo que está promulgando Obama con esta Orden Ejecutiva. Pretende utilizar los conocimientos científicos de la ciencia de la conducta, para manipular a las masas y hacer creer a la gente que lo que piensa es idea suya, a pesar de que habrá sido el gobierno quien habrá inculcado esas ideas de forma sibilina. Dos figuras cuyas investigaciones han desempeñado un papel clave para llevar la nueva iniciativa a buen término han sido el profesor de la Harvard Law School, Cass Sunstein (que ya trabajó en la Oficina de Información de Obama), y Richard Thaler, un economista de la Universidad de Chicago.
+Sunstein y Thaler
+"Los dos científicos de la conducta alegaron en su libro publicado en 2008, que las políticas gubernamentales pueden ser diseñadas de manera que empujen a los ciudadanos hacia ciertos comportamientos y elecciones".
+Es decir, tan solo utilizando la semántica, conseguirán manipular a la población en la dirección que ellos quieran. Por ejemplo, utilizar la semántica es calificar a una persona como "inmigrante ilegal", "refugiado" o "migrante económico", según la conveniencia del momento para el gobierno y las políticas que pretenda implementar.
+Es control mental, simple y llanamente manipulación psicológica y hemos llegado a un punto en el que los gobernantes se atreven a publicarlo directamente, disfrazándolo como si lo hicieran por nuestro bien. Como ya hemos indicado antes, las bases para esto ya se sentaron en 2013. Aquel año, Fox News informó de que la Casa Blanca había creado un "equipo de manipulación de la conducta" para influir en las acciones y opiniones de la población norteamericana, basándose en un programa similar llevado a cabo en el Reino Unido:
+"La práctica de utilizar los avances en la ciencia del comportamiento para informar de las políticas implementadas por el gobierno, ya ha tenido éxito en otros países. En 2010, el primer ministro británico, David Cameron, encargó la creación de un 'grupo de conocimiento de la conducta', que a través de un proceso de rápida experimentación iterativa ("probar, aprender, adaptarse"), ha identificado y probado con éxito las intervenciones que mejor ayudan a las prioridades del gobierno británico, consiguiendo que el gobierno ahorre 1,000 millones de libras esterlinas en los próximos cinco años"
+Desde siempre, los gobiernos y los poderes en general, han manipulado la mente de la población, un fenómeno que se ha disparado y perfeccionado con la eclosión moderna de los medios de comunicación. Todo el mundo lo sabe, aunque nunca se haya aceptado de forma explícita. Pero lo que nos indica la Orden Ejecutiva de Obama, es que hemos dado un paso adelante que resulta una pista evidente sobre el mundo que se avecina. Obama, lo ha dicho explícitamente:
+"debemos utilizar la ciencia de la conducta para conducir a la población hacia donde nosotros queramos" y obviamente, lo ha disfrazado de "bien para la población".
+El mensaje implícito que se nos da a todos al hacerlo público es:
+la población es una masa idiotizada incapaz de autogestionarse de forma eficiente, lo que hace necesario que alguien la dirija la población debe aceptar la existencia de una élite intelectual científica que piense por ellos y que los conduzca como un rebaño por su propio bien la manipulación psicológica de las masas es algo bueno y positivo y no hace falta ocultarlo, pues las masas lo único que tienen que hacer es obedecer
+la población es una masa idiotizada incapaz de autogestionarse de forma eficiente, lo que hace necesario que alguien la dirija
+la población debe aceptar la existencia de una élite intelectual científica que piense por ellos y que los conduzca como un rebaño por su propio bien
+la manipulación psicológica de las masas es algo bueno y positivo y no hace falta ocultarlo, pues las masas lo único que tienen que hacer es obedecer
+Este es el nuevo modelo de tiranía hacia el que nos dirigimos, una tiranía férrea pero sutil, basada en la "razón y la ciencia".
+Es la culminación final del proceso tiránico:
+la dictadura perfecta.
+Nos dejarán vivir la ilusión de que elegimos por nosotros mismos, poniendo una ridícula papeleta en una urna, pero seremos sutilmente manipulados por nuestros bienamados pastores, que decidirán por nosotros todo lo que debemos hacer o pensar, pero nos dejarán creer que todo ha sido idea o elección nuestra
+Fuentes
+http://www.wnd.com/2015/09/obama-issues-orwellian-executive-order/ http://www.activistpost.com/2015/09/psy-op-executive-order-creates-an-orwellian-policy-of-enlightenment-and-propaganda.html
+http://www.wnd.com/2015/09/obama-issues-orwellian-executive-order/
+http://www.activistpost.com/2015/09/psy-op-executive-order-creates-an-orwellian-policy-of-enlightenment-and-propaganda.html
+Regresar a Obama - A "New" Sociopolitical Era or The Greatest Deception?
+Regresar a El Gran Hermano Te Ama...
+Regresar a Control Mental

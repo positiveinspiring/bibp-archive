@@ -1,0 +1,6 @@
+# Alice Bailey & Djwhal Khul - The Externalization of the Hierarchy - II - The
+Great Invocation - Stanza I
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/exter/exte1070.html
+
+The result of what is happening today must, sooner or later, produce an at-one-ment between all nations and peoples. At-one-ment is ever (under evolutionary law) the consequence of sacrifice. Of this, Christ's sacrifice was the symbol and the guarantee, impulsed as His life and activities were by the Spirit of Peace. As He made "of twain, one new man, so making peace" (Ephesians 2:15) so today out of the duality of soul and body, humanity is achieving the same ends and the result of this final stage of the Piscean Age will be the fusion in consciousness of soul and body. The Aquarian Age will demonstrate an increasing expression of this at-one-ment, wrought out in the crucifixion of humanity at the present time. The difference between this coming stage and that of the past is that, in the past, the soul has sought this development and at-one-ment and (from the angle of evolution) it has been slowly and gradually attained, but in the future, it will be consciously sought, achieved and recognized by man upon the physical plane as a result of the present period of "giving-for" the whole, of the best which the individual can give.
