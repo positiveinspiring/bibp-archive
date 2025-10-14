@@ -1,0 +1,161 @@
+# Agenda 21 and Earth Charter - Agenda 21 y La Carta de La Tierra
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_agenda21.htm
+
+The Agenda for the 21st Century
+Agenda 21 was born out of the "Earth Summit" held in 1992, as an international standard of policy.
+On the surface, the agenda appears favorable - helping to 'save' humans, wildlife and the environment from destruction through building guidelines and proper management of natural resources. But dig a bit deeper and it will soon become apparent Agenda 21 is yet another vehicle of CONTROL.
+Origin
+- Agenda 21 and The Forced Relocation in Stack and Pack Cities
+- Agenda 21 and The New World Economy - Where Happiness 'Matters'
+- Agenda 21 and The Steady-State Techno-Corporatocracy - An Introduction
+- Agenda 21 and You - The John Birch Society
+- Agenda 21 Declares War on Mankind
+- Agenda 21 Eco-Cities Built for Permanent Population Control
+- Agenda 21 - Food is The New Gold; Land is The New Oil
+- Agenda 21 - How Globalist Domination Happens on a Local Level
+- Agenda 21 in China and the Technocratic Vision for Global Dictatorship
+- Agenda 21 is Being Rammed Down The Throats of Local Communities All Over America
+- Agenda 21 is Increasing the Scope of its Enslavement of America
+Español
+- Agenda 21 - La Cumbre de La Tierra
+- Agenda 21 'Smart Cities' Are Here! - Orwell's Dystopic Nightmare Comes True
+- Agenda 21 - The Dark Underbelly of Sustainable Development
+- Agenda 21 - The Earth Summit
+- Agenda 21 - The End of Western Civilization
+- Agenda 21 - The Plan for a Global Fascist Dictatorship
+- Agenda 21 - The Plan to Depopulate 95% of the World by 2030
+- Agenda 21 - The United Nations Blueprint for The 21st Century
+- Agenda 21 - United Nations Conference on Environment & Development - Rio de Janeiro, 3-14 June 1992
+- Agenda 21 - Your Life in Their Hands
+- Ahora es Crucial Entender a qué nos Enfrentamos
+- Common Core and United Nations Agenda 21 - Mass Producing Green Global Serfs
+- Common Core - A Scheme to Rewrite Education
+- Do Nuclear Disasters Play Into The Global Elites Agenda 21 ReWilding Scheme?
+- ECO-92 - Earth Charter
+- ECO-92 - Pacto de La Tierra
+- Ecovillages - Selling Environmentally-Friendly Agenda 21 Enslavement
+- El Secuestro de lo 'Verde' - De 'la Belleza y la Biodiversidad' a 'la Falsificación y el Fascismo'
+- Entendiendo y Desmantelando El Sistema de Control Global
+- Folleto Informativo de La Iniciativa de La Carta de La Tierra - Septiembre del 2000
+- Global Collaboration of MegaCities Implement Agenda 21 to Prepare Populations
+- Globalization - The Octopus of The New World Order - Main File
+- GMO Giant Monsanto Joins Big Business Coalition for United Nations 'Agenda 21'
+- It's Now Crucial to Understand what We're Up Against
+- La 'Agenda 21' de las Naciones Unidas Sigue Avanzando en Todo el Mundo
+- La Agenda 21 está Incrementando el Alcance de La Esclavización de Los Estados Unidos
+- La Carta de La Tierra
+- La Carta de La Tierra y La Nueva Era
+- La Nueva Estructura de Clases Sociales de Los Estados Unidos - La Agenda 21
+- La Nuova Struttura delle Classi Sociali degli Stati Uniti - Agenda 21
+- La Risposta al Coronavirus è il Nuovo Ordine Mondiale-Agenda 21
+- La Toma de Posesión de "Todo el Material Genético de la Tierra" - El Proyecto Global Expuesto
+- Monsanto further Unveils its True Evil Nature by Signing on to UN Agenda 21 'Sustainability' Scam
+- "Population Bomb" - Paul Ehrlich blathers on about the "End of Civilization"
+- Review of Implementation of Agenda 21 and The Rio Principles
+- The Earth Charter
+- The Earth Charter and The Ark of The Gaia Covenant
+- The Hijacking of 'Green' - From 'Beauty and Biodiversity' to 'Fakery and Fascism'
+- The Link Between Sunspots, Global Cooling and Agenda 21 - NASA Admits Solar Cycle Weakest in 200 Year
+- The New Social Class Structure of The United States - Agenda 21
+- The Plan to Depopulate 95 Percent of the World - Agenda 21 - by Shoshi Herscu
+- The Response to Coronavirus is the New World Order-Agenda 21
+- The Takeover of 'All Genetic Material on Earth' - Global Blueprint Exposed
+- The United Nations Receives Agenda 21 Funding from World Governments and Corporations
+- Transition Towns - Agenda 21 Comes to Life
+- Understanding and Dismantling The Global Control System
+- United Nations 'Agenda 21' Still Advancing Worldwide
+- U.S. Government Plans to Push Americans Out of Suburbs to Move in Planned Cities - Agenda 21
+- Water Securitization, Agenda 21 and The Right to Life
+- Who Is Maurice Strong?
+- Americas Eco-Cities - Sustainable Prisons of The Future
+- Domestic "Internet of Things" Begins to Merge With the Industrial Smart Grid
+- El Papa va a Decirle lo que Está en su Futuro y es 'Mejor Que lo Escuche'
+- European Parliament Resolution on Institutional and Legal Implications of The Use of Soft Law'
+- Green Cities Declaration
+- Human Domination of the Biosphere - Rapid Discharge of the Earth-Space Battery Foretells the Future of...
+- Il Papa vi dirà Cosa vi Riserva il Futuro ed è 'Meglio che lo Ascoltiate'
+- Just Say No to Big Brother's Smart Meters - The Latest in Bio-Hazard Technology
+- Plan de Naciones Unidas para Salvar la Tierra es un 'Plan Encubierto' para Grandes Empresas
+- Santa Cruz County - Local Agenda 21 - A Sustainable Community Action Plan - Our Agenda for the 21st...
+- The Climate Religion and Copenhagen I
+- The Coming Water Wars
+- The Earth Brokers - Power, Politics, and World Development - by by Pratap Chatterjee and Matthias Finger
+- The Fraud of Climate Change and the Drive for Control
+- The Pope is Going to Tell You what Lies in Your Future and 'You Better Listen'
+- The UNEP That We Want - Reflections on UNEPs Future Challenges
+- UNCED 1992 - Document Scan from George W. Hunt
+- UNEP - Implementation of The Long-Term Strategy - The Engagement and Involvement of Young People in...
+- UNEP - Proposed Medium-Term Strategy 2010-2013
+- United Nations Bosses Secretly Plot Global Government through "Green Economy" for Rio+20
+- United Nations Plan to Save Earth is "Fig Leaf" for Big Business - Say Insiders
+- Urban Environmental Accords
+- A Green New Deal - The First Report of the Green New Deal Group
+- Behind the Green Mask - U.N. Agenda 21 - by Rosa Koire
+- Calentamiento Global - Una Pseudociencia Oficial... - Main File
+- Central Bankers Plan for Master Reset into 'Green Economy'
+- Climate and the Money Trail...
+- Club of Rome reveals Gushing Support for 'Green New Deal'
+- CO² is the Greening Molecule - Elevated CO² levels increase Vegetation Growth and Water Availability
+- Deeper Discovery into Origins of the Green New Deal
+- Eco-Genocide - 11,000 Scientists sign order Demanding Globalists Eliminate Billions of Humans from Earth
+- Eco-Genocidio - 11,000 Científicos Exigen a Globalistas Eliminar Miles de Millones de Humanos del Planeta
+- Five Ways the 'Green New Deal' exactly mirrors 'Agenda 2030'
+- Getting Real about Green Energy - An honest Analysis of what it CAN'T Promise
+- Global Cooling and the Political Suicide of the 'New Green Deal'
+- Global Warming - An Official Pseudoscience... - Main File
+- Global Warming is NOT about 'Controlling the Weather' - It's about 'Controlling You'...!
+- Global Warming Swindle - A Scheme to Redistribute Wealth
+- Global Warming - The Apocalypse has been 'Postponed'...
+- Green New Deal Reveals the Naked Truth of 'Agenda 21'
+- Green New Deal' Scam destroyed by New Scientific Study on Global Warming
+- I Banchieri Centrali Pianificano una Rigenerazione Totale in 'Green Economy'
+- Il "Green New Deal" ci Svela la Nuda Verità su 'Agenda 21'
+- NASA declares Carbon Dioxide is Greening the Earth
+- No hay "Emergencia" Climática - Científicos de la Declaración Europea del Clima escriben a Naciones Unidas
+- Recognizing the Duty of the Federal Government to Create a Green New Deal
+- Seamos Realistas sobre las Energías Verdes - Un Análisis Honesto de lo que NO PUEDEN Prometer
+- The Genocidal Roots of the Green New Deal - The Limits to Growth and the Unchaining of Prometheus
+- The Green 'New' Deal is the Old Agenda 21
+- The Green New Deal - Jeremy Rifkin and the Coming Collapse
+- There is No Climate 'Emergency' - European Climate Declaration Scientists write to United Nations
+- Trump is dismantling 'Biden's Green New Scam' and restoring Energy Freedom
+- We 'Won the Battle but Lost the War' - Boris unleashes 'Green Hell' on Post-BREXIT Britain
+Multimedia:
+- The Green New Deal explained
+- What's Wrong with Wind and Solar Energy Needs?
+Greta Thunberg - Emotion over Reason:
+- A 1992 United Nations 'Climate Crisis' Redux - "We're a Group of 12-Year-Olds trying to Make a Difference"
+- A New Film designed as an Homage to 'Climate Change's child deity' Greta Thunberg
+- 'BIOPIC' de Greta Thunberg - Las Cámaras estuvieron Grabando a partir del Día Uno de su 'ascensión' Viral
+- Ecologismo Real vs. Activismo Mediático - Boyan vs. Greta...
+- George Soros is Backing 'Climate activist' Greta Thunberg
+- George Soros is Backing Greta Thunberg
+- ¿Gobernado por la Emoción sobre la Razón? - El Perturbador Culto de Greta Thunberg
+- Governed by Emotion over Reason? - The Disturbing Cult of Greta Thunberg
+- Greta - Estás siendo Utilizada como un Peón para la Tecnocracia
+- Greta Thunberg accidentally Reveals that "She's just a Puppet" and is now under Criminal Investigation in India
+- Greta Thunberd accidentalmente Rivela che "È solo un Burattino" e ora è sotto Inchiesta Penale in India
+- Greta Thunberg es una Tapadera que Oculta un Suculento Negocio a cuenta del Cambio Climático
+- Greta Thunberg - Fake as the Climate Change Hoax
+- Greta - You are Being Used as a Pawn for Technocracy
+- I Tried to Interview Greta Thunberg - The most fervent Supporter of the "Climate" know Nothing about "Climate"
+- Los Verdaderos Asesinos del Clima - Actualizaciones para Greta...!
+- Will You Be Part of the Largest Protest in Human History?
+- "I am Greta"
+- Putin on Greta Thunberg's United Nations Rant - It's Deplorable that the Girl is Being Used by Some Groups
+- Agenda 21 EXPLAINED
+- Agenda 21 for Dummies
+- Agenda 21 - The Depopulation Agenda for A New World Order
+- Agenda 21 - The Plan to Kill You - David Icke
+- Agenda 21 - The United Nations' Diabolical Plan for The World is Explained on The "Glenn Beck Show"
+- COVID-19 - Pretexto para Implementar Agenda del Nuevo Orden Mundial
+- El Nuevo Agronegocio de Bill Gates con MONSANTO y sus 3 Socios Argentinos
+- Paradise Stolen - Agenda 21
+- The Blue-Gold Business - World Wide Water Privatization - Main File
+- The Georgia Guidestones - Main File
+- The Global Food Control - Main File
+Return to EndGame
+Return to Big Brother Loves You...
+Return to Depopulation of Planet Earth
+Return to The Ultimate Delusion - The United Nations
