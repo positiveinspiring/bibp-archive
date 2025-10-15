@@ -1,0 +1,498 @@
+# The Global 2008 Big Crash - The Collapse of World's Financial System / El 
+Gran Crash Global del 2008 - El Colapso del Sistema Financiero Mundial
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_bigcrash.htm
+
+When the History of the Financial Crash is Written George Washingtons Blog Friday, Jan 30, 2009
+from PrisonPlanet Website
+When the history of the financial crash is written, this is what will be said:
+The federal reserve and its serial bubble-blowing policy, fractional reserve banking, the loss of Americas manufacturing base, huge debts, spending trillions on imperial adventures in Iraq and elsewhere, and insane leverage and speculation using exotic instruments like credit default swaps were the biggest long-term causes of the crisis
+The government could have prevented the crisis if it had heeded the warnings of those speaking the truth, but because it was politically easier, politicians pretended that they didnt understand what was going on, and tried to "kick the can down the road" so that it would be someone elses problem
+Had the government let the markets deleverage, and let cancer of malinvestment clear itself out of the market, we would have been through most of the worst by the end of 2009. But by borrowing, printing and spending many trillions of dollars we didnt have, by artificially propping up leverage, and by taking other counter-productive actions, the government ensured a full-scale depression, and ensured that it would continue for years
+Economies cannot prosper when the rule of law is destroyed and the government routinely lies. The current crash would have ended much sooner had the government been honest, and people trusted the government. The governments lies about the Iraq war, torture, spying, 9/11, and just about everything else destroyed peoples trust that anything the government said was true. Even with sophisticated propaganda methods, one too many lies will destroy a government, a country and an economy. In addition, there were many Madoffs - titans of industry and finance and investment who were dishonest. Under the weight of dishonesty, no one trusts each other enough to do business, and the free market shuts down.
+It's Not The Great Recession - It's The Great Bank Robbery... U.S. Bankrupt Technically, the U.S. is already bankrupt because it has a debt that is almost four times the size of its economy Puru Saxena, CEO Puru Saxena Wealth Management
+It's Not The Great Recession - It's The Great Bank Robbery...
+U.S. Bankrupt Technically, the U.S. is already bankrupt because it has a debt that is almost
+four times the size of its economy
+Puru Saxena, CEO
+Puru Saxena Wealth Management
+The Debt to The Penny in the U.S. and Who Holds It
+04/04/2019
+16,225,463,575,610.86
+5,802,684,085,978.93
+22,028,147,661,589.79
+Contents
+- American, European and Japanese Problem Solving - The Global Financial Crisis
+- Are The 'Banksters' Wrecking The Global Economy Through The Trilateral Commission?
+- Are We on The Verge of A Massive Emerging Markets Currency Collapse?
+- Audit of New York FED Reveals Technocrats Creation and Cover-Up of Global Financial Crash
+- Bank Holiday Coming? Prepare?
+- Bank Holiday Rumors Swirl Amidst Currency Crisis
+- Bankster "Holiday" Planned for September?
+- Banks are Still Failing at Ten Times the Pre-2008 Crash Rate
+- Bank Transfer Day - Successful!
+Español
+- Bernanke Admite Que Crearon Dinero de La Nada y La Deuda Fue al Sistema Bancario
+- Bernanke Admits Printing $1.3 Trillion Out Of Thin Air
+- Bernanke is Wrong - Gold is Money
+- Billionaires Dumping Stocks - Economist Knows Why
+- BIS - The Most Powerful Bank in The World Announces The Crash
+- Black 9/11 - A Walk on The Dark Side
+- Brokers Threatened by Run on Shadow Bank System - Regulators Eye $10 Trillion Market That Boomed...
+- Checkmate - Game Over
+- Collapse At Hand - Fmr. Asst. Treasury Secretary Says 'Economic Collapse Nearing'
+- Collapsing Financials
+- Colossal Financial Collapse - The Truth Behind The Citigroup Bank "Nationalization"
+- Contagion Spreads in Emerging Markets as Crises Grow
+- Corporate Psychopaths Theory of The Global Financial Crisis
+- Corrupt "Secret" Global Trade and Investor Agreements - EU Facilitating Corporate Plunder
+- Crash del 2008 - La Mano Negra Detrás De Las Finanzas
+- Crumbling Global Economy Passes Point of No Return
+- Debasing The Currency is Leading to Financial Collapse... Just As It Has for Thousands of Years
+- 'Dramatically Poisonous' Economy Heading to 'Catastrophic' Collapse - Says Acclaimed Economist
+- Dr. Van de Meer Predicts Monetary Collapse of US Starting on September 30th
+- Economic Armageddon Is Imminent
+- Economic Crisis - No End In Sight - Worse Than The Great Depression
+- Economic Crisis - The Next Round of Financial Slaughter - The G-20 Summit Charade
+- Economic Pearl Harbor
+- EE.UU. Puede Volver a Caer en La Crisis - La FED y Japón Advierten
+- Eleven Economic Crashes that Are Happening RIGHT NOW
+- End of The World We Know
+- Epic Fail
+- El Colapso de La Economía Estadounidense - Apocalípticas Predicciones Para USA
+- El Colapso Económico - ¿Qué Ocurrirá A Partir De Ahora?
+- El Descalabro Financiero No Fue Un Error - Fue Un Engaño - Ahora Sabemos La Verdad
+- En Las Fauces de Otra Gran Depresión - Un Repaso Rápido a La Economía Real
+- ¿Estamos al Borde de un Colapso Masivo de Los Mercados Emergentes?
+- Farewell to Dollar Supremacy.
+- Federal Reserve Directors' Banks and Businesses Took $4 Trillion in Bailouts - Report
+- FEDs May Be Planning to Bump All The Toxic Garbage on Bank of America
+- Five Years Since The Great Financial Crisis - "No Growth, No Deleveraging"
+- Financial Coup dEtat in The U.S.
+- Financial Crisis in Dubai - Towards a Nightmare Scenario?
+- Financial Crisis - The Next Big Bank Bailout is On The Way
+- Financial Crisis Will Sweep Away Governments
+- Financial Meltdown - The Case Against The Ratings Agencies
+- Financial Suicide - Will The U.S. Be Unable to Pay its Bills?
+- Financial Tsunami - The End of The World as We Knew It
+- George Green and The World's Big Financial Crash...
+- Get Out of Banking Immediately - The Crash Is Coming
+- Global Collapse of The Fiat Money System
+- Global Debt Crosses $100 Trillion, Rises by $30 Trillion Since 2007 - $27 Trillion is "Foreign-Held"
+- Global Economic Collapse In Process
+- Government Silently Positions for Martial Law as Financial Collapse Arrives in America
+- Hacia Una Nueva Crisis de La Deuda
+- Iceland - Victory Over International Banksters - Main File
+- Illuminati Bankers Are Making A Killing On This Crisis
+- IMF Calls For Huge New Round of Bank Bailouts
+- International Currencies Increasingly Rejected in The Face of Inflation
+- Iran to Execute 4 Bankers on Fraud Charges
+- Islandia - Victoria Sobre los Banksteros Internacionales - Main File
+- Is The Death of The U.S. Dollar Imminent? - The Death of The U.S. Dollar has Been "Imminent" Countless...
+- Is The Illuminati Provoking Economic Collapse? - Remembering Svali's Words
+- Italian Scandal Widens as Italy's Third Largest Bank Set to Get Third Bailout in 3 Years - Draghi and Monti...
+- It's Not The "Great Recession" - It's The Great Bank Robbery!
+- Jacob Rothschild, John Paulson and George Soros are All Betting that Financial Disaster is Coming
+- Jamie Dimon Is Not Alone - Report on Former and Current Directors from Federal Reserve Banks
+- La Contracara Del Colapso - ¿Porqué Sube El Dólar? -La Moneda USA Se Dispara En Plena Crisis...
+- La Crisis Económica Vista Desde La Economía Ecológica
+- La Esclavitud por Deudas - Por Qué Destruyó a Roma y Por Qué Nos Destruirá a Menos Que Sea Detenida
+- Larry Summers and The Secret "End-Game" Memo
+- Lessons From The Collapse of Wall Street
+- "Let The Plunder Begin" - The Return of Robert Rubin
+- Lo Peor Está Por Venir - Cómo y Cuándo La "Crisis Financiera" Se Va a Convertir en "Crisis Global"
+- Making The World Safe for Banksters
+- Markets Are Sick - Medic! Medic!
+- Markets Are Sick - Predictions
+- Martial Law in USA? The Death of Democracy - Main File
+- Martial Law, The Financial Bailout, and War
+- Mega-Banks Plan for Collapse with Contingency Plans and Private Police Force
+- Meltdown 2008
+- Morgan Stanley is Insolvent - Only a Matter of Time Before Total Financial Collapse
+- Move Your Money!
+- Move Your Money - Campaign Grows to Divest from "Too Big to Fail" Banks to Local Banks, Credit Unions
+- NIA Exposes U.S. Debt Ceiling Truth
+- No Recovery - It's a Cover-Up! - Recession To Worsen Revolution To Follow
+- Operation StillPoint to 'Take Down' The United States
+- Parasitic Bankers Achieve The End of Capitalism and The Sacking of America
+- Party Over for Bankers
+- Peaceful Revolution - Push Back, Refuse, Non-Cooperation
+- Periodista Americana Advierte De Que La Crisis Manufacturada Es La Antesala De Un Golpe De Estado
+- Porqué en Occidente Las Instituciones Financieras y La Medicina Están Ambas Condenadas a Fallar
+- Profiting from Crisis - How Corporations and Lawyers are Scavenging Profits from Europe's Crisis Countries
+- Prof. Nouriel Roubini '12-Step Scenario' - Global Economy
+- Recession To Worsen Revolution To Follow - No Recovery. It's a Cover-Up!
+- Roubini Predicts U.S. Losses May Reach $3.6 Trillion
+- Red Alert - The Second Wave of The Financial Tsunami - The Wave Is Gathering Force and Could Hit...
+- Several Hard Questions about The U.S. Economy that The Mainstream Media Should Be Asking
+- Si Tienes Dólares ¡Deshazte de Ellos Ya!
+- Startling Evidence that Central Banks and Wall Street Insiders are Rapidly Preparing for Something BIG
+- ¿Tenemos Que Prepararnos Para Un Cierre Temporal de Los Bancos?
+- The 2008 Financial Crisis - An Exploratory Analysis by The Global Consciousness Project
+- The Collapse of A 300 Year Ponzi Scheme - The Real Debate Is Crony Socialism or Financial Sovereignty
+- The Coming Financial Catastrophe - Debt Dynamite Dominoes - Assessing The Illusion of Recovery
+- The Coming Non-Linear World - The Bernanke FED is Playing With Fire
+- The Current U.S. Recession and The Risks of a Systemic Financial Crisis
+- The Dying Dollar and The Rise of a New Currency Order
+- The Economic Solutions of Vampires
+- The Financial Crisis and The Bank Bailout - A James Corbett Report
+- The Financial Crisis - Impact on BRIC and Policy Response
+- The Financial Crisis - Why Have No High-Level Executives Been Prosecuted?
+- The Financial System Failure
+- The Global Financial Cycle - Robbery, Depression, Destruction and 'Recovery'
+- The Latest from "DHS Insider" - Government Control Plans for The Near Futures
+- The Plain and Complex Truth
+- The Pre-Planned Financial/Economic 9-11 of 2008
+- The Richest 0.1% Have Launched a War on Us - Its Time to Fight Back and Hold These 400 Billionaires...
+- The Shocks Continue - Currency Crisis and Emerging Market Collapses
+- The Speculative Endgame - The Government "Shutdown" and "Debt Default", a Multibillion Bonanza for...
+- The Stench of U.S. Economic Decay - Russia and China Dump The US Dollar
+- The Twelve Steps to Financial Disaster
+- The US Government Defaults On Its Debt: Summer 2009 - Global Systemic Crisis Alert
+- Todo Lo Que Quisiste Saber Sobre Esta Crisis Financiera y No Te Atreviste a Preguntar - Un Sonoro ¡No!...
+- Trilateral Geithner - Corrupted Regulator?
+- Trillions Stolen by Bankers - SEC Slaps "Million Dollar Fines" on them
+- Una Nueva Era De Caos Está A Punto De Comenzar
+- Unsustainable Deficits and Bond Boycotts - Panic at The Fed or Back to Financial Normalcy?
+- U.S. Dollar Collapse and Japans Sham Currency War - The Hidden Agenda Behind Japans Kamikaze...
+- U.S. Dollar Collapse Could Occur at Any Time
+- U.S. Is Becoming an "Underdeveloping Nation"
+- U.S. Treasury Warns of Whats to Come - "Catastrophic Effect Could Last for More Than a Generation"
+- Vuelven Los Temores a Un Cierre 'Temporal' de Los Bancos
+- Wall Street Analysts Everywhere Are in Agreement - 'The World is Ending'
+- Wall Street Trader Stuns World by Telling The Truth About Coming Economic Collapse
+- Was The 2008 Financial Collapse an Inside Job?
+- We Are Now on The Verge of A Historic Meltdown and Collapse
+- What's Really Behind Quantitative Easing QE2? - The Looming Threat of A Crippling Debt Service
+- When The Dollar Dies
+- When The Dollar Rallies, The Market Will Crash
+- Where Are The Criminal Prosecutions for Financial Crisis? - "Inside Job" Director Charles Ferguson...
+- Who Are The Architects of Economic Collapse? - Will an Obama Administration Reverse The Tide?
+- Why Bailing Out Banks Doesn't Work
+- Why Does The SEC Protect Banks Dirty Secrets?
+- Why Haven't the Financial Executives Been Prosecuted? - U.S. Judge Asks
+- Why The Institutions of Western Finance and Western Medicine are Both Doomed to Fail
+Additional Information
+- 12 Million Americans Are Sociopaths
+- 12 Warning Signs of U.S. Hyperinflation
+- 134 Billion Dollar Bond Caper Full of Holes and Inconsistencies
+- 2010 - Food Crisis for Dummies
+- 2010 - "The Year of Severe Economic Contraction"
+- 2011 - The Coming Collapse of The World Economic Order
+- 4 Scenarios for The Coming Collapse of The American Empire
+- A Golden Parachute With a Silver Lining - An Escape Route in A Time of Disaster
+- Algunas Predicciones Económicas para el 2015 - Por Expertos a Nivel Mundial
+- A New Breed of Rough Riders? - Dollar Issuance by The United States Is "Out of Control"
+- Argentina - Here's What it Looks Like When your Country's Economy Collapses
+- Bailout Betrayal - The Death of Democracy
+- Bancos en México Ya No Aceptan Depósitos en Dólares Americanos
+- Bilderberg To Prolong Global Financial Recession For Another Year
+- Bill Clinton Was Not Even Allowed Out of The Plane When He Arrived in Japan Seeking Money Last Week
+- Bush Admin Creates Crises To 'Enrich Themselves And Their Friends'
+- Cambio Climático Cósmico y Terrorismo Financiero - Atando Cabos
+- Can The Economy Recover?
+- Central Bank of Central Banks Says "The World is Unable to Fight Next Global Crash"
+- Chaos Prevails at The Highest Levels of Government in The West as The Financial Fraud Unravels
+- Chase Bank Limits Cash Withdrawals and Bans International Wire Transfers
+- Cheap Wars
+- China, Russia Quit Dollar on Bilateral Trade
+- Chinese Police Units Begin Entering U.S. to Protect Assets
+- College Bubble Set to Burst in 2011
+- Crashing Finances
+- Crisis and Opportunity - George Green at January 2009 Vilcabamba-Ecuador Conference
+- Crisis Financiera Internacional - ¿Como, Cuando, Porque?
+- Crisis Sistémica Global 2015 - Petróleo, Divisas, Finanzas, Sociedades, Oriente Medio - ¡La Gran...
+- Currency Wars For Dummies - How The United States is Hyperventilating The World
+- Debt Slavery - Why It Destroyed Rome, Why It Will Destroy Us Unless It's Stopped - Hammurabi Knew...
+- Deliberately Engineered Economic Collapse in USA Leading to Martial Law
+- Descent Into Barbarism - The US and NATO Wage War on The World
+- Dollar Collapse Update - "Obama Demands Pay in Euros!"
+- Don't Riot - It's Just What They Want!
+- Dreams of Empire Ruined
+- El AMERO, La Declaración de Fuerza Mayor y El Pánico General
+- El BIS, el Organismo Financiero Mas Poderoso del Mundo, Advierte de la Llegada de Otra Gran Crisis
+- El Peligro Acechante - ¿A Qué Teme Washington en América Latina? - La Pérdida del Control y Lo Que...
+- "El Rescate Financiero es la Mayor Inmoralidad de la Historia de la Humanidad" dijo Manfred Max-Neef
+- El Sistema Se Autodestruye - Señales del Apocalipsis
+- Estafando Al Ladrón
+- Europa Tiene Mucho Que Aprender de La Nueva América Latina - Entrevista al Investigador Francés Salim...
+- Expert Predicts End to Hierarchies and Value of Money, More ET/UFO Disclosure Starting July-Nov 2010
+- Extremadamente Urgente - Los Gobiernos Están Considerando Cerrar Todos Los Mercados Financieros
+- Fall of The Dollar On G-20 Finance Ministers Agenda
+- Federal Reserve Money Printing Is The Real Reason Why The Stock Market Is Soaring
+- FEMA Sources Confirm Coming Martial Law
+- Food/Financial Crisis of 2011
+- For Those Who Are Interested In Truth
+- Fuente Interna Se Dirige a Proyecto Camelot Con Una Fecha - "Primeros de Octubre"
+- Futuretalk - A Project Camelot Conversation With Michael St Clair
+- Global Bellwether - Japan's Social Depression
+- Global Plans to Replace The Dollar
+- Great Myths of The Great Depression
+- "Habrá Otra Crisis Financiera" - Alan Greenspan
+- Half Past Human - Telephone Interview With Clif High
+- How The Fiat Money System Invents Money and What's Gone Wrong
+- How to End The Federal Reserve and The Bailout Madness
+- How to Rebuild The Global Financial System And Save The Planet
+- If Economic Cycle Theorists are Correct, 2015 to 2020 will be 'Pure Hell' for The United States
+- Il BIS, l'Organismo Finanziario Più Potente del Mondo Avverte che Arriva un'Altra Grande Crisi
+- IMF Warns of Economic Riots - Police Ready for Civil Unrest - Martial Law
+- Institutional Corruption Is Killing The Economy - Americans are Losing Trust in All U.S. Institutions
+- Insumisión Bancaria
+- International Economics Forecaster June 2009
+- Is The United States Bankrupt?
+- Is It Time for Law Abiding American Citizens to Stop Paying Their Taxes and Start a New Government?
+- La Amenaza para la Economía Global de la Que Nadie Habla
+- La Ley Marcial y La Economía - ¿Se Prepara la Seguridad Nacional de EE.UU. para El Próximo Colapso...
+- La Ley Universal Apoya Colapso de la Economía en 2011, la Ascensión en 2012 - Dice Científico
+- La Muerte del Papel Moneda
+- La Realidad Estos Días Da Más Trabajo Que La Ficción
+- Largest Racketeering Lawsuit in U.S. History Names Holder, Geitner and Others
+- La Seducción de Las Exigencias de Dolor y Austeridad Económica
+- La Teoría De Los Ciclos en La Economia - Martin Armstrong y El Calendario Maya
+- Latin America - Growth, Stability and Inequalities - Lessons for The U.S. and E.U.
+- Leaked Agenda - Bilderberg Group Plans Economic Depression
+- Looking Ahead - 2012-2015
+- Looming Economic Collapse Scenarios Facing the United States - Lessons from the Soviet Collapse
+- Los Documentos Secretos de Wall Street - La Estafa Más Gigantesca de La Historia al Descubierto
+- Manfred Max-Neef - Economía Transdisciplinaria Para La Sustentabilidad
+- Martial Law and The Economy - Is Homeland Security Preparing for the Next Wall Street Collapse?
+- Mirando Hacia Adelante - 2010-2015
+- Money Figures Show There's Trouble Ahead
+- Monopoly Money and The International Banking Cartel
+- More Americans Opting Out of Banking System
+- New Currency - The Next Great Plunder
+- "Nuremberg Trials" for The Banksters
+- Oh, What a Tangled Web We Weave When First We Practice to Deceive
+- Peligro en Aumento - Pésimas Señales en la Economía Mundial
+- Piani Globali per Rimpiazzare il Dollaro - Il Tramonto degli Stati Uniti
+- Planes Globales Para Reemplazar Al Dólar - El Ocaso de EE.UU.
+- Podemos Vivir Sin Capitalismo - Para Construir Una Verdadera Soberania Popular En Tiempos de Crisis
+- Populace of USA - Transition Into Reformation - Predictions
+- Presentación de La Moneda Mundial en La Cumbre del G-8
+- Presidential Meeting Signals Catastrophic Event - "There Is a Crisis Unfolding Somewhere in The...
+- Project Prophecy - The Death of Money
+- Reviewing Naomi Klein's "The Shock Doctrine"
+- Robbing The Poor to Give to The Rich Who Made Them Poor
+- Ron Paul - Bailout Means We'll All Suffer
+- Secret Bush Administration Plan to Suspend US Constitution - "Continuity of Government" (COG)...
+- Secret Financial Maneuvers Fail to Save Copenhagen Climate Summit
+- Secretive Plan For a Global Currency - Excerpt from "The Global Economic - The Great Depression of...
+- Signos Inquietantes en la Economía que Debes Tener en Cuenta
+- Some Predictions of Economic Disaster in 2015 from Top Experts All Over the Globe
+- Stock Market Bubbles and Record Margin Debt - A (Repeating) History of Ignoring All Warnings
+- The $600 Trillion Derivatives Emergency Meeting - Coming Soon
+- The American Empire -Too Big to Fail? - Who Gets Bailed Out - And Who Doesn't
+- The Austerity Hoax
+- The Bailout - Bushs Final Pillage
+- The Bilderberg Plan for 2009 - Remaking The Global Political Economy
+- The Coming Financial Panic - from "Trilaterals Over Washington"
+- The Cosmic Laws of Creation and Destruction - Why and How the World Economic Order Will Collapse in...
+- The Critical Unraveling of U.S. Society
+- The Death of Paper Money
+- The Economic Elite Vs. The People of the United States of America
+- The End of The United States - The Bush Administration Plan
+- The Federal Reserve Is Not Going to Save Us From The Great Depression That Is Coming
+- The Feds Buy Time (But Not Much) by Calling In their Last Reserves
+- The Final Destruction of The Middle Class - The Great 2008 Transfer of Wealth
+- The Financial Press - A Disinformation Machine
+- The Financial Road to Serfdom - How Bankers Use The Debt Crisis to Roll Back The Progressive Era
+- The Funeral March of Our Marionettes - Britain Goes Bump in The Night!
+- The Killing Horizon - Capitalism At The Expense of All Life
+- The New York Times and the FED's Transcripts - The Greatest Propaganda Coup of Our Time?
+- The Perfect No-Prosecution Crime
+- The Planned Collapse of America
+- The 'Post-Democratic' Society Unfolding By The Hour
+- The Raging Secret War Continues
+- The Rot Runs Deep
+- The Science of Physical Economy - Economics as History
+- The Shutdown of The U.S. Government and "Debt Default" - A Dress Rehearsal for the Privatization of the...
+- The Size of The Derivatives Bubble Hanging Over the Global Economy hits A Record High
+- The System is Going Down Hard
+- The Wall Street Pentagon Papers - Biggest Scam In World History Exposed
+- The Wanta-Reagan-Mitterrand Protocols - Following The Money Backwards Leads to President Reagan...
+- Things Could Get Ugly Fast
+- Titanic Battle or Insider Trading? - The S&P Downgrade and The Bilderbergers - All Part of The Plan?
+- Top 1% Enjoyed 93% of Economic Recovery in 2010 - Report
+- Top Economic Advisers Forecast War and Unrest
+- Trillions of Dollars "Lost" by US Politicians-Bureaucrats?
+- Unidades Policiales Chinas Comienzan a Entrar a Estados Unidos Para Proteger Bienes
+- Universal Law Supports Collapse of Economy in 2011, Ascension in 2012 - Scientist Says
+- Update on Silver, China and Surviving The Sudden End of The American Government
+- U.S. Congress Sells Out to Wall Street
+- Warning - Get Your Money Out - "All Legal Bank Deposit Protections Are Now Officially Gone"
+- Was Dominique Strauss-Kahn Trying to Torpedo The Dollar?
+- What Was Discussed At a Closed Session of The U.S. House of Representatives? - The End of An 'Empire'
+- What Has Government Done to Our Money?
+- Who is Behind the Economic Collapse?
+- Why Dont The Corrupt Players on Wall Street and in D.C. Show Remorse for Their Destructive Actions
+- Why Gold Was 'Hacked' Friday - and How - April 2008
+- Will You Pull Your Money Out of Bank of America? - This New World Financial Disaster Is What The...
+- World Changes - Project Camelot Interviews
+- World's Wealthiest People Now Richer Than Before The 2008 Credit Crunch
+- Would Our Government Really Start a War to Try to Stimulate the Economy?
+Eurozone
+- A Furious Cyprus Begins Investigating Who Breached The Capital Controls
+- Alemán Fundador del Euro Hace Llamado para que La 'Catastrófica' Moneda sea Sacada de Circulación
+- Alerta en La Cumbre del G-20 - Europa Pide Control Bancario Por Temor a Un Nuevo Colapso en EE.UU.
+- A Line of Demarcation Through The Eurozone is Taking Shape
+- Argentine Advice for Greece - 'Default Now, Bring Back The Drachma'
+- Bankers Have Seized Europe - Goldman Sachs Has Taken Over
+- Bank of England Policymaker Predicts Unprecedented Dollar Collapse
+- 'Betray Your Bank' Before Your Bank BETRAYS You - Eurozone
+- Bilderberg Found In Spain
+- British Government Begins Stealing Its Peoples Bank Deposits Ahead of The Global Financial Collapse
+- Cyprus and The Hunger Games Crossing The Line
+- Deudocracia y Catastroika - La Crisis (Global) Griega
+- Down Goes Britain - The UK Economy Tumbles Deep Into Recession
+- ECB Preparing Italy Bailout - Massive Inflation Coming
+- Economic Rape of Europe Nearly Complete
+- España - El Plan de Rescate Gigante
+- Euro Crisis On - Portugal Crashes After Finance Minister Resigns
+- uro - La Hipótesis de Lo Peor
+- Euro vs. Dollar - Sideways, But for How Long?
+- Europa - Lo Que No Se Dice de La Crisis
+- Europeans Planted Seeds of Crisis in Cyprus
+- Europe's Web of Debt - In and Out of Each Others European Wallets
+- Europe to Lead The Financial Collapse of The West?
+- Eurozone Crisis Has Increased IMF's Power
+- EU's Recipe for The United States of Europe and Seizure of Our Money Through Homemade "Crises"
+- EU Summit Seals One Trillion Euro Deal After Merkel Warns of War in Europe
+- EU-US Trade Pact Can Halt West's Decline - Brzezinski Says
+- Financial Red Alert - Europe Stands on Verge of 'Apocalyptic' Debt Crisis With Only Days Remaining
+- Finland Prepares for Euro Break Up Scenario
+- "Forgive Us for Not Arresting Those Truly Responsible for This Crisis: Bankers and Politicians" - Protesting...
+- Former ECB Chief Economist says ECB is In Panic, as Czech President Warns The End of Democracy...
+- France, Germany and Holland Are Planning New Currency to Follow The Demise of The Euro
+- Geithner Rushes to Sabotage German Derivatives Ban - Schäuble Prepares New Moves Against...
+- George Soros Schemes to Control The Future of Greece
+- German Euro Founder Calls for 'Catastrophic' Currency to Be Broken Up
+- Germany and The Holy Roman Empire
+- Germany and The Vatican Are Moving Toward a Financial New World Order - The Vatican Exploits the...
+- Greece - Dump The EU Now For An Economic Recovery!
+- Greece Is Not Poor - It Actually Has Massive Untapped Reserves of Gold, Oil and Natural Gas
+- Greece Officially Defaults - UK Prepares for Euro Collapse
+- Greece Urged to Give Up Euro
+- Hyper Mario and Germany on Verge of All Out Warfare
+Italiano
+- Il Tedesco Fondatore dellEuro Lancia un Appello per Far Sì che La Catastrofica Moneta SiaTolta dalla...
+- In Bailouts, Spain Will Be 'The Biggie'
+- In Italy, Worlds Oldest Bank Faces Uncertain Future
+- Investors Prepare for Euro Collapse - Currency's Days Feared Numbered
+- Ireland and The European Banking Crisis - A Really Really Special Case Requires a Really Really Special...
+- Is Greece The First Domino Toward Widespread Banking Panic and Currency Controls?
+- Is Switzerland The Next Iceland? - After Britain and the US Injected Massive Amounts of Capital Into Their...
+- Italy in Crisis - The Decline of The Roman Democracy
+- Las Principales Ciudades Españolas Gritan Su Indignación Por La Especulación Financiera
+- Lloyd's of London Preparing for Euro Collapse
+- Lo Que en Verdad Busca La Troika - La Crisis Económica de La Unión Europea Vista Desde Latinoamérica
+- Multiple Signs That The Smart Money Has Completely Written Off Southern Europe
+- Plunged Into Chaos - Europe on The Eve of The Bilderberg Conference
+- Rothschild & Obama Demands Pay in Euros!
+- Saxo Bank CEO Says Euro is Doomed as Currency Woes Resurface
+- Scandal Hits Cyprus
+- Se La Francia Stampa Euro
+- Several Signs that Italy is Descending Into a Full-Blown Economic Depression
+- Spain and Italy Are Toast Unless Germany Allows The ECB to Print Trillions of Euros
+- Spain Is Beyond Doomed - The 2 Scariest Unemployment Charts Ever
+- Spain Now Faces a Systemic, Societal, and Sovereign Collapse
+- Spain's Rajoy Yields to Merkel, Agrees that EU Countries Must Cede Sovereignty
+- Switzerland Prepares Army for Euro Zone Fallout
+- The Eurozones Rescue Fund - German High Court Capitulates to Bankers
+- The Golden Snitch - How The Globalists Stole The Greek Election
+- The Spanish Bank Bailout Begins
+- The UK Government's Latest Moneymaking Scam - 100 Year Gilts
+- "The Whole Thing Is Doomed" - European Bank CEO Admits
+- Twenty Facts About The Collapse of Europe That Everyone Should Know
+- UBS Issues Hyperinflation Warning for U.S. and UK - Calls It Purely "A Fiscal Phenomenon"
+- Warns of War - Merkel Wants 'Permanent' Supervision of Greece
+- What Europes Crisis Means for You and Your Savings
+- Why The Euro Is Doomed in 4 Steps
+- Will Europe's Unemployment Crisis Spark a Return for Fascism?
+- Words of Warning - Get Your Money Out of European Banks
+Books-Treatises
+- Economia Descalza - Señales desde el Mundo Invisible - por Manfred Max-Neef
+- Is The United States Bankrupt? - by Laurence J. Kotlikoff
+- The Shock Doctrine - The Rise of Disaste - by Naomi Klein
+Multimedia
+- 1 Day Before 911 WTC Attack! - DO you know what happened? - WATCH!
+- After The DOLLAR CoLLaPSe and Currency WARS
+- An Inconvenient Death - A Documentary on The Death of The Working Class
+- Ante La Crisis Crean Su Propia Moneda
+- "Austerity" Comes to America
+- Banksters & Government Exposed FINALLY by Mainstream News! - MSNBC
+- Black 9/11 - Money, Motive, Technology, and Plausible Deniability
+- Break Up The Euro and Restore Human Dignity - UKIP Nigel Farage - 22 May 2012
+- Capitalism Hits The Fan
+- Capitalismo - Historia de Un Romance - Capitalism - A Love Story
+- College Conspiracy
+- Cortafuego - En Defensa Del Estado Nacional
+- Currency Wars - The Making of The Next Global Crisis
+- Death of The Dollar Menu
+- Debate About Secret Session in House of Representatives
+- Deudocracia y Catastroika
+- Discussing Financial Terrorist Bankers and Politicians
+- Economic Armageddon - Time to Wake Up! - The Economic Collapse That Is Unfolding
+- El Futuro de EE.UU. - Ley Marcial
+- El Truco de Las Políticas de La UE de Convertir Deuda Privada en Deuda Pública - Crisis Económica
+- End of Liberty
+- Fall of The Republic - The Presidency of Barack H. Obama
+- Financial Bailout - A Necessary Evil
+- Firewall - In Defense of Nation State
+- Foreclosure Fraud by Gov-Co & Banks - Indymac Boys Get Sweetheart Deal
+- George Green and The World's Big Financial Crash... - A Phone Conversation
+- Gerald Celente on The Alex Jones Show 22 October 2009
+- Global Economic Update - Benjamin Fulford
+- Goldman Sachs' Crash of Markets Last Year Was a False Flag Operation - 'On the Edge' with Max Keiser
+- Gold Vs. Dollar
+- Hidden Secrets of Money - Currency Vs Money
+- High Anxieties - The Mathematics Of Chaos
+- How To Buy A Politician
+- Il Big Crash Economico - Come Uscire da Tutto Questo Pasticcio?
+- In Search of the Bankers' Brain
+- Inside Job
+- Inside The Meltdown - America's Financial System Unraveled
+- I.O.U.S.A. - One Nation - Under Debt - In Stress
+- Karen Hudes Predicts Lawlessness when U.S. Dollar Loses International Currency Status
+- La "Elite" Habla - Lindsay Williams
+- Largest Financial Scandal in World History - Shocking NIA Interview With Bill Murphy
+- "Looks Like Magic" - Ron Paul on The Fed's Money Machine
+- Meltdown - The Secret History of The Global Financial Collapse
+- Michel Chossudovsky on the Banker Bailouts
+- Michael Hudson Habla con El Economista Renegado
+- Mis Ahorros, Su Botín - El Crash del Sistema Financiero
+- Network - English Version / Version en Español
+- Palabras Desde Atenas - Words From Athens
+- Prognosis For Planet Earth - by Bill Deagle
+- Prof. Nouriel Roubini in The Alex Jones Show
+- Ron Paul Sobre Economía
+- Silver and Gold - Hidden Secrets of Money
+- Smuggling 134 Billion in US Bonds
+- Sobre el Colapso de La Economía - Entrevista a Martin Summers
+- Sobre el Colapso de La Economía - Entrevista a Sean David Martin
+- Some Common Sense Answers to The Major Financial Questions of Today - Richard Kovacevich
+- State of The Planet Conference Presents George Green Via Skype in Amsterdam
+- 'The Day The Dollar Died' Goes Viral - Inflation
+- The Debt Collapse
+- The "Dispatches Reports" - Banks and The Big Crash
+- The Elite Speak - Lindsey Williams
+- The Global Financial Crisis - The Great Depression of The 21st Century
+- The Global Ponzi Scheme - Adrian Salbuchi
+- The Power of The Purse
+- The Shock Doctrine - Naomi Klein
+- The Shocking Truth of The Pending EU Collapse!
+- The Short and Simple Story of The Credit Crisis
+- The Warning - A Thread to The Financial System
+- Trabajo Confidencial - Dinero Sucio
+- Unintended Consequences - Hyperinflation
+- Wall Street Whistleblower - Proves That Money Never Sleep
+- 'We're Going to Suffer' - Ron Paul
+- Why The U.S. is Becoming an "Underdeveloping Nation" - Chilean Economist Manfred Max-Neef on...
+Related Reports
+- Global Elite - Main File
+- Gold for Humans and Others... - Main File
+- The BRICS - Main File
+- The Bushes and The New World Order - Main File
+Return to EndGame
+Return to Temas / Main Files
+Return to The Federal Reserve
+Return to The Global Banking System

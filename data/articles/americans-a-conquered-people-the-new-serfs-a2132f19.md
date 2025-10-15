@@ -1,0 +1,53 @@
+# Americans: A Conquered People - The New Serfs
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_americanempire148.htm
+
+by Dr. Paul Craig Roberts May 23, 2016 from GlobalResearch Website
+"Russia and China stand between Washington
+and Washington's Goal of Hegemony
+over the Entire World"
+As readers know, I have seen some optimism in voters support for Trump and Sanders as neither are members of the corrupt Republican and Democratic political establishments. Members of both political establishments enrich themselves by betraying the American people and serving only the interest of the One Percent. The American people are being driven into the ground purely for the sake of more mega-billions for a handful of super-rich people. Neither political party is capable of doing anything whatsoever about it, and neither will.
+As readers know, I have seen some optimism in voters support for Trump and Sanders as neither are members of the corrupt Republican and Democratic political establishments.
+Members of both political establishments enrich themselves by betraying the American people and serving only the interest of the One Percent.
+The American people are being driven into the ground purely for the sake of more mega-billions for a handful of super-rich people. Neither political party is capable of doing anything whatsoever about it, and neither will.
+The optimism that I see is that the public's support of outsiders is an indication that the insouciant public is waking up.
+But Americans will have to do more than wake up, as they cannot rescue themselves via the voting booth. In my opinion, the American people will remain serfs until they wake up to Revolution. Today Americans exist as a conquered people. They have lost the Bill of Rights, the amendments to the Constitution that protect their liberty.
+Anyone, other than the One Percent and their political and legal servants, can be picked up without charges and detained indefinitely as during the Dark Ages, when government was unaccountable and no one had any rights. Only those with power were safe.
+In America today anyone not politically protected can be declared "associated with terrorism" and taken out by a Hellfire missile from a drone on the basis of a list of human targets drawn up by the president's advisers.
+Due process, guaranteed by the US Constitution, no longer exists in the United States of America. Neither does the constitutional prohibition against the government spying on citizens without just cause and a court warrant.
+The First Amendment itself, whose importance was emphasized by our Founding Fathers by making it the First Amendment, is no longer protected by the corrupt Supreme Court.
+The Nine who comprise the Supreme Court, like the rest of the bought-and-paid-for-government, serve only the One Percent.
+Truth-tellers have become "an enemy of the state." Whisteblowers are imprisoned despite their legal protection in US law. The United States government has unaccountable power.
+Its power is not accountable,
+to US statutory law to international law to the Congress to the judiciary to the American people to moral conscience
+to US statutory law
+to international law
+to the Congress
+to the judiciary
+to the American people
+to moral conscience
+In the 21st century the war criminal US government has murdered, maimed, and dislocated millions of people based on lies and propaganda.
+Washington has destroyed seven countries in whole or part in order to enrich the American elite and comply with the neoconservative drive for US world hegemony. Americans live in a propaganda-fabricated world in which a brutal police state is cloaked in nice words like "freedom and democracy."
+"Freedom and democracy" is what Washington's war machine brings with sanctions, bombs, no-fly zones, troops, and drones to countries that dare to cling to their independence from Washington's hegemony. Only two countries armed with strong military capability and nuclear weapons - Russia and China - stand between Washington and Washington's goal of hegemony over the entire world. If Russia or China falter, the evil ensconced in Washington will rule the world. America will be the Anti-Christ. The predictions of the Christian Evangelicals preaching "end times" will take on new meaning. Russia is vulnerable to becoming a vassal state of Washington. Despite a legion of betrayals by Washington, the Russian government has just proposed a joint US/Russia cooperation against terrorists. One wonders if the Russian government will ever learn from experience.
+Has Washington cooperated with the agreement concerning Ukraine? Of course not. Has Washington cooperated in the investigation of MH-17? Of course not. Has Washington ceased its propaganda about a Russian invasion of Crimea and Ukraine? Of course not. Has Washington kept any agreement previous US governments made with Russia? Of course not.
+Has Washington cooperated with the agreement concerning Ukraine? Of course not.
+Has Washington cooperated in the investigation of MH-17? Of course not.
+Has Washington ceased its propaganda about a Russian invasion of Crimea and Ukraine? Of course not.
+Has Washington kept any agreement previous US governments made with Russia? Of course not.
+So why does the Russian government think Washington would keep any agreement about a joint effort against terrorism? The Russian government and the Russian people are so unaware of the danger that they face from Washington that they let foreigners control 20 percent of their media! Is Russia unaware that Washington has Russia slated for vassalage or destruction? China is even more absurd.
+According to the Chinese government itself, China has 7,000 foreign-financed NGOs operating in China! Foreign financed NGOs are what Washington used to destabilize Ukraine and overthrow the elected government. What does the Chinese government think these NGOs are doing other than destabilizing China? Both Russia and China are infected with Western worship that creates a vulnerability that Washington can exploit. Delusions can result in inadequate response to threat. All of Europe, both western, eastern and southern, the British Pacific such as Australia and New Zealand, Japan and other parts of Asia are vassal states of Washington's Empire. None of these allegedly "sovereign" countries have an independent voice or an independent foreign or economic policy.
+All of Latin America is subject to Washington's control.
+No reformist government in Latin America has ever survived Washington's disapproval of putting the interests of the domestic populations ahead of American corporate and financial profits. Already this year Washington has overthrown the female presidents of Argentina and Brazil. Washington is currently in the process of overthrowing the government in Venezuela, with Ecuador and Bolivia waiting in the wings.
+In 2009 'Killary' Clinton and Obama overthrew the government of Honduras, an old Washington habit. As Washington pays the UN's bills, the UN is compliant. No hand is ever raised against Washington. So why does anyone on the face of the earth think that an American election can change anything or mean anything? We know that Killary is a liar, a crook, an agent for the One Percent, and a warmonger.
+Let's now look at Trump. Are there grounds for optimism about Trump? In the West "news reporting" is propaganda, so it is difficult to know. Moreover, we do know that, at least initially, the response of the Republican Establishment to Trump is to demonize him, so we do not know the veracity of the news reports about Trump. Without belaboring the issue, two news reports struck me. One is the Washington Post report that the Zionist multi-billionaire US casino owner Sheldon Adelson has endorsed Donald Trump for President. Other reports say that Adelson has mentioned as much as $100 million as his political campaign contribution to Trump. Anyone who gives a political campaign $100 million dollars expect something in exchange, and the recipient is obligated to provide whatever is desired. So are we witnessing the purchase of Donald Trump? The initial Republican response to Trump, encouraged by the crazed neoconservatives, was to abandon the Republican candidate and to vote for Killary. Is Adelson's endorsement a signal that Trump can be bought and brought into the establishment? Additional evidence that Trump has sold out his naive supporters is his latest statement that Wall Street should be deregulated:
+"Populist" Trump Wants to Deregulate Wall Street.
+It is extraordinary that Trump's advisers have not told him that Wall Street was deregulated back in the 20th century during the Clinton regime.
+The repeal of Glass-Steagall deregulated Wall Street. One source of the 2008 financial crisis is the deregulated derivative market.
+When Brooksly Born attempted to fulfill the responsibility of the Commodity Futures Trading Commission and regulate over-the-counter derivatives, she was blocked by the Federal Reserve, the US Treasury, the SEC, and the US Congress. Nothing has been done to correct the massive mistake of financial deregulation.
+The Dodd-Frank legislation did not correct the massive financial concentration that produced banks too big to fail, and the legislation did not stop Wall Street's reckless casino gambling with the US economy. Yet Trump says he will dismantle even the weak Dodd-Frank restrictions. The American print and TV media are so corrupt that these reports could be false stories, the purpose of which is to demoralize Trump's supporters.
+On the other hand, should we be surprised if a billionaire aligns with the One Percent? Elections are an unlikely means of restoring government that is accountable to the people rather than to the One Percent. Even if Trump is legitimate, he does not have the experience in foreign and economic affairs to know who to appoint to his government in order to implement change.
+Moreover, even if he knew, unless Trump candidates also replace the Senate, Trump could not get his choices confirmed by a Senate accountable only to the One Percent. Americans are a conquered people. We see this in the appeal from RootsAction to the rest of the world to come to the aid of the American people.
+Unable to stop the lawlessness of their own "democratic" government, Americans plea for help from abroad:
+Appeal from U.S. to World: Help Us Resist U.S. Crimes.
+The plea from RootsAction indicates that committed activists now acknowledge that change in America cannot be produced by elections or be achieved internally through peaceful means...
+Return to American "Empire"

@@ -1,0 +1,34 @@
+# Leaked Sec. Kerry Audio that CNN and NY Times Tried to Hide - Confirms 
+U.S. Role in Rise of ISIS
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_americanempire210.htm
+
+by Jay Syrmopoulos January 04, 2017 from TheFreeThoughtProject Website
+Washington, D.C.
+WikiLeaks has dropped yet another bomb on the credibility of the Obama administration, as the transparency organization released the full leaked audio of U.S. Secretary of State John Kerry's meeting with Syrian Opposition members at the Dutch Mission of the United Nations on September 22, 2016. The leaked audio exposes a 35-minute conversation that reveals the U.S. intentionally allowed the rise of ISIS as a means of forcing Assad out of power, which was omitted by CNN and the New York Times in their reporting when the audio was originally leaked to the Times in late September of 2016.
+According to a report by the NY Times:
+The meeting took place at the Dutch Mission to the United Nations on Sept. 22. There were perhaps 20 people around a table: representatives of four Syrian groups that provide education, rescue and medical services in rebel-held areas; diplomats from three or four countries; and Mr. Kerry's chief of staff and special envoy for Syria. The recording was made by a non-Syrian attendee, and several other participants confirmed its authenticity Several of the Syrian participants said afterward that they had left the meeting demoralized, convinced that no further help would come from the Obama administration.
+The meeting took place at the Dutch Mission to the United Nations on Sept. 22.
+There were perhaps 20 people around a table: representatives of four Syrian groups that provide education, rescue and medical services in rebel-held areas; diplomats from three or four countries; and Mr. Kerry's chief of staff and special envoy for Syria.
+The recording was made by a non-Syrian attendee, and several other participants confirmed its authenticity Several of the Syrian participants said afterward that they had left the meeting demoralized, convinced that no further help would come from the Obama administration.
+Highlighting exactly why WikiLeaks is the gold standard of journalism, both the NY Times and CNN chose to only report on certain aspects of the recording and omitting the most damning comments made by Kerry.
+Essentially, they attempted to hide from public view the statements that would allow Americans to understand what has actually taken place in Syria - a regime change operation. The NY Times never published the full audio, only publishing selected snippets, and CNN removed the audio altogether, with an editor's note stating that they took down the audio recording at the request of some of the participants out of concern for their personal safety. During the conversation, John Kerry admitted that he pushed for intervention in Syria, but eventually lost the argument.
+"I lost the argument for use of force in Syria," John Kerry told the members of the Syrian Opposition. "The audio gives a glimpse into what goes on outside official meetings. Note that it represents the US narrative and not necessarily the entire true narrative," according to WikiLeaks.
+The leaked recording confirms three clear and important facts that thoroughly destroy the official U.S. stance on Syria the past 5 years, and highlights the convoluted U.S. support of Islamist insurgents in Syria.
+These facts are likely the reason for this story being buried by the mainstream media.
+Secretary of State John Kerry admits and outlines the Obama administration's primary goal in Syria was regime change and the removal of Bahar al-Assad. In order to accomplish the primary goal of regime change, the White House allowed the rise of ISIS. The administration hoped that ISIS' growing power in Syria would force Syrian President Bashir Assad into a diplomatic solution, on U.S. terms, forcing him to cede power. As a means of accomplishing these two objectives, the U.S. intentionally armed ISIS and even, arguably, attacked a Syrian government military convoy to stop a strategic attack upon the Islamic extremists killing 80 Syrian soldiers.
+Secretary of State John Kerry admits and outlines the Obama administration's primary goal in Syria was regime change and the removal of Bahar al-Assad.
+In order to accomplish the primary goal of regime change, the White House allowed the rise of ISIS. The administration hoped that ISIS' growing power in Syria would force Syrian President Bashir Assad into a diplomatic solution, on U.S. terms, forcing him to cede power.
+As a means of accomplishing these two objectives, the U.S. intentionally armed ISIS and even, arguably, attacked a Syrian government military convoy to stop a strategic attack upon the Islamic extremists killing 80 Syrian soldiers.
+While many of these facts have been previously exposed through disparate research, the audio recording provides specific evidence that conclusively supports the regime change narrative being embarked upon by the Obama administration.
+Below is a quick video summary of how events have transpired over the years of conflict in Syria.
+Essentially, the U.S. allowed ISIS to rise in Syria as a means of forcing Assad out of power.
+The White House discerned that using an Islamist proxy force would save American lives, and at the same time allow for U.S. objectives to be reached in terms of regime change. As ISIS gained strength and grew into a fierce fighting force in Syria, the White House grew optimistic that their covert strategy of regime change was within reach. It was at this tipping point, that instead of succumbing to the regime change operation, Syria, being a client state of Russia, reached out to Vladimir Putin for military assistance and aid. Once Russia became involved in the Syrian theater of war it pushed the White House plan of regime change by proxy into turmoil.
+The Russians' overwhelming success against ISIS, al-Qaeda affiliate al-Nusra, and various other Islamist extremist elements in Syria essentially negated the regime change operation by proxy. When Russia came to aid Bashir Assad, the Syrian Government began being able to defeat ISIS and the Islamic Extremist elements within Syria.
+For the hidden plan of Obama/Kerry (and also McCain, Graham, et al), Russia defeating ISIS, al-Qaeda and al-Nusra, upended their objective. The fact is, that while claiming to be at 'global war with ISIS', the U.S. allowed the group to grow in strength and numbers with the intent of using them as a weapon to destabilize and topple a legitimately recognized government.
+The revelations contained within this leaked audio are simply astounding:
+Audio only...
+Return to 'War on Terror'
+Return to American "Empire"
+Return to The Actual Syrian Case
+Return to The Global Media Control

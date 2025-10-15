@@ -1,0 +1,857 @@
+# Big Brother Loves You... - El Gran Hermano Te Ama...
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_bigbrother.htm
+
+The term "Big Brother" has entered the lexicon as a synonym for abuse of government power, particularly in respect to civil liberties, often specifically related to mass surveillance.
+Contents
+- 19 Signs That America Has Become a Crazy Control Freak Nation Where Almost Everything is Illegal
+- 70 Years Later it's Still '1984'
+- 1984/2024 - La Esperanza Oculta en la Advertencia de Orwell
+- 1984/2024 - The Hidden Hope in Orwell's Warning
+- "1984" has Come to China
+- 1984 in 2012 - The Assault on Reason
+- "1984" turns 70 Years Old in a World that Looks a Lot Like the Book
+- 1984 Versus 2025 - Top Secret Government Agenda for Global Enslavement Plan
+- 2022's Danger Signs - From Totalitarian Paranoia to Authoritarian Madness
+- Agenda 21 and Earth Charter - Main File
+- Aldous Huxley foresaw our Despots - Fauci, Gates, and their Vaccine Crusaders
+- A Letter from Spain in the Year 2050
+- Alguien Nos Vigila A Todas Horas
+- Algunas Razones por las que Creer en la Autoridad es la 'Superstición Más Peligrosa'
+- ¿Amarás tu Servidumbre?
+- Amazon Sells Out of Orwell's '1984' as America Starts Paying Attention to What's Really Going On
+- Almost Everything Is A Crime In America Now - 14 of The Most Ridiculous Things That Americans Are...
+- America Is Being Systematically Transformed Into A Totalitarian Society
+- American Idiocracy - 50 Years Later, We're Still Stranded in the Twilight Zone
+- Americans are Being Prepared for Full Spectrum Tyranny
+- America Stands Upon The Precipice of Brutal Martial Law
+- America, Welcome to The Fourth Reich
+- Amerika - Behind The Mask
+- Amerika - Detrás de la Máscara
+- A New Kind of Tyranny - The Global State's War on 'Those Who Speak Truth to Power'
+- A New World Tax Regime
+- Anónimo Publica un Poderoso Mensaje de Navidad a la Humanidad - 2017 va a Ser Emocionante
+- Anonymous Releases a Powerful Holiday Message to Humanity - 2017 is Going to Be Exciting
+- Apocalypse Now - The Government's use of Controlled Chaos to Maintain Power
+- Are Corporations Poised to Overtake Countries?
+- Are You Loving Your Servitude...?
+- Asesores Científicos del Gobierno admiten usar 'Tácticas de Miedo Totalitario' - Control durante la 'Pandemia'
+- A State of Never-Ending Crisis - The Government is Fomenting Mass Hysteria
+- A Totalitarian Society has Totalitarian Science - And Vice Versa
+- Beyond Orwell - The Electronic Police State, 2010
+- Biden Administration creates 'Ministry of Truth'
+- Bienvenido al Gobierno de Vigilancia Masiva a Través de ¡Píldoras con Microchips!
+- Bienvenidos al Futuro Orwelliano - Control Mental, Telepatía, Supersoldados, Transhumanismo, Supervigilancia
+- Big Brother and The Hidden Hand of The "Free Market" - "Managing" Data and Dissent in America
+- Big Brother Gets Under Your Skin
+- Big Brother is Spying on You in 'Thousands of Ways' - All of that Info now goes into Centralized "Fusion Systems"
+- Big Brother Loves You...
+- Big Brother Not Just Spying on Schoolchildren Through Their Laptops
+- Big Brother - Obama Calls for The Integration of State and Federal Military Forces
+- Big Brother - Obama Demands Access to Internet Records, in Secret, and Without Court Review
+- Big Brother's Coming! - Revealed Secret Plan to Tag Every Man, Woman and Child
+- Big Brother Surveillance Society - from "The Atlantean Conspiracy - Exposing the Illuminati from Atlantis to...
+- Big Brother to Track Your Medication Compliance With Electronic Transmitters in Pills
+- Big Brother - Towards the Homeland Security State - from "America's 'War on Terrorism' by M.Chossud...
+- 'Big Data' isola Milioni per la 'Lotta al Coronavirus'
+- 'Big Data' Segregates Millions in China's 'Coronavirus fight'
+- Big Government - An Unnecessary Evil That Should Be Abolished
+- Big Other - Surveillance Capitalism and the Prospects of an Information Civilization
+- Big Tech's Authoritarian Practices are Accelerating - Will You Submit?
+- Bill Gates "defends" Free Speech - Unless it hurts His Investments...!
+- Biometrics - The Prison Within - TripWires, Totalitarianism, and Technoids
+- Biopoder en la Era del 'Gran Reinicio'
+- Biopower in the Age of the 'Great Reset'
+- Blue Beam - The Uncovert Project - Main File
+- Boston Bombings - Detonator to Mobilize The Entire U.S. Security Apparatus - It May Change The World...
+- Braccialetti, Segnali Luminosi, Codici a Barre - Indossabili come Risposta Globale al COVID-19
+- Bracelets, Beacons, Barcodes - Wearables in the Global Response to COVID-19
+- Brainwashed by The 1% - Are We Merely Puppets? - Hypernormalisation, a Documentary of 'A Fake World'
+- 'Brave New World' predicted 2018 Better than Any Other Novel
+- British Protest the "15-Minute Cities" where they will become Prisoners of the State
+- Cameron Advocates Greater Stasi-style Surveillance Powers for GCHQ after Charlie Hebdo
+- Can The Corporate Media Turn Lies Into Truth?
+- Capitalism is Doomed - Without Alternatives, So Are We
+- Capitalismo de Vigilancia - Algoritmos para Manipular la Opinión Pública y la Caída de Facebook
+- Chicago "Black Site" Indicates America has Passed the Point of No Return...
+- China is Helping Governments of the World Build their Own Surveillance State
+- China's Technological System to Control Dissenters
+- CIA Home Invasion - Smart TVs and The 'Internet of Things'
+- CIA - The Central Intelligence Agency - Main File
+- Citizen Spy Recruitment Program Launches in U.S. Hotels
+- Come "La Sorveglianza e il 5G" stanno Monitorando Rapidamente col pretesto della "Lotta al Coonavirus
+- Cómo Palantir Conquistó el Mundo - El Estado Profundo
+- Continuity of Government Police State - The Day After
+- Convergencia Biodigital - Un explosivo Documento revela la Verdadera Agenda
+- Covert Operations of The U.S. National Security Agency (NSA)
+- Creating the "Domestic Surveillance State" - How America's Wars Are Systematically Destroying Our...
+Español
+- ¿Cuán Fascistas son Los Estados Unidos? - Diez Indicadores del Fascismo
+- Cuba, Venezuela, Russia and China Now More Free than America in Notable Ways
+- Cuidado con la Manipulación de las Empresas de Tecnología como Google
+- CV-1984: China rolls out 'Test of Digital Currency' in Four Cities - Western Businesses Testing
+- DARPA Sponsors Surveillance Technology to Predict Future Behavior
+- De Cuarentena a Estado Policial - Se inaugura el "Gran Reinicio"
+- Defense Department Seeks Legal Authority to Deploy Reservists onto American Streets
+- De la Libertad de Expresión y la Actual Censura de Internet
+- 'Diebold' Voting Machines Can Be Hacked by Remote Control
+- Digital Currency - The FED moves toward Monetary Totalitarianism
+- Digital Tyranny and Hidden Agendas - Beware of the Government's Push for a Digital Currency
+- Digital Vaccine Certificates after Continued Lockdown - Plans for Post-Coronavirus World
+- "D" is for a 'Dictatorship Disguised as a Democracy'
+- 'Disinformation' isn't the Problem - Government Cover-ups and Censorship are the Problem
+- Divide, Conquer, Reset and then Scientific Dictatorship
+- Dividi, Conquista, Ristruttura e poi Dittatura Scientifica
+- Documents Show Undersea Cable Firms Provide Surveillance Access to U.S. Secret State
+- Domestic "Internet of Things" Begins to Merge With the Industrial Smart Grid
+- Do People Still Read 'Brave New World'?
+- Dos Ejemplos que Muestran que Rusia y China "No son la Alternativa"
+- Dutch State Secretary admits 5G will be Used for 'Crowd Control'
+- EE.UU. sienta las Bases para un Estado Policial Médico
+- Effective World Government Will Be Needed to Stave Off Climate Catastrophe
+- El Coronavirus y el 'Factor Miedo'... - Main File
+- El Covid-19 podría ser el Detonador del Peor Sistema Totalitario de la Historia - Afirma Yuval Noah Harari
+- El Diagnostico Psiquiátrico y sus Vínculos con la Vigilancia Masiva
+- Electronic Surveillance - America's Secret Domestic Spying Apparatus
+- El escenario Perfecto para la Videovigilancia Masiva - Los Juegos Olímpicos 2024 en Francia
+- El Estado de Vigilancia Omnipresente - '1984' de Orwell ya No Es una Ficción
+- El Estado Tecnocrático es el Enemigo Mortal del Individuo
+- El Fin de La Humanidad Como la Conocemos - Según Documento Filtrado de La NASA 2013
+- ¿El Fin de La Internet... Que Conocemos? - Main File
+- El Futuro 'Orwelliano' que los Expertos en Tecnología Plantean en la Cumbre de Davos 2015
+- El Germen de un Gran Mal
+- El Gobierno Secreto-Invisible - Main File
+- El Golpe de Estado Mundial
+- El 'Gran Teatro' de la Bioseguridad - Covid-19
+- El Matrimonio de Big Data con Big Brother - China crea Sistema para Evaluar Conducta de sus Ciudadanos
+- El Mundo Anglosajón - Camino de La Tiranía
+- El Mundo Después de la Pandemia
+- El Mundo está bajo un Hechizo - Bandera Falsa: una Arma de Manipulación Masiva
+- El Nuevo Orden Mundial - Main File
+- El Pentágono Abre La Puerta al Golpe de Estado Militar en EE.UU.
+- El Plan para un Sistema Global de Esclavitud
+- El Precio de La Verdad - Un Acto de Rebelión
+- El Reseteo Global - El Gran Reinicio - Main File
+- El Triunfo del Gran Hermano
+- Enabling a Decentralized World - How can we Create something that has Never Existed Before?
+- Entendiendo y Desmantelando El Sistema de Control Global
+- ¿Esclavos Voluntarios del 'Estado Covidiano'?
+- ¿Es el 'Control de la Población' la próxima "Teoría Conspirativa" que se hará Realidad...?
+- Esta Agencia del Gobierno en la Sombra es más Atemorizante que la NSA
+- "Estados Unidos No Teme a Los Informantes - Teme a Una Sociedad Informada" - Dice Snowden
+- Este Párrafo de 'Un Mundo Feliz' explica la Tragedia Moderna - O cómo Canjeamos la Verdad y la Belleza...
+- Every Click You Make, They'll Be Watching
+- FaceBook and The Internet - Main File
+- FaceBook as the Ultimate Government Surveillance Tool?
+- FaceBook is Working on a Smartphone that Can Read Thoughts
+- 'Fahrenheit 451' predicted People would Demand Tyranny
+- False Flag Attacks Part of Global Elite's Plan for Tyrannical Police State
+- Fascism and War - Elite Tools to Crush and Kill Dissent
+- FBI Creating Terrorism Plots to Thwart, Instilling Fear in Americans
+- FEMA - Federal Emergency Management Agency - Main File
+- Fifty Ways to Starve The Beast
+- Finland abandons Universal Basic Income Experiment after Two Years
+- FOIA Lawsuit Reveals FBI Collecting Biometric Information for Massive Interagency Database
+- Food Terrorism' - Next Door to The Magic Kingdom
+- Forget '1984'... We're Facing a 'Brave New World'
+- From America to Amerika - The End Game
+- ¿Futuro Post-Coronavirus? - Biosensores Inyectables, I.A. de Detección de Virus, Robots y Sociedad sin...
+- 'Gaslighting' - La Psicología de Moldear la Realidad del Otro
+- Genes Are Considered The Property of Big Brother - Newborns' DNA Routinely Harvested for...
+- Giant Surveillance Balloons are Lurking at the Edge of Space
+- Global Reset - Great Reset - Main File
+- Global Smart Grid - Technocracy Endgame
+- Global Upraising - Main File
+- Glorious Martial Law?
+- Gmail de Google Escanea, Controla la Sintaxis, Analiza y Cataloga tu Correo Electrónico
+- Google Chrome is Tracking Your Every Move and Storing it - This is How to Stop It
+- Google Has Become Orwell's "Ministry of Truth"
+- Google is Watching You - Meet Jigsaw: Google's Intelligence Agency
+- Google latest Search Engine Update crushes Traffic to "Inconvenient" Websites
+- Google - None Dare Call It Sedition
+- Google nos Vigila - El Caso de los Servicios Médicos
+- Google's Chrome Web Browser "Has Become Spy Software"
+- Government Microchips Our Soldiers - How Long Will it Be Before They Want to Put a Microchip in YOU?
+- Government Proposes Massive Shift In Online Privacy Policy
+- Government Protects Criminals by Attacking Whistleblowers
+- Government Scientific Advisors admit they used 'Totalitarian Fear Tactics' to Control People during 'Pandemic'
+- Government to Spy on Everyone Who Banks in The U.S.
+- Government wants to 'Dictate Truth'
+- "Guía para entender 'El Gran Reset' - Ampliación"
+- Gun Grab in U.S. Precludes United Nations Arms Trade Treaty Talks to Disarm the World
+- Hacia Una Sociedad Sin Dinero En Efectivo - de "La Verdadera Historia Del Club Bilderberg"
+- ¿Ha Muerto la Libertad? - Control Mental, Manipulación de las Masas y Esclavitud Moderna
+- Have Authoritarians used '1984' as a Handbook?
+- Hegemony and Propaganda - Love Your Servitude...!
+- Hidden Government Scanners Will Instantly Know Everything About You from 164 Feet Away
+- High-Level U.S. Government Officials Have Warned for 40 Years that Mass Surveillance Would Lead to...
+- History Warned Us about Technocracy's coming Tyranny
+- How "1984" Turned into an Instruction Manual
+- How a Cashless Society Could Embolden Big Brother
+- How Google, Facebook, Skype, Yahoo and AOL are All Blatantly Lying to Their Own Users in Denying NSA...
+- How Governments and Telecom Companies Work Together on Surveillance Laws
+- How People Become Easily Controlled by Tyrants
+- How Real Mind Control Works
+- How "Surveillance and 5G" are being Fast-Tracked under the pretext of 'Fighting Coronavirus'
+- How the Boston Bombing is Already Being Exploited to Introduce Tyranny
+- How the Great Reset is 'Accelerating into Global Tyranny'
+- How the United Kingdom Became a Police State
+- How They make sure 'You Stay a Slave to the System' - They need your eventual Demise to sustain their Empire...
+- How to Be a Rogue Superpower - A Manual for The Twenty-First Century
+- How to Escape from a 'Sick Society'
+- How Wide Does This Go? - Now Google Devices 'Found to Transmit User Locations Back to The Company'
+- Huge Public Outcry Over TSA Forcing 95-year-old Cancer Patient to Remove Adult Diaper
+- Human Will - The Forgotten Freedom Faculty
+- "Hunger Games" and Fourth-Turning America
+- Huxley or Orwell - Will You Get to Choose Your Own Dystopia?
+- I Certificati Digitali del Vaccino dopo un Blocco Continuo - Piani per il Mondo Post Coronavirus
+- Identity Politics = Totalitarianism
+- Idiocracia a la Americana - 50 Años después Continuamos Encallados en la "Zona de Penumbra - Twilight...
+- Il "1984" è arrivato in Cina
+- Il Futuro del Post-Coronavirus? - Biosensori Iniettabili, I.A. di Rilevazione dei Virus, Robot a una Società senza...
+- Il Mondo Anglosassone - Il Cammino della Tirannia
+- India's Gargantuan Biometric Database Raises Big Questions
+- Inside The NSA's Largest and Most Expansive Secret Domestic Spy Center in Bluffdale, Utah - Exposed
+- Institutional Thinking - The Matrix, 1984 and The Allegory of The Cave
+- Invasion of the 'New Normals'...
+- Is Big Brother The 'New Normal'? - The Supreme Court Will Decide
+- Is Big Tech merging with Big Brother?
+- I Segnali di Pericolo del 2022 - Dalla Paranoia Totalitaria alla Pazzia Autoritaria
+- Is Your TV Watching You? - Latest Models Raise Concerns
+- It's Time to Start Imagining a Post-Police World - Why Abolishing the Police is Not a Crazy Idea...
+- Just How Fascist is The U.S.? - Ten Indicators of Fascism
+- Karotz - The RFID Rabbit That'll Monitor Your Home
+- Klaus Schwab and the World Economic Forum - Main File
+- Klaus Schwab y el Foro Economico Mundial - Main File
+- La Degradación de la Democracia hacia la Tiranía ¿es Natural e Inevitable?
+- La Elite Global - La Clase Capitalista Transnacional - Main File
+- La Empia Trinità - Facebook come Dato di Fatto, Governo come Verità, Big Pharma come Dio
+- La Fabricación de una Psicosis Masiva - ¿Puede la Cordura volver a un Mundo Loco?
+- La Farsa y Diabólica Agenda de "Un Bloqueo Universal"
+- La Globalización Viral de la Vigilancia de la IA - Inteligencia Artificial
+- La Granja Humana y la Jaula en la que Usted Nació
+- La Guerra Contra el Dinero en Efectivo - Ahora los Gobiernos se Apropian o Gravan el Dinero en Efectivo...
+- La Guerra Contra el Dinero en Efectivo - Llega la Tiranía Global
+- La Identificación Digital Global llega inmediatamente después del Pánico del Coronavirus de 2020
+- La Identificación Digital podría facilitar La Vigilancia y Persecución - Informe del Foro Económico Mundial
+- La Idiotización de la Sociedad como Estrategia de Dominación
+- La Infantilización de la Cultura Occidental
+- La Inutilidad de Los Derechos Humanos
+- La Invasión de los 'Nuevos Normales'...
+- La Ley del Almirantazgo y la Esclavitud a Través del Lenguaje
+- La ONU anuncia Billetera de Identificación Digital Biométrica
+- La ONU busca Implementar la Identificación Biométrica Universal para el 2030
+- La Proliferación del Control Biométrico... y el Extraño Programa "Masonic Chip"
+- La Psicopatía y los Orígenes del Totalitarismo
+- La Red de Vigilancia 5G
+- Las Diez Estrategias de 'Manipulación Masiva' reveladas por Noam Chomsky
+- La Secretaria de Estado de Holanda admite que el 5G será Utilizado para 'Control de Multitudes'
+- Las Libertades Públicas están Muriendo Silenciosamente en Europa
+- Las Maniobras "Jade Helm" y la Dictadura Global
+- 'Las No-Libertades' Normales
+- La Terrible Verdad que se Oculta tras la Renta Básica Universal
+- La Tormenta del Totalitarismo se Acerca
+- La Verdad Oculta tras "El Nuevo Modelo de Terrorismo"
+- Leaked North Korean Documentary Exposes Western Propaganda' - And It's Scary How True It Is
+- Lessons from George Orwell's '1984'
+- L'Età Distopica della Maschera - Come Ernst Junger predisse l'Ubiquità delle Mascherine
+- Life in The Electronic Concentration Camp - The Many Ways that You're Being Tracked, Catalogued and...
+- "L'Occhio di Sauron" e la Pandemia del Controllo
+- London's Militarized Olympic Games Conjures Up Orwell's '1984'
+- Lo Que Nadie Quiere Ver
+- Los Cerebros 'Hackeados' Votan
+- Los Pasos Para Llegar al Totalitarismo Según Naomi Wolf - Un Informe de la Situación
+- Lo Stato Tecnocratico è il Nemico Mortale dell'Individuo
+- Los Tatuajes del ¿Control?
+- Los Teléfonos Android envían Datos de dispositivos e 'Identificadores' de usuarios a fabricantes y firmas de Big...
+- Meet The Internet Gatekeepers
+- Metaverse è la 'Libertà' inflitta dai Tiranni Tecnologici
+- Metaverse is 'Freedom' Meted Out by Technological Tyrants
+- Microsoft Collects Phone Location Data Without Permission - Says Researcher
+- Microsoft Curbs Wi-Fi Location Database
+- Microsoft President Threatens that Orwell's '1984' could Happen in 2024
+- Microsoft Warns of 'Orwellian Future' as WikiLeaks Exposes Participation with Surveillance
+- Miles de Matemáticos piden Boicotear la IA de 'Crimen Predictivo' de la Policía
+- Mission Creep - How the Police State acclimates us to being 'Modern-Day Slaves'
+- Mobile Phones Soon Required to Receive, Display White House Propaganda Messages
+- More Police Raids as War on Journalism Escalates Worldwide
+- Naomi Wolf's Steps to Fascism - A Progress Report
+- National Programs for Mass Surveillance of Personal Data in EU Members States and Their Compatibility...
+- Navigating The Anthropocene - Improving Earth System Governance
+- Neolengua
+- New Tech Startup Predicts the Future by Decoding the Past
+- New Worldwide Ministry of Truth? - International Fact-Checking Network (IFCN)
+- Noam Chomsky - Top 10 Media Manipulation Strategies
+- Noam Chomsky y Las 10 Estrategias de Manipulación Mediática
+- No Escape from our Techno-Feudal World
+- No hay Diferencia entre Psicópatas y Políticos - La Patocracia del 'Estado Profundo'
+- Non-profit Group Linked to Homeland Security Promotes Absurd Fear of Non-Existent Threat of Terrorism
+- Normal Unfreedoms
+- Not Just Surveillance - Three Current Phenomena Exposing '1984' as an Instruction Manual for the State
+- NSA and State Surveillance - 5-Part Special
+- NSA Prism Program Taps into User Data of Apple, Google and Others
+- NSA Surveillance Goes Beyond Orwell's Imagination - Says Alan Rusbridger
+- Nuestro Gulag Digital
+- Nuevo Inicio Tecnológico Predice el Futuro Descifrando el Pasado
+- Obama Administration Claims Right to "Lawfully" Assassinate Citizens Within The U.S.
+- Obama Asks Military Leaders If They Will "Fire On US Citizens" - Nobel Peace Prize Nominee Says
+- Obama Crea una Ley para "Controlar Mentalmente a la Población"
+- Obama Criminalize Free Speech?
+- Obama Moves to Make The 'War on Terror' Permanent
+- Obama's Endgame
+- Obama wants to Make Sure the Government can Lock You Up without Trial - The National Defense...
+- Occupied America - Senate Bill 1867 Would Allow U.S. Military to Detain and Murder Anti-Government...
+- On the Precipice - Humanity's Dystopian Crossroads
+- Operaciones Psicológicas Utilizadas Diariamente para Manipularnos
+- 'Operation Warp Speed' - Your One-Way Ticket to Total Surveillance
+- Orwell 2011 - Towards a Pervasive "Surveillance State" in America - Biometrics, Facial Mapping...
+- Orwell Acertó - El "Ministerio de la Verdad" ya Existe
+- Orwellian Justice System - The Securitization and Militarization of Daily Life - Spying on Americans...
+- Orwell's Ideas remain Relevant 75 years after 'Animal Farm' was Published
+- Orwell's Startling World Is Officially Here
+- Orwell Tenia Razón - Escocia Utilizará a los Niños para Vigilar a sus Propios Padres
+- Our Protected, Predatory Oligarchy - Dirty Secrets, Dirty Lies
+- 'Pandemic and Erosion of Freedoms' have been Decades in the Making - A Timeline
+- Pathocracy - Tyranny at The Hand of Psychopaths
+- Patocracia - Tiranía en Las Manos de Psicópatas
+- Peaceful Revolution - Push Back, Refuse, Non-Cooperation
+Italiano
+- Perché l'Esercito degli Stati Uniti si Allena per Combattere nei Grandi Centri Urbani?
+- Perfect Storm Conditions Now in Place for Big Government to Allow (or Even Stage) Terrorism Attacks in...
+- Police Brutality in The USA - Americans Too Are Oppressed
+- Police State USA - TSA Gestapo Empire
+- Political Scientism - Beware the Enlightened Ones
+- Popular Culture Promotes The Police State
+- Porqué Caminamos Sonámbulos hacia la Tiranía - Sobre la Tecnocracia...
+- ¿Porqué el Ejército de Estados Unidos se Entrena para Combatir en Grandes Centros Urbanos?
+- Porqué lo que Estamos Viviendo se Parece más a 'Un Mundo Feliz' de Huxley que a '1984' de Orwell
+- ¿Porqué me Vigilan, si no soy Nadie?
+- Post-Coronavirus Future? - Injectable Biosensors, A.I. Virus Detection, Robots and a Cashless Society
+- Post Games UK - Full-Blown Police State
+- Pre-Crime is Now Here! - Minority Report (2002) Esoteric Analysis
+- Presidential Memo on Insider Threats - Why Now?
+- Prisons of Pleasure or Pain - Huxley's "Brave New World" vs. Orwell's "1984"
+- Privacy Protection and The Secret State's Surveillance Powers
+- Psico-Poder - En 'Conformidad con Robots' y 'Libertad', en un Mundo post-COVID
+- Psycho-Power - 'Automaton Conformity' and 'Freedom' in a Post-COVID World
+- PSYOPs Used Daily to Manipulate You - Covert Hypnosis, Mind Control Techniques - Wake Up and...
+- ¿Qué es Anonymous? ¿Qué es "El Plan"?
+- Q: What's the Difference between a Politician and a Psychopath? - A: None
+- Repensar El 11-S (ReThink 9/11) Ante El Totalitarismo Emergente
+- ¡Resistencia a la Cuarta Represión Industrial...!
+- Revealed what the 'Totalitarian Future Globalists' want for the Entire World
+- Revelan una de las Bases para la Tiranía que Pronto Afectará a Todos
+- RFID Monitoring and DNA Profiles Work Together to Manifest Our Brave New World
+- Rise of The Global Police State
+- Rolling Out the Architecture of Oppression because 'They Fear the People'
+- Scientists look for a Cure against Politically Undesirable Behavior
+- Secret Military Training Blurs Line Between Police and Soldiers
+- Secret Panel Can Put Americans on "Kill List"
+- Security Grifters Partner-Up on Sinister Cyber-Surveillance Project
+- Security, Safety, Security! - Dictatorship by Democracy
+- Senate Wants The Military to Lock You Up Without Trial
+- Several Defining Characteristics of Fascism - The U.S. in 2012
+- Shut Up and Play Nice - How The Western World is Limiting Free Speech
+- Silicon Valley está Construyendo un Sistema de Crédito Social al estilo de China
+- Since 9/11 North America has Traded Liberty for Security and we're Almost Out of Both
+- Sin Cifrado Perderemos toda la Privacidad - Este es nuestro Nuevo Campo de Batalla
+- Six Whistleblowers Charged Under The Espionage Act
+- Skype Collaborated With NSA Long Before PRISM - The New York Times
+- Smart Grid - The Implementation of Technocracy?
+- 'Snooper's Charter' Web Spying Bill - The Queen's Announced Internet Surveillance Plan
+- Social Media, Smartphones and Police Create a Stasi Web of Surveillance
+- Social Radar for Smart Power
+- Some Reasons why Belief in Authority is the 'Most Dangerous Superstition'
+- Space Fence - Connecting the Surveillance and Transhumanist Agendas
+- Spying on Americans - Police Scanners Everywhere... - Government Will Soon Be Able To Know...
+- Stellar Wind - The Secret NSA Domestic Spying Program
+- Study Shows Mass Government Surveillance Silences Unpopular Opinions
+- Supplanting The United States Constitution - War, National Emergency and "Continuity of Government"
+- Supreme Court Justice Scalia Warns of U.S. Internment Camps
+- Technetronic Enslavement - Life Inside the Matrix of Control
+- Technocracy and the Rise of the Police State
+- Technology Companies Concede to Government Surveillance Program
+- Te Controlan Para Dominarte Mejor - Tu Peor Enemigo es Tu Cabeza
+- Ten Ways That the Iron Grip of The Big Brother Prison Grid is Tightening on All of Our Lives
+- Terrorífico... ¿Es así como "Controlan" Completamente el Mundo?
+- Thank you China, you're Wonderful
+- The 3 Trigger Terms being used to Stop Critical Thinking
+- The Age of Tyrannical Surveillance - We're Being Branded, Bought and Sold for Our Data
+- The American Surveillance State Puts Orwell to Shame
+- The Big Media Lie About the U.S. Government's Purchases of Over One Billion Rounds of Anti-Personnel...
+- The Birth of Fascism? - A Wrong Turn on A One-Way Street
+- The Brave New World of 2030 - "You'll Own Nothing, and You'll be Happy"
+- The Brave New World of Surveillance Capitalism
+- The Bureau of Counterterrorism - Obama Administration Gives Birth to New Agents of Tyranny
+- The Cashless Society is Almost Here - And With Some Very Sinister Implications
+- The Coming "Brain Chip"
+- The Coming EBT Riots - What Will Happen When Government Entitlements Stop?
+- The Coming Techno Apocalypse
+- The Coronavirus and the 'Fear Factor'... - Main File
+- The Dark Road - The Worst Tax Law You've Never Heard About
+- The Decade's Biggest Scam
+- The Dystopian Age of the Mask - How Ernst Jünger predicted the Ubiquity of Masks
+- The Emerging 'Mark of the Beast' System - Sleepwalking into the Surveillance Society
+- The End of Mankind as We Know it - According to NASA's Future Warfare Document 2013
+- The End of The Internet... As We Know It? - Main File
+- The Era of Tyranny has Begun - Washington has Destroyed Western Liberty
+- The Evolution of Psychological Manipulation in Democratic Societies
+- The 'Eye of Sauron' and the Pandemic of Surveillance
+- The Fact that Mass Surveillance Doesn't Keep Us Safe Goes Mainstream
+- The Farce and Diabolical Agenda of a "Universal Lockdown"
+- The Fatal Attraction of Techno-Fascism
+- The Fight For Health Freedom - Why Focus on Health Freedom? Because Our Future is Worth Protecting
+- The Five Criminals - In America, the Gestapo Has Replaced the Rule of Law
+- The Future of CCTV and Policing
+- The Global Coup d'Etat
+- The Global Digital ID 'Surveillance Plan' Accelerates - Urgent Resistance Needed
+- The Global Elite - The Transnational Capitalist Class - Main File
+- The "Hi-Tech" Corporate Police State - "Reengineering" The Internet... for Persistent Surveillance
+- The Human Farm and The Cage You Were Born Into
+- The Individual Solution to Avoiding the 'Great Reset' and Totalitarianism
+- The Information War - The Deadly War hardly Anyone realizes we're Fighting
+- The Internet is A Surveillance State
+- The Last American President
+- The Latest from "DHS Insider" - Government Control Plans for The Near Futures
+- The Manufacturing of a Mass Psychosis - Can Sanity Return to an Insane World?
+- The Many Faces of Secrecy - Amy Benjamin
+- The Many Signs That The United States of America is Being Turned Into a Giant Prison
+- The Military Origins of Facebook
+- The Modernized Slave Labor System - Also Known as the Prison Industrial Complex
+- The Murder of Americans - Existence of Secret Kill Lists Now Admitted by Lawless White House
+- The Myth of Freedom in The Land of The Free
+- The New Inquisition - The NDAA
+- The New Reign of Biopower - The Rise of Control-Biology
+- The New World Order - Main File
+- The NGA - The Billion Dollar Spy Agency You've Never Heard Of - They Can See a 'Stick of Butter from Space'
+- The NSA Has Dossiers on Nearly Every U.S. Citizen - Whistleblower William Binney says
+- The NSA is Building The Country's Biggest Spy Center - Watch What You Say - Big Brother Goes Live...
+- The NSA - The Super Secret National Security Agency - Main File
+- The Obama Regime's Fabricated "Terror Conspiracy" in Defense of The Police State
+- The Omnipresent Surveillance State - Orwell's 1984 is No Longer Fiction
+- The Orwellian Global State - The Next Stage Begins
+- The Path to Total Dictatorship - America's Shadow Government and its Silent Coup
+- The Pentagon is Building a 'Self-Aware' Killer Robot Army Fueled by Social Media
+- The Police - Our Enemies in Blue?
+- The Police State Targets Health Food Buying Clubs Rather Than Real Criminals - In Time of Accelerating...
+- The Prescience of George Orwell - '1984' is Here
+- The Prison State of America
+- The Purpose of War According to George Orwell in "1984"
+- The REAL Reason U.S. Targets Whistleblowers
+- There is an 800% Higher Probably Americans Will be Killed by Police Than by a Terrorist
+- There is No Difference Between Psychopaths and Politicians - The Pathocracy of the Deep State
+- The Rise of Global Digital Surveillance - Spying, Prying and Lying
+- The Roots of Today's Tyranny
+- The Secret Government Rulebook for Labeling You a Terrorist
+- The Secret History of America's Capital - Washington D.C. - Main File
+- The Secret-Shadow Government - Main File
+- The Shadow Government
+- The State as Terrorist
+- The State Attracts Sociopaths
+- The Surveillance State - Knowing Every Bit About You
+- The Technocracy's 1984 Predictive Programming
+- The Technocratic State is the Mortal Enemy of the Individual
+- The Technological Revolution and The Future of Freedom
+- The Tyranny of Modern Scientism
+- The Tyranny of the Police State disguised as Law-and-Order
+- The Underwear "Bomber" - Crushing Freedom With Phony Muslims Terrorism
+- The United Stasi of Amerika
+- The U.S. Air Force Wants to Monitor, Track and Analyze Everything Done on The Internet Around The Globe
+- The U.S. has Become a Worse Police State than Orwell Could Imagine
+- The U.S. Internment Camp - Prison for A New American Century
+- The U.S. is Now The United (Police) State of America
+- The Violence of Organized Forgetting
+- The War on Cash - Governments Grabbing or Taxing Cash At Will Now
+- The War on Science and the 20th Century Descent of Man - Huxley's New World
+- The Worrying Trend of Internet Shutdowns
+- Think You're Not Being Tracked? - Now Websites Turn to Audio Fingerprinting to Follow You
+- Thirteen Ways Government Tracks Us
+- This is Why We Need to Talk about CBDCs
+- This Shadow Government Agency is Scarier than the NSA
+- Thought Police - The Next Logical Step in A Total Surveillance Society
+- Too Many Signs That The UK is Being Transformed Into a Hellish Big Brother Surveillance Society
+- Top 20 Modern Doublespeak Terms to Be Aware Of
+- Top Secret America - A Hidden World Growing Beyond Control
+- Trump - Main File
+- Trump está Aquí para Quedarse y Cambiar el Mundo
+- TSA Pats Down Cancer-Stricken 95-Year-Old Woman and Removes Adult Diaper
+- Twelve Simple Steps to VeriChip The World
+- Una Carta desde España en el Año 2050
+- Una Lettera dalla Spagna nell'anno 2050
+- Understanding and Dismantling The Global Control System
+- Under the Skin - The Internet of Bio-Nano Things
+- Un Estudio revela Amenazas para la Privacidad y la Seguridad en los Hogares 'Inteligentes'
+- Unholy Trinity - Facebook as Fact, Government as Truth, Big Pharma as God
+- United Nations Policy Paper Outlines 7 Building Blocks for 'Heavy-Handed' World Government
+- Universal Basic Income Spreading Like Wildfire - Now Finland...
+- U.S. Descends Into Total Police State as 2012 'Solar Chaos' Fears Grow
+- U.S. Government Claims That the Truth Is Too Complicated and Dangerous to Disclose to the Public
+- Ushering in a Totalitarian Police State in Cashless "Smart Cities"
+- U.S. Military Power Grab' Goes Into Effect
+- U.S. Prison Business - Privatize Profits, Socialize Losses
+- U.S. to Let Spy Agencies Scour Americans' Finances
+- Vaccines - An Ideal Covert-Operation to Genetically Re-Engineer Humans
+- Veinte Realidades Sombrías desenterradas por los Confinamientos del Covid
+- "Vivimos Hiperconectados y eso permite que Controlen nuestra Mente"
+- War for Total Control - Planning the Ultimate 'Big Brother' Surveillance Society
+- WEF calls for '24-Hour Monitoring' of the Public
+- We Just Don't Trust You - Note to President Obama
+- Welcome, Big Brother - Iris Scanners Create The Most Secure City in The World
+- Welcome to the Mass Surveillance State through Microchipping Pills!
+- We're Almost There Now - No Speech Zones - HR347
+- What I Can Say and What I Cannot Say...
+- What is Anonymous? What is "The Plan"?
+- When Government Funds Science, Government Controls Science...
+- Why are Americans Paying to Be Searched, Spied On, Shot At and Robbed Blind by the Government?
+- Why are Americans So Easy to Manipulate and Control?
+- Why are Most People Cowards? - Obedience and the Rise of Authoritarianism...
+- Why Orwell Matters...!
+- Why we are Sleepwalking into Tyranny - On Technocracy...
+- Why we Have a Surveillance State - It is the Inevitable Consequence of our Prevailing Governing Philosophy
+- Will Electronic Tattoos Replace Internet Passwords and All Other Forms of Identification
+- Will You Love Your Servitude...?
+- You Are Surrounded by Propaganda - "The Invisible Government"
+- You Are The Hope
+Additional Information
+- 10 Ways Hackers Have Punked Corporations and Oppressive Governments
+- 1.2 Billion People in India to Be Given Biometric ID Cards
+- 1984 - George Orwell - The Prophet?
+- 33 Conspiracy Theories That Turned Out To Be True - What Every Person Should Know...
+- 9-11 and The Orwellian Redefinition of "Conspiracy Theory"
+- 9-11 in Context - The Importance of The Growing Contradictory Evidence
+- Academic Oligarchy - Majority of Science Publishing is Controlled by Just Six Companies
+- Adiós - La Verdad Ha Caído Llevándose con Ella La Libertad
+- Agotar el ADN - ¿Cuánto Control tienes realmente sobre tu Información Genética?
+- "Alien Transformers" Descend On America
+- All I Want for Christmas Is The Truth
+- "All Your Data Belongs to Us" - FBI Wiretapping of Internet Users - A Seamless Global Surveillance Web
+- America's Eco-Cities - Sustainable Prisons of The Future
+- America's Police State Mentality in The Electronic Age - Big Brother
+- Anthropocene - How Eco-Fascist Want to Criminalize The Human Race
+- ¿Apocalipsis o Cuento De Hadas? - extraido del libro "La Mente de Las Células"
+- Are Populations Being Primed For Nano-Microchips Inside Vaccines?
+- A Tale of Two Countries - New Zealand Apologizes for Illegal Domestic Spying, While U.S. Still Refuses...
+- Army Readies Its Mammoth Spy Blimp for First Flight
+- Australia Becomes First to Ban Travelers Who Refuse Naked Body Scanners
+- Beyond The Arab Spring, The European Winter - Hungary Becomes Third European State to Suspend...
+- Big Brother Is Watching You Shop
+- Big Brother Is Well Connected - Google's Growing Domination
+- Big Brother Obama - U.S. to Spy on Internet Messaging - Regulations to Target Skype, Facebook, Blackberry
+- Big Brother Pays Off as Predictive Behavior Technology Targets Shoppers
+- Big Pharma Nanotechnology Encodes Pills With Tracking Data That You Swallow - UPDATE 1
+- Biochip Implants - Hi-Tech/Top Secret Projects - Main File
+- British Government Begins Stealing Its Peoples' Bank Deposits Ahead of The Global Financial Collapse
+- Bullets, False Flags and Biological Warfare - What Is The U.S. Government Planning?
+- Cancer Surges in Body Scanner Operators - TSA Launches Cover-Up
+- Cartels of the Mind - The Free Individual Returns
+- China Spending as Much on Calming Civil Unrest as U.S. on War Effort - Chinese Netizen Speaks Out
+- CIA and Pentagon Deploy RFID Death Chips - A Conspiracy Theory? Think Again!
+- COINTELPRO - Counterintelligence Program - Main File
+- Combined Video Analytics and Image Fusion are Ushering in A New Era in Surveillance
+- Cómo Retractarse de Los Escáneres de Cuerpo Desnudo de La TSA en El Aeropuerto
+- Consensus Decision Making in Human Crowds
+- Conspiracy Theories - White Paper by Cass R. Sunstein
+- Control Mental - Main File
+- Copa del Mundo - ¿Diversión o Maniobra Diversiva de Masas?
+- Cosas Que Los Controladores Científicos Tienen en Mente Para Nosotros en El Futuro Cercano
+- Covid-Stasi - ¿Se Convertirán Ustedes en 'Agentes Estatales' denunciando a sus Vecinos por infringir las...
+- Crypto Wars! - Obama Wants New Law to Wiretap The Internet
+- DARPA - Defense Advanced Research Projects Agency - Main File
+- DARPA Set to Drop Computer "F-Bombs" to Spy on Public
+- DARPA's Insight - New World Order Program to Watch Us All
+- DARPA to Develop Technology to Analyze Social Media
+- David Icke on Terrorism, 'Totalitarian Tiptoe' and The Coming Post-Industrial Technocracy
+- Dear Neocon
+- De La Servidumbre Moderna
+- Democracia - Sistema para Entregar tu Poder a Través de tu Propio Libre Albedrío
+- Department of Homeland Security Prepares for Civil Unrest as Obama Poised to Destroy 2nd Amendment
+- DHS & TSA - Making A List, Checking It Twice
+- Diez Principales Teorías de Conspiración que se Convirtieron en HECHOS en el Año 2017
+- Disney, Militarization and The National Security State After 9/11 - Book Excerpt
+- DNA Exhaust - How much Control do You really have over Your Genetic Data?
+- ¿Dónde Estamos Ahora? - El Despertar
+- Doomsday Lingo - A Guide
+- Edible Microchips, Biometric Identity Systems and Mind Reading Computers
+- Edward Snowden Quotes About U.S. Government Spying that Should Send a Chill Up Your Spine
+- El Chip Inteligente
+- El Desastre de Fabricar Consentimiento en La Matriz
+- El Estado de Excepción, la Política de la Pandemia y el Fin de lo Humano - Giorgio Agamben
+- El Padre de la Propaganda Moderna de la Élite Gobernante - Edward Bernays
+- El Senado de EEUU y Obama Reclaman el Derecho a Matar y Encarcelar Americanos Sin Juicio Previo...
+- Estos son los Países Más 'Libres' del Mundo - ¿Pero qué es Realmente la 'Libertad'...?
+- Evade Government Surveillance Stay Anonymous Online
+- Even Bigger Big Brother - Facebook Purchases Israeli Facial Recognition Company Face.com
+- Examining Capitalism Through Quantum Mechanics
+- Ex Disidente Soviético Alerta Sobre el Peligro de Una Dictatura en La Unión Europea - Vladimir Bukovksy
+- Explicación de La Mentalidad de 'Rebaño'
+- Exposing RFID Documents And Plans For Surveilling - Connecting The Dots
+- FAA Proposes Widespread Civilian Drone Use in U.S. Airspace by 2015
+- FaceBook Buys Face.com... At What Privacy Cost?
+- Fake Terror Plots, Paid Informants - The Tactics of FBI 'Entrapment' Questioned
+- Feds Used Aaron Swartz's Political Manifesto Against Him
+- First 100 Pages of Aaron Swartz's Secret Service File Released
+- Forget Privacy - By 2025 There Will Only Be The Watchers and The Watched
+- Former ECB Chief Economist says ECB is In Panic, as Czech President Warns The End of Democracy...
+- Former Soviet Dissident Warns for EU Dictatorship - Vladimir Bukovksy
+- "Freedom of The Press" and "The Shield Law" - "Protecting the Public" from Independent Alternatives to...
+- From Global Depression to Global Governance - The Role of The Corporate Elites' Secretive Global...
+- "Gate Rape" of America
+- Generation Being Born Now is the Last to be Free - Assange in Last Interview before Blackout
+- Globalists Using London Cyberspace Summit to Push for Global Internet Treaty
+- Globalizacion - El Pulpo del Nuevo Orden Mundial - Main File
+- Globalization - The Octopus of The New World Order - Main File
+- Good-Bye - Truth Has Fallen and Taken Liberty With It
+- Google, Facebook, Amazon Planning Internet Blackout to Protest "Big Brother" SOPA Bill
+- Google - The Perfect Compliment to Big Brother
+- Governments Are Beginning to Censor Much More Than Just What Makes Us Healthy
+- "Herd" Mentality Explained
+- History Regurgitates
+- How Algorithms Rule The World
+- How Disney Magic and The Corporate Media Shape Youth Identity in The Digital Age
+- How Plato's "The Republic" Describes Today's Society
+- How The U.S. Government Strikes Fear in Its Own Citizens and People Around The World
+- How to Hide Your Digital Communications from Big Brother
+- How to Opt Out of The TSA's Naked Body Scanners at The Airport
+- I Clobbered Every Cash Confiscatory Agency Known to Man
+- If America Continues to Go Down the Same Path as Europe, this is What Life Will Be Like
+- Il Padre della Propaganda Moderna dell'Elite che Governa - Edward Bernays
+- Imperio Reciclado - Porqué Obama Hace Lo Mismo Que Bush - Las Líneas Matrices
+- Information Control in The Digital Age - The Journey From Internet Piracy to Full Spectrum Tyranny
+- Insight Program - DARPA's Ubiquitous Intelligence
+- Invasive Cyber Technologies and Internet Privacy - Big Brother is Only a "Ping" or Mouse Click Away
+- Invasive Surveillance Technology Awaits - Have You Posted Your Pictures on The Internet?
+- Investigadores Farmacéuticos Están Trabajando en Una Droga Para Borrar Los Recuerdos
+- I Refuse to be Microchipped
+- ISIS is America's New Terror Brand - Endless Propaganda Fuels "War on Terror"
+- Is It Time to Pack Your Bags America?
+- Italia Prohíbe Las Transacciones en Metálico de Más de 50 Euros para 2013
+- Just Say No to Big Brother's Smart Meters - The Latest in Bio-Hazard Technology
+- La Generazione che Nasce Ora Sarà l'Ultima as Essere Libera - L'Ultima Intervista ad Assange prima del...
+- La Guerra Mas Antigua del Mundo
+- La Historia se Vuelve a Repetir
+- La Mentalidad de Colmena es La Tumba de La Humanidad
+- La Red Echelon - Main File
+- Las Puertas de La Percepción - ¿Por Qué Los Norteamericanos Creen Casi Cualquier Cosa?
+- L'Italia Proibisce Le transazioni in Denaro liquido di Più di 50 Euro dal 2013
+- "Lockstep" - Written 10 years ago Chronicles how to Bring the World Down with a Pandemic
+- Look! Up in the Sky! It's a Bird... It's a Plane... It's a Raytheon Spy Blimp!
+- Lo Que Google Sabe Acerca de Tí
+- Los Teléfonos Inteligentes están Pre-Cargados con Interruptor de Desactivación a Control Remoto
+- Manhunting - Counter-Network Organization for Irregular Warfare
+- Manufacturing The Deadhead - A Product of Social Engineering
+- March 2013 Watchlisting Guidance - by National Counterterrorism Center
+- Microsoft Wants to Know How Many Friends You've Got in Your Living Room - Big Brother Alert
+- Mind Control - Main File
+- Moral Monstrosity - America's For-Profit Gulag System
+- ¡Mucho Más que Una Máscara!
+- Naked Scans of My Children - An Open Letter to the Walt Disney Company
+- New Report Explains Obama's Crusade to Censor the Press
+- No Privacy on Washington D.C. Roads - High-Tech Cameras "Pinpoint People's Movements All Over...
+- Number One Enemy of The State
+- On Modern Servitude
+- Openness and The Metaverse Singularity
+- Pharma Researchers Working On Drug to Erase Your Memories
+- Plan for Massive Rollout of Mobile Surveillance Vans - TSA and DHS With Long-Distance X-Ray...
+- Political Correctness or Political Insanity? - New York City Schools Ban Words and Topics From Tests
+- Polvo Inteligente - Seguimiento de Todo, en Todas Partes
+- Porqué nos Desprecian Los Gobernantes - Análisis Shock...
+- Priest Removed from Ministry Due to Sex Abuse Allegations Now Works at Philadelphia International Airport
+- Privacy Impact Assessment for The Rail Security Pilot Study Phase II at PATH
+- Programa de Vida Planetario 2014 - Marielalero
+- Protective Measures Guide for The U.S. Lodging Industry
+- Promis
+- Quello che Google Sa su Di Te
+- ¿Quieres Saber Porque la Gente se Comporta como un Rebaño? - El Experimento Solomon Asch
+- Radiation Scientists Agree TSA Naked Body Scanners Could Cause Breast Cancer and Sperm Mutations
+- Recordatorio de lo que Nikita Khrushchev dijo hace 60 Años
+- Revelan un Nivel Récord de 'Espionaje' Gubernamental de EE.UU. a Través de Google
+- Ricordiamo ciò che Nikita Khrushchev disse 60 Anni fa
+- Riders on The Storm
+- Rogue State? - Britain railing against International Norms and Laws
+- Scenarios for The Future of Technology and International Development
+- Sixteen Signs That People Are Becoming Stupider
+- Smart Dust - Real-time Tracking of Everything, Everywhere
+- Smartphones are Now Pre-Loaded with Remote Controlled Kill Switch
+- Something Funny Is Going On - Our Government Is Not What It Appears to Be
+- Special Army Unit Ready to Be Deployed on American Soil Just Before November Elections
+- Spies For Hire - Who's Who in Intelligence Contactors
+- Spying on Americans - America's Endless & Highly Profitable, "War on Terror" - A Multibillion Bonanza...
+- State Crimes Against Democracy
+- Tarjetas de Crédito, el 666 y el 999
+- Tasers Have Killed at Least 500 Americans
+- Ten Outlandish Things The 'Scientific' Controllers Have In Mind for You in The Near Future
+- Ten Reasons Why Nothing You Do on The Internet Will EVER Be Private Again
+- The All-Seeing-Eye of Google and the Future of Criminal Investigations
+- The Austerity Hoax
+- The Banksters Ultimate Dream - A Cashless Society, Starting With The Military
+- The Death of Freewill
+- The Despicable Truth Emerges About FATCA
+- The Development of "Privacy Killing Technologies" - A Link to The Murdoch Scandal?
+- The Disaster of Manufacturing Consent in The Matrix
+- The Doomsday Project, Deep Events, and The Shrinking of American Democracy
+- The Echelon Network - Main File
+- The Electronic Police State - 2010 National Rankings
+- Theft, Pedophilia, Murder Among TSA Employees' Crimes
+- 'The Hunger Games' Movie Review - A Glimpse of Our Own Future if The Cancerous Growth of ...
+- The Challenges Posed by The Militarization of Law Enforcement
+- The Ministry of Climate Truth Strikes Again
+- The Obsession With Controlling Speech Is Soaring to Unbelievable Heights
+- The Politics of Terror as The Business of Terror - The Greatest Covert Operation Ever
+- The Scorched Earth
+- The Secret State's Surveillance Machine - Undermining the American People's Right to Privacy
+- The Spyfiles - WikiLeaks
+- The Taking of The Internet
+- The Tyranny of Government "Protection"
+- The United States Isn't a Country - It's a Corporation!
+- The U.S. Senate and Obama Claiming The Right to Murder and Imprison Americans Without Trial Was...
+- The War Is Over... And We Won
+- This Is Your Brain on Neuroscience - Brain Activity Map - BAM
+- TIA Lives On
+- Tipping The Balance of Power - How to Really Change The World - And It's Easier Than You Think
+- Top Ten Conspiracy Theories that Turned FACT in 2017
+- True Stories of Violation - Border Patrol (100 Miles From The Border)
+- TSA Agents Gone Wild - Fondling Little Children, Planting Cocaine in Passenger Bags and More...
+- Turning The Tables on Big Brother - Now Internet Users Can Watch Who Is Spying on Them in Blow...
+- Tyrannical "Health Standards" of The New World Order
+- Una Difícil Elección Para Llegar al Maravilloso' Mundo de Disney
+- Una Película de Terror
+- Unclassified Report On The President's Surveillance Program - Obama Administration
+- Un Estudio de La Fundación Rockefeller Analiza La Década de La Fatalidad - Desastres Naturales...
+- Unplug the Signal - The Truth Will Not Be Televised
+- U.S. Company that Built Guantánamo Wants to Run Police Services in UK
+- U.S. Government Developing Ultimate Cyber Weapon - Prime-Factoring Quantum Computing Makes...
+- U.S. Government Issues More Takedown Requests Than China, Including One for "Government Criticism"
+- U.S. Government Spy Program - Main Core, PROMIS and The Shadow Government
+- U.S. Military-Industrial Giant KBR in Bidding to Privatize British Police Forces
+- Una Búsqueda Sobre El Gobierno de Los Estados Unidos
+- University of Texas Researchers Design Chip Allowing Mobile Devices to See Through Walls
+- Vacunas - Una Operación-Encubierta Ideal para Manipular Humanos Genéticamente
+- Varias Señales de Que Los Estados Unidos de América se Está Convirtiendo en Una Gigantesca Prisión
+- Vigilancia Genética - EE.UU. Creará una Base de Datos de ADN Para Rastrear Personas
+- "V" is For Vendetta
+- Volete Sapere Perché la Gente si Comporta come un Gregge?
+- Want to 'Be Felt Up' by Government Personnel?
+- We Are Being Watched More Than Ever in The U.S. - Jesse Ventura
+- What Google Knows About You
+- What Location Tracking Looks Like
+- What Price Privacy?
+- What Will Happen When the Arrests Begin? - A Futuristic Picture of Mass Arrests, Critical Mass and...
+- When Empire Hits Home
+- Where Are We Now? - The Awakening
+- Why Was President Obama Gifted The Nobel Peace Prize? - The Answer to The Burning Question...
+- Why WikiLeaks Is Good for Democracy
+- WikiLeaks - International New Media Non-Profit Organization - Main File
+Collectivism
+- La Guerra Es La Paz - Teoría y Práctica del Colectivismo Oligarquico
+- The Collectivist Conspiracy - G. Edward Griffin
+- The Future is Calling
+- War is Peace - The Theory & Practice of Oligarchical Collectivism
+- Why the System is Set for Tyranny - The High-Tech Collectivist State
+Multimedia:
+- How the "Greater Good" is Used as a 'Tool of Social Control'
+Books-Treatises
+- 1984 - by George Orwell
+- 1984 - Español - por George Orwell
+- 1984 - Italiano - di George Orwell
+- Animal Farm - by George Orwell
+- Brave New World - by Aldous Huxley
+- Brave New World Revisited - by Aldous Huxley
+- De la Servidumbre Moderna - por Jean François Brient
+- Desinformación - Cómo los Medios Ocultan el Mundo - por Pascual Serrano
+- El Archipiélago Gulag - por Alexander Solzhenitsyn
+- Farenheit 451 - by Ray Bradbury
+- Farenheit 451 - por Ray Bradbury
+- How to Lose the Information War - by Nina Jankowicz
+- La Granja de Los Animales - por George Orwell
+- On Modern Servitude - by Jean François Brient
+- Propaganda - by Edward L. Bernays
+- Sobre la Servidumbre Voluntaria - por Étienne de la Boétie
+- The Abolition of Man - by C.S. Lewis
+- The Impact of Science on Society - by Bertrand Russell
+- The Last Circle - by Carol Marshall
+- The Many Faces of Secrecy - by Amy Benjamin
+- The Most Dangerous Superstition - by Larken Rose
+- The Origins of Totalitarianism - by Hannah Arendt
+- The Road to Wigan Pier - by George Orwell
+- The Society of The Spectacle - by Guy Debord
+- The Worker - by Ernst Jünger
+- Un Mundo Feliz - por Aldous Huxley
+- We - by Yevgeny Zamyatin
+- World Brain - by H.G. Wells
+Multimedia
+- George Orwell '1984'
+- George Orwell '1984' Español
+- 2012 - Jaque Mate a La Humanidad - Checkmate to Humanity
+- 2081 - Universal Absurdity
+- 9/11 and Continuity of Government
+- Adiós a Las Libertades - Taking Liberties (Since 1997)
+- America - From The Road of Freedom to The Streets of Fascism
+- Be Warned of Digital Deception...
+- Big Brother - The Big Picture - David Icke
+- Bigger Brother - Total Surveillance Comes to UK
+- CFR Discusses a Future with "Humans 2.0" and "Autonomous Robots"
+- College Conspiracy
+- David Icke Interviewed by BBC5 - 2009
+- Do You Hear The People Sing
+- El Fin del Letargo
+- El Grupo Bilderberg (2010) y El Implante en El Cercano Futuro de Los Chips RFID
+- El Llamado - The Calling
+- El Mundo Según Google
+- Essential Knowledge For A Wall Street Protestor - David Icke
+- Fall of The Republic - The Presidency of Barack H. Obama
+- Freedom of Speech - Stories From The Edge of Free Speech
+- Gray State 2013 - America's Last Chance for Liberty
+- Henry Kissinger and Bill Gates Call For Mass Vaccination and Global Governance
+- "Honest Government" Ad - Julian Assange
+- Human Resources - Social Engineering In The 20th Century
+- HyperNormalisation
+- Ignorance is Strengh - The Theory & Practice of Oligarchical Collectivism
+- "It Can't Happen Here!" - Or Can It...?
+- JFK II - The Bush Connection
+- John Stossel's Illegal Everything
+- Judge Andrew Napolitano - "It's Time to Change Our Government!!"
+- ¿La Pandemia del Miedo? - Pastor francés Explica el Confinamiento por Covid-19
+- "La Policía Del Amor" Sincroniza con David Icke Sobre el Sufragio en UK
+- La Servidumbre Moderna - Documental Alternativo
+- Message For The Uniforms and Dark Suits - David Icke
+- Mind the Matrix - Collective Change in the Matrix Template
+- Monopoly Men
+- Obediencia Ciega e Hipnosis Colectiva - La Humanidad está Viviendo una Tragedia Inmensa con el Covid-19
+- On Modern Servitude - Shattered Times
+- Orwell Rolls in His Grave
+- ¿Porqué me Vigilan, si Soy Nadie?
+- Remember Who You Are - David Icke - Wembley Arena Oct 27, 2012
+- Rule from The Shadows - The Psychology of Power
+- Senate Has Declared War on American People
+- Skynet 2.0 - Unstoppable Secret Network Bypasses Internet
+- Slavery by Consent
+- Statism is Dead - True News
+- The Big Brother Matrix of Reality
+- The Calling - Expose of The New World Order
+- The End Game - David Icke
+- The Greatest Speech for Humanity - 'V for Vendetta' - David Icke
+- The Matrix - True News
+- The Movie... and The Secret Agenda - David Icke
+- The New World Order Endgame - David Icke
+- The Power of Nightmares - The Rise of The Politics of Fear
+- The Story of Your Enslavement
+- The Theory & Practice of Oligarchical Collectivism
+- Ubiquitous Computing - Big Brother's All-Seeing Eye
+- USA de Verdad
+- 'V' For Vendetta - Subtitulos en español
+- Whitehouse Coup - BBC
+Related Reports
+- 5G - The Great Connection Risk and Control - Main File
+- Biden - A 2021 U.S. President - Main File
+- Capitalism is a Collapsing System - What's Next? - Main File
+- Conspiracy Theories - Main File
+- EndGame - JuegoFinal - Main File
+- Illuminati - Order of The Illumined Wise Men - Main File
+- Martial Law in USA? - The Death of Democracy - Main File
+- Synthetic Life - Robotoids, Parasites and Artificial Humans - Main File
+- The Global Media Control - Main File
+- The United Nations 2030 Agenda - Main File
+- 'War on Terror' - Main File
+Return to The Global Elite
+Return to Temas / Main Files
+Return to Ponerology - The Science of Evil

@@ -1,0 +1,487 @@
+# Asia - The Reemerge of a Giant / Asia - El Resurgir de un Gigante
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_asia.htm
+
+- ¿Alemania Coquetea con China? - La postura de Scholz levanta polémica en Europa
+- "America Has Lost" - Duterte Announces "Separation" from United States, Aligns with China and Seeks...
+- América Latina - La Nueva Arma arrojadiza de EE.UU. contra China
+- América Latina no quiere una nueva Guerra Fría
+- America's Largest Creditor - Will China end U.S. Trade War with a "Debt Reset" by Dumping U.S. Treasury...
+- America Will Lose the Trade War because that is what Globalists Want to Happen
+- A Multipolar World is Emerging
+- Analista Expone el Posible Futuro de las Relaciones entre EE.UU., China y Rusia
+- A New American Empire - Trump, Russia, and the End of Globalism
+- Argentina buscaría Limar Asperezas con China por Necesidad de Fondos
+- ASEAN Economic Community - Why, For What, and By Whom
+- Así es cómo China planea Convertirse en la Economía Líder del Mundo
+- Así es cómo Luce la Tercera Guerra Mundial
+- 'Big Data' isola Milioni per la 'Lotta al Coronavirus'
+- 'Big Data' Segregates Millions in China's 'Coronavirus fight'
+- Bill Gates and Rockefeller Brothers are Funneling Millions to Chinese Communist Party - Docs Show...
+- BRICS and Smart Cities - Lessons from China's Model for the Global South
+- BRICS in the Wall of Global Greed
+- BRICS nel Muro dell'Avidità Globale
+- Brzezinski's Ghost shapes Washington Eurasia Geopolitics
+- Brzezinski's Warning to America
+- China al G7 - Se Acabó que un 'Grupo de Países' dicte las Decisiones Globales
+- China and Russia - The Bilateral Relationship that Matters
+- China and the Zombies of The Past
+- China announces the World's First "A.I. Hospital" - Marking Asia's Leadership in Healthcare Innovation
+- China consolida su presencia en Latinoamérica con la Inauguración en Perú del Megapuerto de Chancay
+- China Could Reshape the Post-U.S. World Order - But Does It Want To?
+Español
+- China dice Estar Dispuesta a Dirigir el Mundo si Fuera Necesario
+- China en África - Del Beneficio Mutuo a la Hegemonía de Pekín
+- China Encerrada en una Guerra Híbrida con Estados Unidos
+- China - ¡Este Sistema de Gobierno nos Amenaza a Todos!
+- China Forges Ahead through Chaos and Threats
+- China ha pasado de Comprar Tecnología Occidental a Invertir en la suya Propia
+- China has Been Preparing for a Trade War for Over a Decade
+- China has Begun to Shape and Manage the U.S. - Not the Other Way Around
+- China hopes to roll out its 'Smart City Model' to BRICS Nations
+- China in bid to challenge SpaceX by deploying Maglev Rocket launch pad by 2028
+- China insta a EE.UU. a revelar Detalles sobre Laboratorios Biológicos en Ucrania - Los virus que Almacenan y...
+- China is A Technocracy
+- China is Globalist
+- China is Helping Governments of the World Build their Own Surveillance State
+- China is Weaponizing Water
+- China lockdowns leading to 'Total Control of Population'
+- China locked in Hybrid War with U.S.
+- China muestra la Realidad sobre las Criptomonedas y los Bancos Centrales
+- China 'mueve ficha' en Sudamérica y busca un 'jaque' a Trump con Dos Alianzas
+- China Plans to Break Petrodollar Stranglehold
+- China prepare further Massive 5G Expansion in 2021
+- China promueve el BRICS Plus
+- China quiere Construir una "Supercarretera" de Granos en Argentina
+- China, Rusia, India, el Sur - La Era de la Revancha
+- China rechaza el Petróleo Estadounidense a pesar de la "Tregua Comercial"
+- China rompe el Dominio de la Deuda Occidental en Latino América y el Mundo
+- China's Dramatic Dissent
+- China's endless 'COVID Hysteria' is a Dark Experiment in Social Conditioning
+- China slams 'War-Addicted' U.S.
+- China's Plan to Build Global Technocracy using Artificial Intelligence
+- China's Social Credit System has Blocked People from Taking 11 million Flights and 4 million Train Trips
+- China's Technological System to Control Dissenters
+- China's Xi, Russia's Putin challenge 'World Order' at Regional Summit
+- China's Yutu 2 Rover - Spots Cube-shaped 'Mystery Hut' on Far Side of the Moon
+- China - The Emerging Global Giant
+- China, the Rothschilds and the Global Rise of Communism
+- China - The Virus Crises
+- China wants to be at Center of New World Order - Top EU Official Says
+- China y Rusia derrotan al Tío Sam en su Propio Juego
+- China y Rusia se Unen y Cambian el Orden Mundial
+- Chinese President Highlights the "World Wants Justice" and "Not Hegemony"
+- Choque de Civilizaciones 2.0
+- ¿'Choque de Civilizaciones' o Crisis de Civilización?
+- Cina Rivela la Realtà sulle Criptomonete e le Banche Centrali
+- Cómo el Espectro del Comunismo Chino rige nuestro Mundo
+- ¿Cómo Rusia y China pueden Contrarrestar el Impacto de las Sanciones de Occidente?
+- Confucius, DeepSeek and why China would Win a War with the United States
+- Czech Molecular Biologist explains in Layman Terms COVID-19 virus Originates from Lab in U.S. not China
+- De-dollarization in a Big Way - This Changes Everything
+- Desconfianza en la Cumbre APEC 2023 - Xi Jinping y Joe Biden
+- Design Reports released for Proposed CEPC China Supercollider
+- Discovering the 'Great War' of China
+- Discurso Completo de Donald Trump ante la ONU en 2025 - "¿Qué Sentido tienen las Naciones Unidas?"
+- Ecco come Appare la Terza Guerra Mondiale
+- È da Oltre un Decennio che la Cina si sta Preparando alla Guerra Commerciale
+- EE.UU. admite su Derrota en la Guerra contra Rusia y China
+- ¿EE.UU. perdió India? - "Cisne Negro" del Nuevo Orden Mundial que aceleró el grupo de Shangai
+- EE.UU. pierde Latinoamérica ante China por su 'Pésimo Manejo Migratorio' y su Falta de Inversiones
+- EE.UU./Rusia/China configuran la Nueva Tripolaridad del Siglo 21
+- EE.UU. y Europa Lloran - No Aguantaron cuando China empezó a jugar el Juego del Libre Mercado
+- El Águila, el Oso y el Dragón
+- El Camino hacia la Gran Eurasia
+- El Cisne Naranja - La Subida y Caída de Imperios
+- El Consejo de Sun Yat-sen a los Jóvenes Revolucionarios - No sean Títeres Imperiales
+- El Dragón presenta su Hoja de Ruta - Niega haber buscado Hegemonía
+- Elecciones en Taiwán - Una Derrota para los Estados Unidos
+- El Ex-presidente Trump revela Nueva Advertencia a China de '48 Horas'
+- El Fin de la Dominación Occidental
+- El Gran Avance Agrícola de China - Menos Fertilizantes, Mayor Rendimiento de Cultivos y más Dinero
+- El Impactante Centro de Datos Submarino de China
+- El llamado de Biden a crear un 'Nuevo Orden Mundial' refleja el Miedo de EE.UU. a la Multipolaridad
+- El Medio Oriente se libera de Occidente
+- El Momento Unipolar ha Terminado
+- El Mundo según Xi Jinping - Lo que realmente Cree el Ideólogo en jefe de China
+- El Orden Global en Reconfiguración - Trump, China, Rusia y el Nuevo Equilibrio de Poder
+- El Pacto Rusia-China y la Conspiración Marx-Rothschild
+- El Partido Opositor Kuomitang Gana en las Elecciones Locales de Taiwán
+- El Presidente Xi invita al Mundo a Unirse a China en la Construcción de una Nueva Internet
+- "El Proceso de la Construcción de un Mundo Multipolar es Inevitable" - Vladímir Putin
+- El Secreto de Eurasia - La Clave de la Historia Oculta y de los Acontecimientos Mundiales
+- El Sistema Bancario Chino ha entrado en Caída Libre
+- El Sur Global crea un Nuevo Sistema de Pago que cambia las Reglas del Juego
+- El último 'Tonto Útil' del régimen de Pekín
+- En China los Líderes se eligen como si fueran CEOs
+- Enlightened World Leadership Does Not Exist
+- En Moscú, Xi y Putin entierran la 'Pax Americana'
+- Entre "Embates y Chantajes" de Trump - Así avanza la relación de China con América Latina
+- Escenarios de la Gran Eurasia - La ASEAN
+- Está Confirmado - ¡Los Tiranos Aman a China!... ¿Pero por qué
+- Estados Unidos ha Perdido Todas las Batallas Económicas que ha Emprendido contra China
+- EU, Russia, Iran, and China unveil New Global Payment System Independent of U.S.
+- "Financial Independence" from American Empire say EU, China, Russia...
+- Forty 'Richest and Poorest Countries' in Asia 2023 - From Opulence to Opportunity...
+- From Shanghai to Chongqing - The World's Most Expensive Railway
+- Frustrated by Biden, China courts 'Old Friends' like Kissinger
+- Get Ready for a Major Geopolitical Chessboard Rumble
+- Gli Intellettuali Occidentali impazziscono per la "Mostruosa Cina"
+- Goodbye G20 - Hello BRICS+
+- Hacia un Nuevo Sistema de Gobernanza Global - La Inauguración de la Cumbre de la OCS, en puntos clave
+- Henry Kissinger con 100 Años viajó a China - Se reunió con Xi Jinping y pidió "Coexistir Pacíficamente"
+- 'Histeria' en EE.UU. y sus Satélites por Avance Geopolítico de Rusia y China
+- History is Being Made in the East this Week - While War is Being Made in the West...!
+- Hong Kong - Caos antes del Orden
+- Hot Mic picks up Putin and Xi discussing 'Organ Transplants and Immortality'
+- How a 'Top Secret SEAL Team 6 Mission' into North Korea fell apart
+Italiano
+- Il Cigno Arancione - Il Sorgere e la Caduta degli Imperi
+- Il discorso di Biden per creare un Nuovo Ordine Mondiale riflette la Paura degli Stati Uniti al Multipolarismo
+- Il Drago presenta la sua Tabella di Marcia - Nega di aver cercato l'Egemonia
+- Il Grande Progresso Agricolo della Cina - Meno Fertilizzanti, Maggior Rendimento delle Coltivazioni e più...
+- Il Mondo di Xi Jinping - Ciò che Crede Realmente l'ideologo capo della Cina
+- Il Più Grande Creditore dell'America - Finirà la Cina la Guerra Commerciale Americana "Resettando il Debito"...
+- Il Sistema del Credito Sociale in Cina
+- Imagine what Would Happen if China Decided to Impose Economic Sanctions on the USA?
+- I Messaggi Occulti che ha inviato la Cina al Mondo dal Congresso del Partito Comunista
+- Importantes Desarrollos Sugieren fuertemente el Fin del Orden Mundial Unipolar
+- India is On the Rise - But it already Leads the World in some Sectors
+- Investigación Revela cómo el PCCh Interfirió en las Elecciones de EE.UU.
+- I Piani della Cina per spezzare la Forza del Petroldollaro
+- Iran is China's Secret Weapon for Killing off the U.S. Dollar's Global Reserve Status
+- Is Asia Ready for an Indo-Russian Order?
+- Is it U.S. vs. China in Trade Pacts?
+- Is Neutering NATO the next Russia-China Project?
+- Is the German Chancellor betraying the U.S. 'Emperor'? - The New Germany-China "Connection"
+- Is Xi about to make Macau the Next Financial Powerhouse?
+- Japan and China Bypass U.S. in Direct Currency Trade
+- Joint Statement of Russia and China on the International Relations entering a New Era and the Global...
+- La Autentica Razón por la que EE.UU. Amenaza a Corea del Norte y de la que Apenas se Habla
+- La Batalla por Dominar el Futuro - ¿'DeepSeek' cambia las reglas entre EE.UU. y China?
+- La Cina Avanza tra Caos e Minacce
+- La Cina è Globalista
+- La Cina è una Tecnocrazia
+- La Cina prepara una ulteriore Espansione Massiva di 5G nel 2021
+- La Era de la Hegemonía Occidental ha Terminado - La Multipolaridad ya 'No es Teoría'...
+- "La Era de la Revancha" - Rusia, China y la India encabezan un Cambio del Orden Mundial
+- La Globalización de la OTAN como Proyecto de Contención Euroasiática
+- La Inminente Guerra de Washington contra China
+- La Interminable Histeria Covid de China es un Experimento Oscuro en el Condicionamiento Social
+- La Minaccia del Sistema di Governo Cinese
+- La Nueva Teoría de las Élites Occidentales sobre la "Amenaza China"
+- La Nuova Cina - Il Primo Esempio al Mondo di uno Stato Totalitario Tirannico Medico nel 2022
+- La Próxima Amenaza - Explotación del ADN
+- L'Aquila, l'Orso e il Drago
+- Las Fuerzas Multipolares día a día se Consolidan Más en sus Posiciones
+- Las Principales Empresas Tecnológicas de EE.UU. comienzan a Cortar los Suministros Vitales de Huawei
+- La Storia si sta facendo all'Est questa Settimana mentre a Ovest si sta facendo la Guerra...!
+- La Verdad sobre China...
+- Líderes del G7 responden al Acoso Económico de China y advierten sobre "Consecuencias" - Cumbre 2023...
+- Lo que la Ciencia dice sobre la Política
+- Los Bancos Chinos y Rusos ya No Dependen del Sistema Occidental
+- Los Beneficios Chinos tras el Alivio de las Tensiones entre EE.UU. e Irán
+- Los BRICS+ y Confucio
+- Los Dictadores deberían Temer a la IA
+- Los Ferrocarriles Rusos ya solo miran hacia Oriente
+- Los Intelectuales Occidentales se vuelven Locos por la "Monstruosa" China
+- "Los intentos de Crear un Mundo Unipolar han tomado Formas Monstruosas" - Putin
+- Los Mensajes Ocultos que mandó China al Mundo en el Congreso del Partido Comunista
+- Los Neoconservadores quieren la Guerra con China
+- Los Preparativos de la OTAN para una Guerra Global caminan a Paso Acelerado
+- Major Confrontations in South China Sea as Desperate Cabal Tries to Steal Asian Gold Deposits
+- Major Developments Strongly Suggest the End of Unipolar World Order
+- Mandatario Filipino Rompe con EE.UU. y Busca "Otras Alianzas"
+- Mass COVID Protests in China reveal a Weakened Communist Regime
+- More American Troops to Afghanistan to Keep the Chinese Out? - Lithium and the Battle for Afghanistan Mineral
+- Multiplicidades de China en America Latina
+- Nation of 65 Million Gets Lesson on Globalist Agenda - Thailand Local Media Mogul Gives 2 Hour Talk...
+- New Asian Union Means the Fall of the Dollar
+- "No Queremos Empezar la Guerra Comercial - Pero No tenemos Miedo de Hacerlo" - Dice China
+- Operación 'Jaque Mate' del Coronavirus
+- Perché mai George Soros vuole che Xi Jinping vada via?
+- Presiones de EE.UU. y Terror Mediático sobre la Base China en la Patagonia
+- Principles, Not Bitterness will Determine History
+- Putin Announced the Doctrine of Global Confrontation with the United States
+- Putin Anuncia la Doctrina de la Confrontación Global con los Estados Unidos
+- Putin llamó a Liberarse de la "Dictadura del Modelo Financiero" cuyo objetivo es "Endeudar y Colonizar"
+- ¿Qué es la OCS? - Abarca un Territorio de 36 Millones de Kilómetros Cuadrados
+- ¿Qué pueden adquirir Italia y China a lo largo del BRI?
+- ¿Qué significa el Acercamiento entre Rusia y China para Occidente?
+- Reason why the West is Determined to Ignore China's Success
+- Rusia quiere obligar Estados Unidos a Respetar la 'Carta de la ONU'
+- Rusia y China en Equilibrio - El G7 Desquiciado
+- Rusia y China invierten en Infraestructuras - Estados Unidos en cambio gasta en Elementos Militares
+- Rusia y China ya tuvieron Suficiente
+- Russia aiming to realize the 'Greater Eurasia Dream'
+- Russia and China are Containing the U.S. to Reshape the World Order
+- Russia and China Build Up a New Economic Geography
+- Russia and China Declare All-Out War on U.S. Petrodollar - Prepare for Exclusive Trade in Gold
+- Russia and China Have Had Enough - The Road to 2025 Part 2
+- Russia and China Invest in Infrastructure - U.S. instead Spends on Military
+- Russia and China unveil Plan for New World Order
+- Russia and The EU - Main File
+- Russia, China planning for Joint Nuclear Power Plant on the Moon by 2035
+- Russia-China - The Summit which the Media Ignored
+- Russia e Cina svelano il Piano per il Nuovo Ordine Mondiale
+- Russia is Key to Asia Future Development
+- ¿Sabe Trump lo que está haciendo con China?
+- 'Scontro di Civiltà' o Crisi della Civiltà?
+- Se Dinamiza el Mundo Multipolar - Modi en Moscú y Orban en Pekín...
+- Siete Poderes y un Destino - Convivir con el Éxito de la Civilización China
+- Strategizing in the Wake of the Singapore Summit - The Kim-Xi Meeting in Beijing
+- Tácticas Occidentales Engañosas para desprestigiar a China - Distraen a las Masas de los Conflictos Internos
+- Techno-Authoritarianism - China and Deep State have Joined Forces
+- Technocratic Governance Seen as Ruling in China and Asia
+- Tensions Grow as China, Russia and Iran Lead the Way Towards a New Multipolar World Order
+- The Battle for the 'Global South' - An Ancient Evil rears its Head...
+- The China Model unravels in Shanghai - Lockdowns
+- The Chinese are Leaving the U.S. in the Dust
+- The Coming War on China
+- The Coming War on China - A Review of John Pilger's Latest Documentary
+- The Eagle, the Bear and the Dragon
+- The EU's 'Investment Deal' with Beijing punctures America's dream of a 'Transatlantic Alliance' against China
+- The Final War - The 100-Year Plot to Defeat America
+- The First Casualty of Trade War is Truth
+- The Global Majority Speaks - A Billion more People just Joined the BRICS...!
+- The Internet is Splitting in Two as Dispute with China Emerges
+- The Kremlin's "America-Gate"? - "An Eye for an Eye"
+- The Masked Ball of Cowardice
+- The Mask is Off - WEF's Klaus Schwab declares China a "Role Model"
+- The New China - The World's First Example of a Medical Tyrannical Totalitarian State in 2022
+- The New International Order takes Hold - What can we Expect from China and the rest of Asia in 2024?
+- The Old World Order was Buried in China - Here's why It Matters
+- The People of North Korea - A Vilified Nation... and What is the Truth
+- The Road toward Greater Eurasia
+- The Trans Pacific Partnership Agreement (TPP) is Part of Obama's "Pivot to Asia"
+- The U.S.' fury over the China-Europe Investment Deal shows how Rattled and Isolated they Are
+- The West just watched the 'World Shift' in Tianjin - The Rise of a Multipolar World Order
+- This is what World War III Looks Like
+- Todos los Caminos conducen a... Eurasia
+- Towards a Culture of World Peace
+- 'Trattato per Investimenti' della UE con Pechino infrange sogno Americano del 'Patto Transatlantico' contro la Cina
+- Triple Golpe de China a EE.UU. - Petroyuán con Oro y Armas Nucleares Rusas
+- Underneath the Trade War of Donald Trump and Xi Jinping
+- U.N. 'Pact for The Future' draws Concerns over CCP Backing
+- "Unsilenced" - Leon Lee parla del Novo Film su come la Cina Comunista manipola la Narrazione sulla Cina in...
+- "Unsilenced" - Leon Lee talks about how Communist China manipulates the Narrative about China in the West
+- USA/Russia/Cina sono la Nuova Tripolarità del Secolo 21
+- U.S.-China Conflict - From War of Words to Talk of War
+- U.S.-China Relations in the Years Ahead - The 'Trade War' is a Sideshow
+- War in the Middle East threatens Central Asia
+- War with China - Thinking Through the Unthinkable
+- Washington se Niega a escuchar a Rusia y a China
+- Western Companies Bow to China Bullying to Censor Mentions of Taiwan, Tibet as 'Separate Countries'
+- What to Make of China's Rejection of the Dollar? - Washington is Destroying American Power
+- Why on Earth does George Soros want Xi Jinping to Go?
+- Xi è vicino a fare di Macao il Prossimo Centro di Potere della Finanza?
+- Xi Jinping - China y Alemania refuerzan su Confianza y su Cooperación
+- Xi Jinping, Putin y el Colapso de EE.UU. como Imperio
+- Xi says SCO bears Greater Responsibilities for Peace and Development
+- 1,300-Year-Old Fortress - Ruins on Siberian Lake Mystifies Experts
+- "1984" Has Come to China
+- 5000 Anni di Civiltà Cinese - 4 Segreti della Trasmissione Ininterrotta
+- 5000 Años de Civilización China - 4 Secretos de la Transmisión Ininterrumpida
+- A First for Humankind - China Successfully Sprouts a Seed on the Moon
+- Alberto Fernández solicita a Xi Jinping la adhesión formal de Argentina al BRICS
+- Artificial Intelligence (A.I.) - Dangers to Humanity
+- Así es como la India quiere Exportar Combustible Solar a Todo el Mundo
+- Australia Bans Huawei from Massive 5G Network Project - China Rebuffed
+- Backlash against "War on Cash" reaches Washington and China
+- Bill Gates, China, 23andMe and your DNA
+- China anuncia que Cubrirá de Bosques casi Un Cuarto del País para 2020
+- China Blanketing Tibet with Massive Rain-Making Geoengineering Project
+- China gives 'Dark Fleet Antarctica Bases' to Earth Alliance to build Space Fleets
+- China No fue el 'Villano' Original en un libro 'Prediciendo' el Brote del Coronavirus - Fue 'Rusia'...
+- China puede Salvar a la Tierra del 'Armagedón'
+- China sigue Riéndose de las Tonterías Occidentales sobre la "Energía Verde"
+- China was Not the Original Villain in book 'Predicting' Coronavirus Outbreak - It was 'Russia'...
+- Chinese-Japanese Secret Societies - Main File
+- Come i Rockefeller 'Trumpizzarono' il Mondo
+- Come una Pandemia virale Giova all'Agenda Globalista
+- Cómo Encaja Teherán en la Estrategia Rusia-China
+- Cómo la "Escasez de Alimentos" y el Colapso Económico protegen el Status Quo
+- Cómo la OMS aprendió a Amar la Medicina Tradicional China
+- Cómo los Rockefellers 'Trumpearon' al Mundo
+- Cómo una Pandemia Viral Beneficia a la Agenda Globalista
+- Conexiones Interoceánicas - La Ventaja Estratégica Latinoamericana para el Comercio Mundial
+- Coronavirus and 'No Weapon Left Behind' - The American Hybrid War on China
+- Coronavirus hit East Asia 20,000 years Ago
+- Coronavirus - My bottom lines on the China Epidemic
+- Coronavirus y Geopolítica
+- CREEPY Bill Gates Strikes Again with Windows 10
+- Cuevas de Longyou en China - Antiguas Tecnologías
+- Delirios Fatales del Hombre Occidental Estadounidense
+- Descubren que la Cara Oculta de la Luna está cubierta de Suelo "Pegajoso" y Cráteres Pequeños
+- Descubren uno de los Mayores Yacimientos de Oro en China - Se formó de manera Diferente al Modelo Común
+- Dos Ejemplos que Muestran que Rusia y China "No son la Alternativa"
+- Eiichi Shibusawa - "El Padre del Capitalismo Japonés" que creía que la Moral y la Economía son Inseparables
+- El 70º Aniversario de la República Popular China y el Empeño Occidental en Borrar la Historia
+- El año 2024 - Gaza, Ucrania y Eurasia en la Crisis del Declive Occidental
+- El Ascenso del Siglo Euroasiático
+- El Nuevo Orden Mundial Comenzará con Alemania y China
+- El Régimen Chino avanza con su Plan de tomar la Luna - Desarrolla un Sistema de Energía Nuclear Espacial
+- El Surgimiento de los Seguros hace 5.000 Años y 5 Errores que Seguimos Cometiendo al Contratarlos
+- El "Top-Ten" de los Países Más Inteligentes del Planeta
+- Encuentro Biden-Putin - Más parecido a un 'Yalta II' que a la 'Capitulación de Berlín'
+- Epidemias y Control Social - La Otra Cara del Miedo a la Enfermedad
+- Están haciendo Todo lo Posible para Provocar una Guerra Nuclear con Rusia
+- Estos son los Países Percibidos como con Mejor Influencia en el Mundo
+- ETs and Ancient Japan
+- Fatal Delusions of Western (North American) Man
+- Gli Stati Uniti sono la Maggiore Causa della Instabilità Globale - Ma Pretendono di essere la Soluzione
+- Global Military Agenda - Increased US-NATO Military Presence in Southeast Asia - Completing Plans For...
+- Green is Gold - The Strategy and Actions to China's Ecological Civilization
+- Guerra ai Tempi Nostri? - Abbiamo bisogno degli 'Uomini in Camice Bianco'...
+- How a Viral Pandemic Benefits the Globalist Agenda
+- How the Rockefellers "Trumped" the World
+- How the WHO learnt to Love Traditional Chinese Medicine
+- 'I Have No Faith in the WHO' - 'The Leadership Should Face Criminal Charges and Be Shut Down' - S.Bannon
+- Il "1984" è arrivato in Cina
+- Il Giappone rende ufficiale il Sistema che forgia Elites di Esseri Umani - Nuovo Sistema Educativo
+- India reanudará las Importaciones de Petróleo de Venezuela desafiando las 'Sanciones'
+- Intelligenza Artificiale (A.I.) - Pericoli per l'Umanità
+- International Criminal Court Tribunal declares Trump and Duterte Guilty of Crimes Against Humanity
+- Is Trump a 'Covert Ally' to the Multipolar Order?
+- Italia recibe 26 Toneladas de Suministros Médicos de China
+- Japón formaliza el Sistema forjando Seres Humanos Élites - Nuevo Sistema Educativo
+- 'Joint U.S. China Mission' to Giant ET Space Ark under Atlantic Ocean
+- La Cina non è stato 'il Cattivo' all'origine nel libro 'Che prediceva' l'Epidemia di Coronavirus - E' stata la 'Russia'
+- La Economía de las Pandemias y Cuarentenas
+- La Estrategia de Trump contra Rusia y China
+- La Historia Original de la 'Epidemia de China' se Desmorona por Completo
+- La Prueba Genética de los Vínculos entre los Asiáticos y los Nativos Americanos
+- La Reforestación en China está fomentando la Vuelta de Animales Exóticos
+- L'Ascesa del Secolo Euroasiatico
+- Las Ciudades más Contaminadas del Mundo en 2018
+- Las Pirámides Chinas - Main File
+- Las Raíces de la Adicción de Washington a la Fuerza Militar
+- La "República" se agotó Globalmente - ¿Podría surgir un Giro Monárquico en un Mundo Post-Liberal?
+- La Verdad sobre el Coronavirus y la Probabilidad de que Desate una Pandemia
+- L'Economia delle Pandemie e delle Quarantene
+- Le Grotte di Longyou in Cina - Antiche Tecnologie
+- L'Irreveribile Successo delle Sanzioni UE
+- L'ORRIPILANTE Bill Gates colpisce Ancora con Windows 10
+- Magnífico Sistema de Gestión del Agua de hace 5.100 Años en China
+- Microsoft President Threatens that Orwell's '1984' could Happen in 2024
+- Munich Conference reveals East-West Divide
+- NATOstan Robots versus the Heavenly Horses of Multipolarity
+- Nobody is 'Stealing' your Jobs - You Spend Too Much on Wars - Alibaba founder tells U.S.
+- 'Non Credo nell'OMS' - 'La Leadership Dovrebbe Essere Incriminata e Imprigionata' - Steve Bannon
+- Origin Story of "China Epidemic" falls apart Completely - A Big One...
+- ¿OTAN Global o Paz Global...?
+- Países Latinoamericanos hacen "Entreguismo Desesperado" de sus Recursos Naturales a China y Rusia
+- Perché l'Occidente Non Può Tollerare i Russi
+- Perú y México - A la Vanguardia del Comercio entre América Latina y Eurasia
+- Quien Gane la Carrera de la Inteligencia Artificial (IA) Gobernará el Mundo - Dice el Instituto Brookings
+- Ready, SETI, go... Is there a Race to Contact ETs? - If so, China may be in the Lead...
+- Rusia y China Liderarán el Regreso a las Divisas Respaldadas por el Oro
+- Scoperto uno dei Maggiori Giacimenti di Oro in Cina - Si è formato in modo Diverso dai Modelli Comuni
+- "Sensación de Miedo e Inseguridad aumenta" - La poco envidiable posición de Europa entre China y EE.UU.
+- Shift in Military Alliances - America Declares War on Turkey? #NATOExit?
+- Sikkim - El Primer Estado Orgánico del Mundo
+- Silicon Valley está Construyendo un Sistema de Crédito Social al estilo de China
+- Singapore First Country to Stop 'Counting Daily COVID-19 Cases' and treat it Like Normal Flu
+- Taiwan - No Lockdown, No Chiusure delle Attività, Non sono Membri dell'OMS e Pochi Infetti da COVID-19
+- Taiwan - No Lockdowns, No Closed Businesses, Non-WHO Member and Relatively Unaffected by COVID-19
+- Thank you China, you're Wonderful
+- The BRICS - Main File
+- The China Lockdown Example - Origin of the War against the Population of Earth - Pretense of Containing a...
+- The Chinese Pyramids - Main File
+- "The Chinese Virus is spreading..." - Deception and False News
+- The Country with Zero COVID Deaths
+- The Economics of Pandemics and Quarantines
+- The Hard Road to World Order
+- The New World Order will Begin with Germany and China
+- There are Plants and Animals on the Moon Now... Because of China
+- The Road from Rome - The Fall of the Roman Empire wasn't a Tragedy for Civilization
+- The Rockefeller Foundation, China and Cultural Change
+- The Sociopolical 'Discoveries' of Benjamin Fulford - Main File
+- The 'Supercave' that Can fit Four Great Pyramids Inside
+- The Trans-Pacific Partnership - TPP - Main File
+- The U.S. is the Biggest Cause of Global Instability - But it Pretends to be the Solution
+- The War on Cash - COVID Edition
+- The World's Biggest Trade Agreement (RCEP) won't allow Corporations to Sue Governments
+- This Outlaw Power - America's Intent is to Dominate China, Russia and the World
+- Top 30 Países Más Inteligentes del Mundo
+- Trump, Rusia, y Novorrusia
+- 'Trust In Government' is No Longer Possible
+- Underground Man-Made Longyou Grottoes remain an Ancient Unsolved Mystery
+- Un G7 sin China es solo un Grupo de Consulta con "Buenas Intenciones"
+- United Nations approves 'New Internet Convention' backed by Russia and China
+- U.S. State Department expands plans for Closing Embassies and Consulates
+- War in Our Time? - We need the 'Men in White Coats'...
+- Why Do We Love Violence? - The Tainted Glory of the Gladiator
+- Why the West Cannot Stomach Russians
+- A Hope for all of Europe - Italy's Embrace of the Silk Road
+- Alemania y China Construyen La Nueva Ruta de La Seda a Través de Rusia
+- Cambios en Sudamérica traen a la Nueva Ruta de la Seda a las Américas a Medida que el Orden Neoliberal...
+- China is Asserting itself as the Driving Force Behind Globalization
+- Dandan Oilik - La Antigua Civilización perdida por 1.000 Años bajo la arena en la Ruta de la Seda
+- "Donde Rusia y China tienen Buena Presencia y Cooperan, hay Tranquilidad"
+- El Futuro es Asiático... y Rusia es 80% Asiática
+- Europe Embraces China's 'Belt and Road Initiative'
+- Germania e Cina Costruiscono La Nuova Via della Seta Attraverso la Russia
+- Gli USA fanno pressione sull'Italia per uscire dalla "Belt and Road" Cinese - Rimanere o No nella BRI?
+- 'Il Patto Iran - Cina' il Turbocompressore delle Nuove Vie della Seta
+- 'Iran-China Pact' Turbocharges the New Silk Roads
+- Irán se Suma al Mundo Multipolar y Participará Plenamente en el Proyecto Chino de la Nueva Ruta de la Seda
+- Italia Cortejando a China - Una Jugada Maestra de Caos
+- Italy's 'Belt and Road' Deal with China widens Rifts in the Euro-Atlantic Alliance
+- La Confianza está a Prueba en Europa y en el Mundo
+- La Nueva Ruta de la Seda como 'Piedra de Tropiezo' en las Relaciones entre China y EE.UU.
+- La Ruta de la Seda envuelve a EE.UU. en América Latina
+- La Via della Seta accerchia gli USA in America Latina
+- L'Iran si aggrega al Mondo Multipolare e Parteciperà pienamente al Progetto Cinese della Nuova Via della Seta
+- Major Geopolitical Changes Now Underway
+- Marco Polo está de Vuelta en China - Italia y la Iniciativa China 'Belt and Road'
+- Putin interviene en foro 'La Franja y la Ruta' en China
+- Trump y la Ruta de la Seda - La Batalla decisiva contra la Hegemonía de China
+- U.S. pressures Italy to Exit the Chinese "Belt and Road" - To Stay or Not to Stay in the BRI?
+- Welcome to the 'Indo-Russia Maritime Silk Road'
+Multimedia:
+- China se Apodera de Europa - La Nueva Ruta de la Seda
+- La Cina s'Impossessa dell'Europa - La Nuova Via della Seta
+- The New Silk Road
+Yuan and Digital Currency
+- Challenging the Dollar - China and Russia's Plan from Petroyuan to Gold
+- China abandona los USD tras Nuevo Acuerdo con Brasil y establece Primer Comercio de GNL en Yuanes
+- China abre Nueva Línea de Crédito a Irán de 10 Mil Millones... en Euros y Yuanes
+- China podría Matar al Petrodólar con el Petroyuan - El Sueño de Gaddafi No Muere...
+- 'China's new Digital Currency' spells the End for the US Dollar's Global Dominance and will Change the World...
+- CV-1984: China rolls out 'Test of Digital Currency' in Four Cities - Western Businesses Testing
+- Digital Yuan - The New Era of 'Cross-Border Payments' in Global Trade
+- El Dominio Energético Estadounidense y el Ascenso del Petroyuan
+- First Chinese CNH Stablecoin debuts as Global Race heats up
+- La Cina potrebbe Uccidere il Petroldollaro con il Petroyuan - Il Sogno di Gheddafi Non Muore...
+- Yuan Tipped to Replace U.S. Dollar and Euro in Southeast Asia
+Books-Treatises
+- China's National Defense in the New Era - White Book - by The State Council in Beijing
+- Destined for War - by Graham Allison
+- Snake Oil - How Xi Jinping Shut Down the World - by Michael P. Senger
+- The Clash of Civilizations and The Remaking of World Order - by Samuel Huntington
+- The Cultural Revolution - A People's History, 1962-1976 - by Frank Dikötter
+- The Strategy of Denial - by Elbridge A. Colby
+- Through Asia - by Sven Hedin
+- Wireless Wars - China's Dangerous Domination of 5G and How We're Fighting Back - by Jon Pelson
+- Another War? - Russia, China and the American "Empire"
+- China - Surveillance State or Way of the Future...?
+- Cina - Sorveglianza di Stato o la Via del Futuro...?
+- Facts Philippines is the Richest Country - A Million Metric Tons of Gold
+- ¡Falta la Base para el 'Gran reinicio' y el 'Acuerdo Verde'...! - China
+- Have Fun in Pyongyang
+- Latinoamérica - Cuestión de Soberanía
+- Regímenes Mundiales desarrollan Armas de I.A. sin considerar los Riesgos para todos...
+- Sistema di Credito sociale in Cina
+- The Forbidden History of Ancient China
+- Una Alianza en Ascenso...
+- "Unsilenced" - Leon Lee talks about the New Film...
+- War with China - Are we Closer than we Think?
+- American "Empire" - Main File
+- Globalization and The European Union - Main File
+- Globalization - The Octopus of The New World Order - Main File
+- Latin America and The Global Elite - Main File
+- NATO - Powerful and Necessary, or Costly and Obsolete? - Main File
+- The Global Banking System - Main File
+- Trump - Main File
+Return to Temas / Main Files
