@@ -591,6 +591,7 @@ Italiano
 - Wealthy Technocrats are Subverting National Media
 - We are being Smashed Politically, Economically, Medically and Technologically by the Elite's 'Great Reset'
 - WEF Davos 2025 - More Grotesque than ever, Robotizing and Depopulating
+- WEF- World Economic Forum - Main File
 - Well-Funded Climate Activists waging Psychological Warfare on the Public
 - What do They Know? Why are So Many of The Super Wealthy Preparing Bug Out Locations?
 - What is 'The Great Reset' and who is Driving It?
@@ -1244,6 +1245,7 @@ Technocrats Billionaires - Space and More / Tecnócratas Billonarios
 - What does Palantir actually Do?
 - Windows-Microsoft-Bill Gates - Main File
 - No Farmers, No Food
+- The Ellison Family Media Coup
 The Panama Papers
 - Confessions of a Panama Papers Hit Man
 - Detrás de los Papeles de Panamá - La Mayor Estafa de la Historia
@@ -1404,9 +1406,10 @@ DAVOS:
 - "The Great Reset" and the Post-Capitalist Revolution
 - The Great Reset Snakes are Slithering together in Davos
 - There Was No 'Pandemic' - An essay by Denis Rancourt
+- The WEF Reveals the Agenda for Davos 2023
 - Trilateral Commission Member Larry Fink to Co-Lead the World Economic Forum (WEF)
 - Una Carta Abierta a la 'Multitud' de Davos...
-- The WEF Reveals the Agenda for Davos 2023
+- Una Nueva Doctrina echa Raíces - Una Nueva Era de Dominio Coaccionado
 - Vladimir Putin avverte sul Dominio "Big Tech" degli USA - Davos
 - Vladimir Putin warns of US 'Big Tech' Dominance - Davos
 - WEF-Davos 2024 - The World is Falling Apart but the Show Must Go On...

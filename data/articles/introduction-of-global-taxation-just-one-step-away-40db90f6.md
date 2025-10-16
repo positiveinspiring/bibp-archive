@@ -1,0 +1,26 @@
+# Introduction of Global Taxation Just One Step Away
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalization134.htm
+
+by Richard W. Rahn November 09, 2015
+from WashingtonTimes Website
+Richard W. Rahn is a senior fellow at the Cato Institute and chairman of the Institute for Global Economic Growth.
+Tax avoidance schemes
+costs hundreds of billions each year.
+The Global Taxers are after You What happened to 'no taxation without representation'? Are you aware that the American government has been slowly giving away its power to international bureaucrats to determine how its businesses and citizens are taxed? Most wars do not turn out the way the people who started them intended.
+Setting aside the hot military wars, look at the consequences of the "war on drugs" and the "war on money laundering and tax evasion."
+The global war on money laundering and tax evasion has failed in the three decades since it began in earnest, and it is now on its way to undermining the rule of law around the world, the legitimate role of financial institutions, and the right of sovereign governments to determine their own tax policies. The new anti-money-laundering laws and regulations have resulted in millions of Americans who live abroad and others living outside their home countries being unable to get bank accounts and other financial services in the countries where they live. Rather than protecting people who need financial services, government regulations are increasing their misery. Banks avoid potential government fines by dumping customers, whose source or use of their money is too difficult to figure out.
+International money-laundering expert, Burke Files, reported to me from Mombasa last week that in central Africa,
+"more and more money is leaving the banking system to seek alternative remittances. The money is now out of the system and being shipped in bulk currency, and the remitters are being forced to pay about 9 percent - from what was 3 percent to 4 percent."
+The Financial Stability Board (FSB) based in Basel, Switzerland, released a damning report last week on the decline in corresponding banking as a result of excess money-laundering regulations. The first federal laws on money laundering and international prohibitions were passed three decades ago, with the excuses that the law enforcement authorities needed them to fight the drug war and other assorted criminality, even though money laundering is almost impossible to tightly define - being a crime of intent rather than action. In 1998, the Organization for Economic Cooperation and Development (OECD) - which has been captured by the global big-government, high-tax lobby - published a report titled "Harmful Tax Competition," which was widely and rightly ridiculed because it ignored the fact that competition is good, including tax competition. Imagine how much higher tax rates would be in New York, Illinois and California if their rates and inefficiencies were not at all disciplined by better-managed states that do well without state income taxes, such as Texas and Florida. Other things being equal, both individuals and businesses tend to move from high-tax places to lower-tax places around the globe as a rational response to bloated and oppressive government. The statist bureaucrats at the OECD and their big-government masters were undeterred in their fight for higher taxes on others (despite their own tax-free salaries).
+They claimed that they were only trying to make sure that money from Americans and others was not being hidden in foreign banks to evade taxes. The non-American banks then agreed to implement withholding on payments to Americans and others so that the governments would get their tax money. The OECD first agreed to it, but then reneged, demanding to know the names of the banks' clients. This showed it was not just about money, but control over others by the 'political' class.
+Having no choice, the banks agreed...
+So then the OECD started going after corporations, claiming it was "unfair" that they had some of their activities in low-tax jurisdictions.
+Now the international political class is demanding that they determine where and how much a company should be taxed. But this is still not enough for these greedy politicians and bureaucrats, who are now demanding a "global minimum corporate tax," as Democratic Sen. Sherrod Brown of Ohio advocated in the Nov. 6 Wall Street Journal. Most businesses are taxed at individual - not corporate - rates, because they are set up as sole proprietorships, partnerships and LLCs.
+You can be sure that the next effort will be to establish a minimum tax for all businesses everywhere on the globe, which will be quickly extended to all individuals.
+What right does the United States or France have to tell other countries what their tax rates must be?
+As global taxes are increasingly implemented, Americans and citizens of other countries will lose their democratic right to determine their own taxes - and Americans will be right back where they were under King George III.
+What happened to "no taxation without representation"...?
+Return to Globalization - The Octopus of The New World Order
+Return to The Global Banking System
+Return to American "Empire"

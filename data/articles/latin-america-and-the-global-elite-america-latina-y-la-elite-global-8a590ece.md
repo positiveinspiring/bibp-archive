@@ -878,6 +878,7 @@ Venezuela
 - El Gobierno de España le Admitió a Pablo Iglesias que fue un Error Reconocer a Guaidó
 - El Juego Peligroso de Henrique Capriles y La Oposición Venezolana
 - El Kremlin desvela el texto del 'Acuerdo Estratégico con Venezuela' - ¿Qué Contempla?
+- El Nobel - Un Belicoso Premio a la Intervención Colonial
 - El País y La Victoria Electoral de Hugo Chávez
 - El Puente entre Colombia y Venezuela - Símbolo Falso para que EE.UU. justifique la Intervención
 - El Secreto Gobierno Mundial y la Venezuela de 2014

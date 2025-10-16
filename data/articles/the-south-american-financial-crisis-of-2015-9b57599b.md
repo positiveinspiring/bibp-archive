@@ -1,0 +1,55 @@
+# The South American Financial Crisis of 2015
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalelite_la86.htm
+
+by Michael Snyder July 29, 2015
+from TheEconomicCollapseBlog Website
+Most nations in South America are either already experiencing an economic recession or are right on the verge of one.
+In general, South American economies are very heavily dependent on exports, and right now they are being absolutely shredded by the twin blades of a commodity price collapse and a skyrocketing U.S. dollar.
+During the boom times in South America, governments and businesses loaded up on tremendous amounts of debt. Since much of that debt was denominated in U.S. dollars, South American borrowers are now finding that it takes much more of their own local currencies to service and pay back those debts.
+At the same time, there is much less demand for commodities being produced by South American nations in the international marketplace. As a result, South America is heading into a full-blown financial crisis which will cause years of pain for the entire continent.
+If you know your financial history, then you know that we have seen this exact same scenario play out before in various parts of the world.
+The following comes from a recent CNN article
+The dollar's gains should make history nerds shake in their boots. Its rally in the early 1980s helped trigger Latin America's debt crisis. Fifteen years later, the greenback surged quickly again, causing Southeast Asian economies, such as Thailand, to collapse after a run on the banks ensued.
+The dollar's gains should make history nerds shake in their boots. Its rally in the early 1980s helped trigger Latin America's debt crisis.
+Fifteen years later, the greenback surged quickly again, causing Southeast Asian economies, such as Thailand, to collapse after a run on the banks ensued.
+In particular, what is going on right now is so similar to what took place back in the early 1980s. At that time, Latin American governments were swimming in debt, the U.S. dollar was surging and commodity prices were falling.
+The conditions were perfect for a debt crisis in Latin America, and that is precisely what happened
+When the world economy went into recession in the 1970s and 80s, and oil prices skyrocketed, it created a breaking point for most countries in the region. Developing countries also found themselves in a desperate liquidity crunch. Petroleum exporting countries - flush with cash after the oil price increases of 1973-74 - invested their money with international banks, which 'recycled' a major portion of the capital as loans to Latin American governments. The sharp increase in oil prices caused many countries to search out more loans to cover the high prices, and even oil producing countries wanted to use the opportunity to develop further. These oil producers believed that the high prices would remain and would allow them to pay off their additional debt. As interest rates increased in the United States of America and in Europe in 1979, debt payments also increased, making it harder for borrowing countries to pay back their debts. Deterioration in the exchange rate with the US dollar meant that Latin American governments ended up owing tremendous quantities of their national currencies, as well as losing purchasing power. The contraction of world trade in 1981 caused the prices of primary resources (Latin America's largest export) to fall.
+When the world economy went into recession in the 1970s and 80s, and oil prices skyrocketed, it created a breaking point for most countries in the region.
+Developing countries also found themselves in a desperate liquidity crunch. Petroleum exporting countries - flush with cash after the oil price increases of 1973-74 - invested their money with international banks, which 'recycled' a major portion of the capital as loans to Latin American governments.
+The sharp increase in oil prices caused many countries to search out more loans to cover the high prices, and even oil producing countries wanted to use the opportunity to develop further.
+These oil producers believed that the high prices would remain and would allow them to pay off their additional debt.
+As interest rates increased in the United States of America and in Europe in 1979, debt payments also increased, making it harder for borrowing countries to pay back their debts.
+Deterioration in the exchange rate with the US dollar meant that Latin American governments ended up owing tremendous quantities of their national currencies, as well as losing purchasing power.
+The contraction of world trade in 1981 caused the prices of primary resources (Latin America's largest export) to fall.
+Sadly, the same mistakes have been repeated once again.
+In recent years South American nations have loaded up on vast amounts of debt, and now that commodity prices are tanking and the U.S. dollar is surging, all of that debt is creating tremendous headaches.
+For instance, just consider what is happening in Brazil
+Brazil's real plummeted to a 12-year low of 3.34 to the dollar, reflecting the country's heavy reliance on exports of iron ore and other raw materials to China. The devaluation tightens the noose on Brazilian companies saddled with $188bn in dollar debt taken out during the glory days of the commodity boom. The oil group Petrobras alone raised $52bn on the US bond markets.
+Brazil's real plummeted to a 12-year low of 3.34 to the dollar, reflecting the country's heavy reliance on exports of iron ore and other raw materials to China.
+The devaluation tightens the noose on Brazilian companies saddled with $188bn in dollar debt taken out during the glory days of the commodity boom. The oil group Petrobras alone raised $52bn on the US bond markets.
+Today, Brazil has the 7th largest economy on the entire planet.
+So a major financial crisis in Brazil would be extremely significant. And that is precisely what is starting to happen.
+It is being projected that Brazilian government debt will soon be reduced to junk status, Brazilian stocks have already entered "correction territory", and economic forecasters say that the Brazilian economy is heading into its worst recession in at least 25 years
+Brazil needs to brace itself for some very tough times. Brazilian banks are currently forecasting another economic contraction for the South American country in 2016, marking the first time that Brazil's economy has shrunk in two consecutive years since the Great Depression. Last Friday, economist Nelson Teixeira of Switzerland-based financial services holding company Credit Suisse released a revision of his already dour forecast for the Brazilian GDP, moving this year's numbers from -1.8 percent to -2.4 percent.
+Brazil needs to brace itself for some very tough times. Brazilian banks are currently forecasting another economic contraction for the South American country in 2016, marking the first time that Brazil's economy has shrunk in two consecutive years since the Great Depression.
+Last Friday, economist Nelson Teixeira of Switzerland-based financial services holding company Credit Suisse released a revision of his already dour forecast for the Brazilian GDP, moving this year's numbers from -1.8 percent to -2.4 percent.
+The IMF is also projecting that 2015 will be a year of recession for the second largest economy in South America (Argentina) and the third largest economy in South America (Venezuela).
+And actually Venezuela is in the deepest trouble of all.
+According to a recent Bloomberg article, it appears to be inevitable that there will be a debt default by the Venezuelan government in the very near future
+Harvard University Professor Ricardo Hausmann last year questioned Venezuela's decision to keep paying bondholders as the country sank deeper into crisis and suggested it stop honoring the debt. Now, he's saying Venezuela will have no choice but to default next year. Hausmann's comments come as a deepening collapse in oil prices and a shortage of dollars stoke concern Venezuela is fast running out of money to stay current on debt. The country's bonds plunged last year after Hausmann, who served as Venezuelan planning minister after Hugo Chavez's failed 1992 coup, raised the specter of default, saying he found "no moral grounds" for the government to pay debt at a time when Venezuelans were facing shortages of everything from basic medicine to toilet paper.
+Harvard University Professor Ricardo Hausmann last year questioned Venezuela's decision to keep paying bondholders as the country sank deeper into crisis and suggested it stop honoring the debt.
+Now, he's saying Venezuela will have no choice but to default next year.
+Hausmann's comments come as a deepening collapse in oil prices and a shortage of dollars stoke concern Venezuela is fast running out of money to stay current on debt.
+The country's bonds plunged last year after Hausmann, who served as Venezuelan planning minister after Hugo Chavez's failed 1992 coup, raised the specter of default, saying he found "no moral grounds" for the government to pay debt at a time when Venezuelans were facing shortages of everything from basic medicine to toilet paper.
+The inflation rate in Venezuela today is an astounding 68.5 percent, and the country is plunging into full-blown economic collapse.
+The following comes from Zero Hedge
+As we recently warned, the hyperinflationary collapse in Venezuela is reaching its terminal phase. With inflation soaring at least 65%, murder rates the 2nd highest in the world, and chronic food (and toilet paper shortages), the following disturbing clip shows what is rapidly becoming major social unrest in the Maduro's socialist paradise and perhaps more importantly, Venezuela shows us what the end game for every fiat money system looks like (and perhaps Janet and her colleagues should remember that).
+As we recently warned, the hyperinflationary collapse in Venezuela is reaching its terminal phase.
+With inflation soaring at least 65%, murder rates the 2nd highest in the world, and chronic food (and toilet paper shortages), the following disturbing clip shows what is rapidly becoming major social unrest in the Maduro's socialist paradise and perhaps more importantly, Venezuela shows us what the end game for every fiat money system looks like (and perhaps Janet and her colleagues should remember that).
+Here below is the video that was mentioned in the excerpt above.
+As you watch this, please keep in mind that the United States is on the exact same path that Venezuela has gone down
+Economic chaos is beginning to erupt all over the planet, and the depression that we are entering into will truly be global in scope. For the moment, many in the United States still believe that what is going on in the rest of the world will not affect us.
+But the truth is that we are also right on the verge of a major financial crisis, and it is going to be even worse than what we experienced back in 2008...
+Return to America Latina y La Elite Global
