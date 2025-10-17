@@ -1,0 +1,53 @@
+# En Grecia somos Testigos del Jaque Mate de las Élites
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalization_eu76.htm
+
+por Paul Craig Roberts 15 Julio 2015
+del Sitio Web KingWorldNews
+traducción de El Robot Pescador
+16 Julio 2015
+del Sitio Web ElRobotPescador
+Versión original en ingles
+El siguiente artículo, escrito por ex funcionario del Tesoro de Estados Unidos durante la época Reagan, el Dr. Paul Craig Roberts, resulta de lo más revelador sobre lo que estamos viendo en Grecia y los planes de las élites económicas globales. Resulta muy curioso el punto de vista que da sobre lo sucedido en Grecia y sobre los partidos de izquierdas en general en todo el mundo, teniendo en cuenta de que es un conservador norteamericano Paul Craig Roberts Los griegos han sido derrotados. El primer ministro ha traicionado a su pueblo. Lo ha visto todo el mundo: Syriza se ha rendido a los "agentes del 1%", las élites económicas. El mensaje que nos trae este colapso de Syriza, es que el sistema de bienestar social de todo Occidente será desmantelado.
+El siguiente artículo, escrito por ex funcionario del Tesoro de Estados Unidos durante la época Reagan, el Dr. Paul Craig Roberts, resulta de lo más revelador sobre lo que estamos viendo en Grecia y los planes de las élites económicas globales. Resulta muy curioso el punto de vista que da sobre lo sucedido en Grecia y sobre los partidos de izquierdas en general en todo el mundo, teniendo en cuenta de que es un conservador norteamericano
+Paul Craig Roberts
+Los griegos han sido derrotados. El primer ministro ha traicionado a su pueblo. Lo ha visto todo el mundo: Syriza se ha rendido a los "agentes del 1%", las élites económicas. El mensaje que nos trae este colapso de Syriza, es que el sistema de bienestar social de todo Occidente será desmantelado.
+Comienza el gran saqueo
+El primer ministro griego Alexis Tsipras, ha acordado que el 1% más rico saquee al pueblo griego y le arrebate todos los avances en bienestar social que los griegos alcanzaron en el siglo XX, después de la Segunda Guerra Mundial.
+Se acabaron las pensiones y la atención de salud para los ancianos. Por lo visto, el 1% "necesita" el dinero. Las islas griegas, los puertos, las empresas de suministro y gestión del agua, los aeropuertos, todo el rico patrimonio nacional, serán vendidos a ese 1% privilegiado. Y se lo venderán a precios de ganga, por supuesto, casi regalado.
+Eso sí, las facturas del agua para el pueblo, no serán precisamente gangas.
+Esta es la tercera ronda de la austeridad impuesta a Grecia, una austeridad que ha requerido de la complicidad de los propios gobiernos griegos.
+En realidad, los acuerdos de austeridad sirven para encubrir el saqueo del pueblo griego y robárselo, literalmente, todo. El FMI es un miembro de esa Troika que impone la austeridad, a pesar de que ahora los economistas del FMI hayan dicho que "las medidas de austeridad han demostrado ser un error".
+La economía griega ha sido definitivamente destruida por la austeridad. Por lo tanto, la deuda de Grecia ha aumentado como una carga y cada ronda de austeridad hace que la deuda se más imposible de pagar. Pero la evidencia de lo que ha sucedido, no importa. Cuando el 1% se dedica a saquear, la verdad no tiene ningún interés. Una de las cosas más graves que hemos visto es que la democracia griega ha demostrado ser totalmente impotente. El saqueo ha salido adelante, a pesar de que el pueblo votara en su contra hace una semana.
+Y lo que hemos podido comprobar tras este referéndum de Grecia, es que Alexis Tsipras es un primer ministro electo que no representa al pueblo griego, sino a los intereses del 1%.
+Tras lo sucedido, el suspiro de alivio de esa élite del 1%, se ha podido escuchar en todo el mundo.
+El último partido de izquierdas de Europa, (o lo que se hace pasar como izquierda), ha sido arrodillado, al igual que el Partido Laborista de Gran Bretaña, el Partido Socialista Francés, y todos los partidos similares de Europa. Sin una ideología firme que la pueda sostener, la izquierda europea ha muerto, al igual que ha sucedido en EE.UU. con el Partido Demócrata. Con la muerte de estos partidos políticos, el pueblo ya no tiene voz. Y un gobierno en el que el pueblo, las personas de la calle, no tienen voz, ya no es una democracia. Esto es algo que podemos ver claramente en Grecia.
+Una semana después de que el pueblo griego se expresara de manera decisiva en un referéndum, su gobierno los ignora y se humilla servilmente a ese 1%. El Partido Demócrata estadounidense murió con la deslocalización de los puestos de trabajo, que destruyó la base financiera del partido en los sindicatos obreros. La izquierda europea murió con la caída de la Unión Soviética.
+La Unión Soviética era un símbolo de que existía una alternativa socialista al capitalismo.
+El colapso soviético y el "fin de la historia" privó a la izquierda de un programa económico y dejó a la izquierda, sobretodo en Estados Unidos, solo centrada en los "problemas sociales", como son el aborto, el matrimonio homosexual, la igualdad de género y el racismo, lo que socavó el apoyo tradicional de izquierdas a la clase obrera.
+La lucha de clases desapareció del escenario, se diluyó en una guerra entre heterosexuales y homosexuales, negros y blancos, hombres y mujeres. Hoy en día, cuando los pueblos occidentales se enfrentan a un nuevo modelo de servidumbre y cuando el mundo se enfrenta al espectro de una posible guerra nuclear como consecuencia de la creencia de los neoconservadores norteamericanos de que EE.UU. es "el pueblo elegido por la historia" para ostentar la hegemonía mundial, la izquierda estadounidense, por poner un ejemplo, está ocupada en su batalla contra la bandera confederada.
+¿La Ultima Esperanza por Justicia
+El colapso del último partido de izquierdas de Europa, Syriza, significa que a menos que surjan partidos más decididos en Portugal, España o Italia, el testigo pasa ahora a manos de los partidos de derecha, como el Partido de la Independencia del Reino Unido de Nigel Farage, el Frente Nacional de Marine Le Pen en Francia, y otros partidos ultranacionalistas de derechas, enfrentados contra el modelo de la Unión Europea.
+Syriza no tenía ninguna posibilidad de éxito, pues no logró nacionalizar los bancos griegos en respuesta a la determinación de la UE de llevarlos a la fallida. Las élites griegas del 1% poseen los bancos y los medios de comunicación, y el ejército griego no muestra signos de estar del lado de su pueblo. Lo que vemos aquí, es la imposibilidad de un cambio pacífico, tal y como explican Karl Marx y Lenin. Siempre sucede lo mismo:
+Las revoluciones y reformas fundamentales se ven frustradas o revocadas por ese 1% que se deja con vida.
+Marx, frustrado por la derrota de las revoluciones de 1848 y llevado por su concepción materialista de la historia, llegó a esta misma conclusión, al igual que hicieron Lenin, Mao y Pol Pot:
+todos vieron claramente que dejar vivir a los miembros del viejo orden, significaba que tarde o temprano habría una contrarrevolución que llevaría al pueblo, de nuevo, a la servidumbre.
+En América Latina, todos los gobiernos reformistas son vulnerables, y corren un grave riesgo de ser derrocados por los intereses económicos de las élites norteamericanas o españolas.
+Estamos viendo este proceso en marcha, ahora mismo, en Venezuela y en Ecuador. Por esa razón, viendo la magnitud del problema, gente como Lenin y Mao, trataron de eliminar el viejo orden. El holocausto de clase que provocaron en sus países fue mucho veces mayor que el holocausto judío con los nazis.
+Hoy en día, los occidentales aún no entienden por qué Pol Pot vació las zonas urbanas de Camboya.
+Occidente vende a Pol Pot como un psicópata y un asesino de masas, como un caso psiquiátrico; pero Pol Pot, simplemente actuó bajo la premisa de que si permitía vivir a los representantes del viejo orden, su revolución sería derrocada.
+Para usar un concepto legal conservado "religiosamente" por el régimen de George W. Bush, Pol Pot se adelantó a la contrarrevolución, golpeándola con antelación y eliminando por completo a toda la clase social que podría estar inclinada a iniciar esa contrarrevolución.
+En su momento, el conservador Inglés Edmund Burke dijo que el camino del progreso era la reforma, no la revolución. Las élites inglesas, a pesar de que perdieron algunos privilegios con ello, aceptaron la reforma, reivindicando a Burke, para no enfrentarse a la revolución. Pero como podemos ver, hoy en día la izquierda está totalmente derrotada y las élites del 1%, ni tan solo tienen que aceptar ni la más mínima reforma. Para ellos, ya solo hay una alternativa: que el resto de nosotros los obedezcamos. Y por esa razón, podemos afirmar que somos testigos de su jaque mate final sobre el pueblo.
+Ahora somos Testigos del Terrible Jaque Mate
+Grecia sólo es el comienzo.
+Vemos a los griegos expulsados de su país por una economía colapsada, vemos desaparecer el sistema de bienestar social y una extraordinaria tasa de desempleo; pero toda esa pobreza, no se limitará a Grecia; se extenderá a otros países de la UE. Las mismas privatizaciones masivas, el mismo saqueo que estamos viendo en Grecia, se irá extendiendo poco a poco, paulatinamente al resto de países.
+***
+Realmente sorprende leer a un conservador norteamericano, un miembro del gobierno Reagan, hablando en estos términos sobre las izquierdas de todo el mundo y particularmente sobre las revoluciones socialistas. A alguna gente, con una ideología concreta, quizás le incomode el contenido de este artículo, pero quizás deberíamos ir al fondo de la cuestión y dejarnos de visiones políticas. Más allá de si uno es de izquierdas o derechas, el artículo de Paul Craig Roberts, realmente arroja una incómoda pregunta de fondo:
+¿Se puede luchar pacíficamente contra los abusos de las élites? ¿Lleva a alguna parte el "reformismo" por vías democráticas y pacíficas cuando se enfrenta a personas de este tipo? Si se permite que las élites y sus servidores sigan vivos, ¿hay alguna esperanza real de llegar a construir un mundo más justo y pacífico?
+¿Se puede luchar pacíficamente contra los abusos de las élites?
+¿Lleva a alguna parte el "reformismo" por vías democráticas y pacíficas cuando se enfrenta a personas de este tipo?
+Si se permite que las élites y sus servidores sigan vivos, ¿hay alguna esperanza real de llegar a construir un mundo más justo y pacífico?
+Estas son preguntas muy, muy incómodas y muy difíciles de responder, que hoy en día muy poca gente quiere hacerse
+Regresar a Sublevación Global
+Regresar a Globalización y La Unión Europea
+Regresar a La Elite Global - La Clase Capitalista Transnacional

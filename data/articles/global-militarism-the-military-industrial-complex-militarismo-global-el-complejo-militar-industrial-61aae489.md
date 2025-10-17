@@ -1,0 +1,818 @@
+# Global Militarism - The Military-Industrial Complex / Militarismo Global 
+- El Complejo Militar-Industrial
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalmilitarism.htm
+
+Source
+Contents
+- 2010 - U.S. To Wage War Throughout The World
+- A 30 Años de la Invasión de EE.UU., Panamá busca Alejarse de la Hegemonía de Washington
+- A Bold Proposal to Fix U.S. Foreign Policy
+Español
+- Aceleración de la Carrera Nuclear
+- All Wars are Bankers' Wars!
+- All Wars are Well Planned Banker Wars... Including WWIII
+- Alta Tensión Rusia-USA - Rusia Responde con Fuerza a las Amenazas de EE.UU.
+- America has Been at War 93% of the Time - 222 Out of 239 Years - Since 1776
+- America is on a "Hot War Footing" - House Legislation Paves the Way for War with Russia?
+- American Militarism is Destroying the Future of Humanity
+- America's Conquest of Africa - The Roles of France and Israel
+- America's "Humanitarian War" Against the World
+- America's Permanent-War Complex
+- Arab Spring - Revolutions, Lies, and Intervention
+- Así es Como Luce la Tercera Guerra Mundial
+- Avaaz - The Online Pro-War Propagandist and Color Revolution NGO
+- Bases of Empire - The Global Spread of US Military and Intelligence Bases
+- Berlin Alarmed by Aggressive NATO Stance on Ukraine - Breedlove's Bellicosity
+- Beware of Global Strategies of Tension
+- Big Money Behind War - The Military-Industrial Complex
+- "Blood Money" - Meet the Top 20 Companies Profiting from Endless War
+- Brookings Announces Next Move in Syria - War
+- By Design - French Mali Invasion Spills into Algeria
+- Can The U.S. Triumph in The Drug-Addicted War in Afghanistan? - Opium, The CIA and The Karzai...
+- Cause for Concern - Civilians Killed in Coalition Strikes
+- China Encerrada en una Guerra Híbrida con Estados Unidos
+- China Locked in Hybrid War with U.S.
+- Colapso del Imperio - La tecnología de Misiles Rusa deja Obsoleta a la Marina Estadounidense de un Billón...
+- Colombia - ¡Basta Ya! - Memorias de Guerra y Dignidad...
+- Colombia en La Geopolítica Imperialista - Las Bases Militares Norteamericanas en América Latina
+- Come Sapere se l'America è il Nostro Nemico
+- Come Trump si è ribellato ai Generali
+- Cómo Hollywood y el Complejo Militar Industrial Colaboran
+- Cómo Salir de la Guerra contra Siria
+- Cómo Trump se rebeló contra los Generales
+- Concealing The Risk of An All Out Nuclear War - Real Versus Fake Crises
+- Confronting Both China and Russia - U.S. Risks Military Clash With China In Yellow Sea
+- Costa Rica - The Lowest Form of Military Aggression
+- Crossing the Rubicon - The Inevitable Emergence of Military Robots
+- Dangerous Crossroads - "This is Not a New Cold War... Nobody Will Win World War III" - M.Chossuodovsky
+- De Militar a Militar - Rebelión de los Generales del Estado Mayor Conjunto de EE.UU.
+- Desde 1945, Estados Unidos ha Matado entre 20 y 30 Millones de Personas
+- Did 9/11 Justify The War in Afghanistan? - Using The McChrystal Moment to Raise a Forbidden Question
+- Did the Bush-Obama Wars Cost Hillary Clinton the White House? - Battlefield Casualties and Ballot Box...
+- Did Turkey Just Declare War on Syria?
+- Earth - 248 Armed Conflicts after WW2 - U.S. Started 201 (81%), Killing 30 Million
+- Ecco come Appare la Terza Guerra Mondiale
+- EE.UU., Canadá y México Militarizan el NAFTA - Investigaciones del Proyecto Censurado 2009
+- EE.UU. Utilizó el Cáncer Como Arma de Guerra - La Guerra Radiactiva en Irak y en Los Balcanes
+- EE.UU. y Teherán Se Posicionan Para La Guerra - Plan de Ataque
+- El año 2024 - Gaza, Ucrania y Eurasia en la Crisis del Declive Occidental
+- El Ascenso de las Arpías de Guerra - Las Mujeres que Destruyen Nuestro Mundo
+- El Complejo Militar-Financiero que se Alimenta de la Sangre de las Guerras y Controla a los Estados Unidos
+- El Desenlace - Sepa Porqué Usted Está Parado Sobre La Tercera Guerra Mundial
+- El Enigma de Putin
+- El Gran Rearme Planetario
+- El Kremlin aclara Cambios a la Doctrina Nuclear Rusa - Señal a Occidente
+- El Mayor Contaminador del Planeta - El Departamento de Defensa de EE.UU.
+- El Medio Oriente se libera de Occidente
+- El Negocio de la Guerra es la Causa de la Guerra
+- El Ocaso de la Guerra
+- El Origen de Las Guerras
+- El Plan B' de Los Que Solían Ser Los Poderes Fácticos
+- El "Terrorismo" Como Herramienta de La Nueva Conquista Militar - Frentes de Conflicto - Agenda Secreta...
+- El Trabajo Sucio siempre consiste en Provocar y Escalar la Guerra
+- Empire Destroying Wars are Coming to America Under Trump
+- Endless Wars Have Cost Americans $1.6 Trillion - Report Finds
+- ¿Es Real la Posibilidad de una Guerra Mundial?
+- "Estados Fallidos" - Arma de Encubrimiento de los Estados Unidos
+- Estados Unidos Planea Apoderarse del Petróleo de Venezuela
+- Estados Unidos Prepara una Guerra entre Latinoamericanos
+- Europe's Five "Undeclared Nuclear Weapons States" - Are Turkey, Germany, Belgium, The Netherlands...
+- EUROPOL
+- Expanding The Afghan War - The West's Insatiable Appetite for Global Military Domination
+- Explosiones de Tianjin - Un Ejemplo del Nuevo Tipo de Guerra
+- Fascism and War - Elite Tools to Crush and Kill Dissent
+- Former U.S. Policymakers Promote War on Iran
+- Former White House Official Says U.S. Already at War with Russia and China
+- For Money, For Oil? - Why Wars Really Happen
+- Fortaleza Américas
+- Fortress Americas
+- Geopolítica Tras La Falsa Guerra de Estados Unidos en Afganistán
+Italiano
+- Gli Stati Uniti come "Distruttore di Nazioni"
+- Gli Stati Uniti sono la Maggiore Causa della Instabilità Globale - Ma Pretendono di essere la Soluzione
+- Global Deception - "The War on Terror" is a Campaign for Permanent War and Terror
+- Globalización y Militarización - La Causa Raíz de la Guerra a Nivel Mundial contra la Humanidad
+- Global Justice or World Domination
+- Global War on Terror, Military Interventions and Destabilizing Nations
+- Google's Eric Schmidt and the Artificial Intelligence Military-Industrial Complex
+- Government and Media are doing Exact Same Thing they Did to Start Iraq War - And Americans are Buying It
+- Guerra ai Tempi Nostri? - Abbiamo bisogno degli 'Uomini in Camice Bianco'...
+- Guerra de Cuarta Generación
+- Guerra, Drogas y Política - Elementos del Mundo Bipolar - Conferencia de Noam Chomsky en México
+- Guerra y Mentira - El Control Político y Militar De Nuestras Sociedades
+- ¿Ha Financiado Alemania las Armas Nucleares de Israel?
+- Heading for War with Russia?
+- Here We Go - NATO Plans to 'Defend' Turkey
+- Hidden Intelligence Operation Behind The Wikileaks Release of "Secret" Documents? - The Real Story of...
+- Hidden U.S.-Israeli Military Agenda - "Break Syria into Pieces"
+- Hillary IS the Candidate of the War Machine
+- Hi-Tech/Top Secret Military Weapons - Main File
+- House Passes HR 4133 Binding The U.S. to Israel and Their War Agenda
+- How Hollywood and the Military Industrial Complex Collaborate
+- How the Media Manipulates the World Into War
+- How the Military will fight using 5G in Electromagnetic Spectrum
+- How the U.S. Government and U.S. Military Became Murder, Inc.
+- How to Know if America is Your Enemy
+- How Trump Rebelled Against the Generals
+- "Hubris" - New Documentary Reexamines The Iraq War "Hoax"
+- Human Costs of War and Violence - Censored News Cluster From Censored 2012
+- Independent American and Russian Women Call for Peace
+- Interventionism and The Elites - The Ideological Origins of The Military-Industrial-Media Complex
+- Is the American Empire on the Verge of Collapse? - Beware the Dogs of War...
+- Italia - 80 Millones de Euros Diarios de Gasto Militar
+- Italia - Bajo la Bandera Tricolor que Ondea en Camp Darby
+- "It's Going to Take Years" - US Air Force Calls for Ground Troops to "Occupy and Govern" Iraq and Syria
+- It Was a NATO Mortar that Killed 5 Turkish Civilians Last Week - REPORT
+- Joint Vision 2020 - Transforming The Joint Force for The 21st Century
+- La Alianza Del Siglo XXI Para La Dominación Global - Neocolonialismo Del Siglo XXI - Unión Europea...
+- La 'Dottrina di Guerra Nucleare' Russa - Un Punto di Ritorno alla Pace?
+- La Era de La Señora Muerte - Belicismo en Auge en El Mundo
+- La Fuerza Bruta de Las Potencias Neocoloniales del Siglo XXI - Israel, el Miembro Número Veintinueve de...
+- La Guerra contra Rusia y China ya ha Empezado - Declara Ex-funcionaria de la Casa Blanca
+- La Guerra contro Russia e Cina è Già Iniziata - Così Dichiara ex-Funzionaria della Casa Bianca
+- La Guerra del Futuro - Las "Bombas Étnicas"
+- La Guerra era la Parte Facile - Aspettate solo di arrivare alla Politica
+- La Guerra está Materializando la Israelización del Mundo - Dividir, Conquistar, Colonizar
+- La Guerra fue la Parte Fácil - Sólo esperen hasta que lleguemos a la Política
+- La Guerra que Chile Necesita
+- La Ilusión Del Escudo Antimisiles
+- Las Armas Nucleares y La Supervivencia del Homo Sapiens
+- Las Guerras sirven para Proteger a los Militares de sí Mismos...
+- Las Raíces de la Adicción de Washington a la Fuerza Militar
+- La Tragedia de Siria y la Nueva Omniguerra
+- La Ultima "Maniobra Agresiva" de Rusia es Una Proposición de Paz
+- Libya, Syria, Ukraine - Same Playbook, Same Puppet Masters
+- Living with Russia - The Alternative is what, Exactly...?
+- Locura Total - Crece la Sombra de una Posible Guerra Nuclear
+- Los Cinco Frentes Globales de Conflictos abiertos por EE.UU. - Una Sinopsis de 2023
+- Los EE.UU. Planearon Borrar del Mapa a la USSR con un Masivo Ataque Nuclear - Orden Post Segunda...
+- Los Juicios de Henry Kissinger
+- Los Oscuros Contratos de Elon Musk con la Inteligencia Estadounidense
+- Making The World Safe for Hypocrisy
+- Militarized NAFTA - Security and Prosperity Partnership
+- Military Omnipresence - A Unifying Concept for America's 21st-Century Fighting Edge
+- Military to Military - U.S. Intelligence Sharing in the Syrian War
+- Missing in Action - What Happened to War and the Imperial Drive to Organize the Planet?
+- More American Troops to Afghanistan to Keep the Chinese Out? - Lithium and the Battle for Afghanistan Mineral
+- Musk's SpaceX forges Tighter Links with U.S. Spy and Military Agencies
+- NATO - Powerful and Necessary, or Costly and Obsolete? - Main File
+- "No, Putin Did Not start the War in Ukraine" - Towards a U.S. War against Russia?
+- Nubes de Tormenta Sobre Irán
+- Nuclear Weapons and The Survival of The Homo Sapiens
+- Numerosas Noticias Alarmantes que Silencian los Grandes Medios de Comunicación
+- Obama is Bullish on War - No Matter How You Spin It
+- Obama's Legacy - Human Cost of Eight Years of War
+- Obama's War - Why is The Largest Military Machine on The Planet Unable to Defeat The Resistance in...
+- Oliver Stone Exposes U.S. Warmongers at 'Writers Guild Awards'
+- Only 10 Countries in the Entire World Are Not Currently at War
+- On the Military-Industrial Complex - Real Time with Bill Maher - Episode 161
+- Open Skies Treaty Vital for Confidence Building - Russian Tu-154 Flies over Washington
+- "Operation Justified Vengeance" - Israeli Strike on Freedom Flotilla to Gaza is Part of A Broader Military...
+- Operation Orchard
+- OTAN - ¿Poderosa y Necesaria, o Costosa y Obsoleta? - Main File
+- Our Global Neighborhood - Report of The Commission on Global Governance 1995
+- Our Global Neighborhood - Report of the Commission on Global Governance - A Summary Analysis
+- Pearl Harbor False Flag 75th Anniversary - Time to Admit the Deception
+- Permanent Aggression - War on The Horizon in Latin America
+- Plan 'B' of The Powers That Were
+- Porqué la Tercera Guerra Mundial se Vislumbra en el Horizonte
+- Porqué los Banqueros Odian La Paz
+- Porqué Nos Quieren Llevar a una Tercera Guerra Mundial...
+- Preparando La III Guerra Mundial - Objetivo Irán
+- Preparing for World War III - Targeting Iran
+- Preparing to Attack Iran With Nuclear Weapons - "No Option Can Be Taken Off The Table"
+- Prevent World War III - Civil Resistance Sole Way to Stop US Government Aggression
+- Prompt Global Strike - America's Imperial Design - World Military Superiority Without Nuclear Weapons
+- Putin - La Tríada Nuclear Rusa proporciona una Disuasión Eficaz y un Equilibrio de Fuerzas
+- Putin's Conundrum
+- Rebuilding America's Defenses - Strategy, Forces and Resources For a New Century
+- Recrudece la Guerra Encubierta entre China, EE.UU. y sus Aliados
+- Recuento Oficial de las Invasiones Estadounidenses
+- Rusia quiere obligar Estados Unidos a Respetar la 'Carta de la ONU'
+- Rusia y China invierten en Infraestructuras - Estados Unidos en cambio gasta en Elementos Militares
+- Russia and China Invest in Infrastructure - U.S. instead Spends on Military
+- ¿Se Está Planificando Ya La III Guerra Mundial?
+- Señales de que Rusia se está Preparando para Ganar una Guerra Atómica con EE.UU.
+- Ser y Actuar de un ex-Soldado
+- Signs that Russia is Preparing to Fight (and Win) a Nuclear War with The United States
+- Silicon Valley y la Carrera hacia la Guerra Robótica - ¿Reyes Filósofos o Militaristas de la Nueva Era?
+- Some Signs that Global War is Rapidly Approaching
+- Sudamérica Bajo Amenaza - EE.UU. Instalará una Nueva Base Militar en Perú
+- Tambores de Guerra en Ucrania
+- Tambores de Guerra - Europa habla de Guerra y Prepara a su Población
+- The Actual Iran Case - The Beginning of World War III? - Main File
+- The Actual Syrian Case - Main File
+- The Age of The Reaper - War-Mongering on An International Scale
+- The Arms Industry - Creating Enemies to Maximize Profits
+- The Atrocity Lessons - What The U.S. Military Learned From Vietnam
+- The Blueprint for WWIII
+- The Business of War is the Cause of War
+- The Coming War on China
+- The Coming War on China - A Review of John Pilger's Latest Documentary
+- The Cost of Iraq, Afghanistan, and Other Global War on Terror Operations Since 9/11
+- The Deep State's Stealthy, Subversive, Silent Coup to ensure 'Nothing Changes'
+- The Disturbing Expansion of the Military-Industrial Complex
+- The Drums of War are Beating in Syria - Killing Civilians to Protect Civilians
+- The Economic Cost of The Military Industrial Complex
+- The Enemy-Industrial Complex - How to Turn a World Lacking in Enemies into The Most Threatening Place...
+- The First Earth Battalion - Dare to Think the Unthinkable, Ideas and Ideals for Soldiers Everywhere
+- The Impending Dangers of Nuclear War - America's W88 Thermonuclear Warhead is 30 Times a...
+- The Kremlin's "America-Gate"? - "An Eye for an Eye"
+- The Lie of The Century - Or How to Start a War...
+- The Making of World Wars
+- The March to War - Iran and The Strategic Encirclement of Syria and Lebanon
+- The Middle East and Then The World - Globalist Blitzkrieg Signals Largest Geopolitical Reordering Since...
+- The Military-Industrial Complex Is Ruining The Economy
+- The Moral Case Against Celebrating 'World Peace'
+- The Opium Wars in Afghanistan - Can Anyone Pacify The World's Number One Narco-State?
+- The Path to Persia and the Ongoing Plot to Destroy Iran
+- The Planning of War Behind Closed Doors - Brussels, London, Istanbul - A Week of Western War Councils
+- The Purpose of War According to George Orwell in "1984"
+- The Purpose of War - A Major Source of Our Economic Crisis
+- The Real Reason America Dropped the Atomic Bomb - It Was Not to End the War
+- The Rise of Global Governance
+- The Road to Armageddon - The Insane Drive for American Hegemony Threatens Life on Earth
+- The Scorched Earth
+- The Secret Privilege by Which the Military Intelligence Complex Retains Control
+- The Source of Wars - "Today, Everything Hangs By a Thread".... An Incident Could Set in Motion an All Out...
+- The Subterfuge of Syrian Chemical Weapons
+- The Syrian 'War Games' Military Theater of Operations in Two Charts
+- The Top 9 Real Reasons to Go to War in Syria
+- The Trials of Henry Kissinger
+- The Ugliness of War and Technocracy - A look at Weapons of War in the Digital Age...
+- The Ukraine Crisis - Sponsored by U.S. Hegemony and War Profiteers
+- The Uninvited Guest - Chinese Sub Pops Up in Middle of U.S. Navy Exercise, Leaving Military Chiefs...
+- The United States as "Destroyer of Nations"
+- The United States shall Set Up a New Military Base in Peru
+- The U.S. Empire does Not Seek Peace - Its Existence depends on Endless War
+- The U.S. is the Biggest Cause of Global Instability - But it Pretends to be the Solution
+- The U.S. Military emits more Greenhouse Gases than Sweden and Denmark
+- The U.S. Military is Training Third World Coup Leaders "Again"...
+- The U.S. Military Moves Into Costa Rica - Militarization of Central America and The Caribbean
+- The U.S. Policy Coup Explained by 4-Star General Wesley Clark
+- "The War is Worth Waging" - Afghanistan's Vast Reserves of Minerals and Natural Gas
+- The 'War on Terror' Is A Fraud
+- The War that Never Ends
+- The War was the Easy Bit - Just wait until we get to the Politics
+- The Western Assault on Iran Has Begun
+- The Worldwide Network of US Military Bases - The Global Deployment of US Military Personnel
+- The Yemen Hidden Agenda - Behind The Al-Qaeda Scenarios, A Strategic Oil Transit Chokepoint
+- The Zero Evidence World of U.S. Criminal Misleaders
+- This is what World War III Looks Like
+- Todas Las Guerras Son Guerras de Los Banqueros
+- To Fight for Freedom, or to Fight for Empire - That is the Question
+- Top Economic Advisers Forecast War and Unrest
+- Total Cost of Wars Since 2001
+- Totale Pazzia - Cresce l'Ombra di una Possibile Guerra Nucleare
+- Tropas de EE.UU. en la Amazonía - Se Cumple el 'Sueño Americano'
+- Trump Taking U.S. to War in Syria to Avert Economic Disaster
+- Tu Guía para la 'Guerra de Quinta Generación'
+- Ucrania - Mercado Negro de Armas
+- Una Idea Loca y Peligrosa Salta a la Luz Pública
+- Un Articulo Académico Muestra Como Piensan Muchos Militares de EE.UU.
+- Uncovering The Military's Secret Military
+- UN "Green Light" for a Pre-emptive US-Israel Attack on Iran? Security Council Resolution Transforms Iran...
+- U.S. and Colombia Plan to Attack Venezuela
+- U.S. Approved Israeli Bombing of Syria and May Join The War at Any Moment
+- U.S.-China Conflict - From War of Words to Talk of War
+- U.S. Department of Defense is The Worst Polluter on The Planet
+- U.S. Expands Military Reach in Latin America
+- U.S. has Spent nearly $6 Trillions on War since 9/11 - Study
+- U.S. Military "Commemorates" Its Iraq Massacre
+- U.S. Military is a Bigger Polluter than as many as 140 Countries - Shrinking this 'War Machine' is a Must
+- U.S. Military Wants More Drones in Latin America
+- U.S. Naval False Flags - A Brief History
+- U.S. Nuclear Weapons in Europe - Part 1 - Part 2
+- U.S. Southern Command in Colombia along the Border - Venezuela Military Moves, U.S. Pulls Out of INF...
+- U.S. to Begin Invasion of Syria
+- U.S. Unlawful Wars is 'Emperor's New Clothes' Tragic-Comedy - Defining 'Clothes,' 'Wear,' 'Self-defense'
+- ¿Va Estados Unidos a Ir a La Guerra con Siria por Causa de un Gasoducto?
+- "Vamos Camino de la Tercera Guerra Mundial" - Expertos Financieros de Todo el Mundo Advierten
+- Vivere con la Russia - Qual è esattamente l'Alternativa...?
+- War in Our Time? - We need the 'Men in White Coats'...
+- War in The Caucasus is As Much the Product of An American Imperial Drive as Local Conflicts - Russian...
+- War is A Crime
+- War is A Racket
+- War is Peace, Freedom is Slavery and Fighting Back is "Aggression"
+- "War is Peace, it Makes Us Rich and Safe" or So Says the Mainstream Media
+- War on All Fronts
+- 'War on Terror' - Main File
+- War Pigs - The Fall of A Global Empire
+- War Profiteering - A Cancer Upon America
+- War with China - Thinking Through the Unthinkable
+- War with Iran was Planned Decades Ago
+- Was Trump Missile Attack Part of a Secret Plan to End Syria Conflict and Prevent War with Iran?
+- Watson Institute - Costs of War through FY2019
+- Watson Institute - Human Cost of the Post-9/11 Wars
+- Weaponized Artificial Intelligence - The Future of Algorithmic Forever Wars
+- Weaponize It! - The Military-Industrial Complex' Latest Insanities
+- What The WikiLeaks Documents Tells Us About Life in Afghanistan
+- When The U.S. Used Cancer as a Weapon - Radioactive Warfare in Iraq and The Balkans
+- Who are the Beneficiaries of American Wars? - America's Perpetual War Six Questions
+- Whose War? - A Neoconservative Clique Seeks to Ensnare Our Country In A Series of Wars That Are Not...
+- Why America Needs War
+- Why Bankers Hate Peace
+- Why do We elect Politicians and Governments that Wage War on Sovereign States?
+- Why the Globalists Engineered the Ukraine War
+- Why We're Drifting Towards World War 3
+- WikiLeaks Honduras - State Department Busted on Support of Coup
+- Wikileaks Releases Massive Set of Afghan War Files
+- Will Russian 'Nuclear War Doctrine' be a Turning Point for Peace?
+- "Wipe the Soviet Union Off the Map" - U.S. Nuclear Attack against USSR Planned During World War II
+- "Wiping Countries Off The Map" - Who's Failing The "Failed States"
+- Would Our Government Really Start a War to Try to Stimulate the Economy?
+- Yemen - The Covert Apparatus of The American Empire
+- You Have Been Fooled into Believing WWIII is Real - Here is the Proof
+Additional Information
+- 4 Scenarios for The Coming Collapse of The American Empire
+- 2022 - El Año que se Avecina
+- A Clean Break - A New Strategy for Securing The Realm
+- Afghanistan Massacre by U.S. Sergeant Reveals Epidemic of Psychiatric Drugging of Soldiers
+- Air Force 2025 Final Report
+- Air Force Eyes Subway for Nuclear Missiles - Mobile Doomsday Trains
+- Air Force Sidelines 17 Nuclear Missile Officers - Commander Cites 'Rot' in System
+- Air Mobility Command Global En Route Strategy - White Paper
+- Algunas Revelaciones de Los Documentos de WikiLeaks
+- "AmazonLog" - A Military Drill with Vast Amazonian Aspirations
+- America - A Sunset Empire
+- American Naifs Bringing Ruin to Other Lands
+- America's Chemical Weapons - Hypocrisy, Conspiracy and a Forgotten History
+- America's Drug-Corrupted War - Obama and Afghanistan
+- America's Military Expansion Funded by Foreign Central Banks
+- Amerika - Behind The Mask
+- Amerika - Detrás de la Máscara
+- An Imperial Strategy For a New World Order - The Origins of World War III
+- Another Nobel 'Peace' Prize - Another Farce?
+- A Precursor to War? - As Washington Renews Military Threats Against Iran, Cyber Attacks Escalate
+- Army Readies Its Mammoth Spy Blimp for First Flight
+- Así se Manipula a una Población - Las Oscuras Verdades que Oculta la Película "El Francotirador"
+- Atomic Power and The Use of Depleted Uranium (DU) Weapons - Main File
+- Battlefield Illusion - DARPA Working Towards Better "Human-Sensory Battlefield Deception"
+- Blood, Treasure and Soul - The Exorbitant Price of American Empire
+- Cheap Wars
+- China Calls for New Security Pact with Russia and Iran
+- China Fired Missile Seen In Southern California
+- Cinco Años después del Covid - El Papel de los Militares
+- Civil Conflicts Are Associated With The Global Climate
+- Climate Change a 'Catalyst for Conflict'
+- Climate Cycles Linked to Civil War - Analysis Shows
+- Congressional Probe Reveals Cover-Up of "Auschwitz-Like" Conditions at U.S.-Funded Afghan Hospital
+- Consciousness is the Technology that Will Stop the War Machine
+- Così si Manipola una Popolazione - Le Oscure Verità che Nasconde il Film "American Sniper"
+- Covid Response at Five Years - A Quiet Coup d'état
+- Covid Response at Five Years - The Role of the Military
+- ¿Cuáles son los Países más Nacionalistas?
+- DARPA - Defense Advanced Research Projects Agency - Main File
+- Death and Taxes - A Visual Look at Where Your Tax Dollars Go
+- De los Misiles a los Metadatos - Por qué esta Guerra no se trata de Irán o de Israel - Realidad Coherente
+- Dinamarca Limpiará el Desastre Ecológico Estadounidense en Groenlandia
+- Disney, Militarization and The National Security State After 9/11 - Book Excerpt
+- Doctrine for Joint Nuclear Operations
+- Documents show Navy got 'UFO' Patent Granted by Warning of Similar Chinese Tech Advances
+- Don't Think the U.S. Military is Concerned with The Climate? Think Again...
+- EE.UU. desarrolla un Arma Biológica de Ingeniería Genética 'Universal'
+- EE.UU. No Cree que el Conflicto de Ucrania acabe en una Guerra Nuclear
+- EE.UU. trabaja en un Arma Biológica 'Universal' Modificada Genéticamente - Investigación Parlamentaria Rusa
+- Eisenhower's Farewell Address to The Nation - 'The Military-Industrial Complex'
+- El Ciberespacio - Nuevo Escenario de Confrontaciones
+- El Estado Mayor Conjunto Denuncia la Influencia de los Halcones Liberales sobre la Casa Blanca
+- El Vídeo Capaz de Socavar el Apoyo Público a La Guerra en Afganistán
+- Empire and Its Consequences
+- EMP Strike on U.S. This Year - Insider Warns Family
+- EndGame - JuegoFinal - Main File
+- "En una Guerra Nuclear el 'Daño Colateral' sería la Vida de toda la Humanidad" - Mensaje de Fidel contra la...
+- ¿Está Siendo Saboteada la Confirmación de Kavanaugh para retrasar los Juicios Militares del Estado Profundo?
+- Estonian Army Ruled by 'Knights Templar'
+- "Every Single Terrorist Attack in U.S. was a False Flag Attack" - Says U.S. Intelligence Officer
+- Everything Will Remain The Same Until We End The Wars
+- Expect Water Wars Soon - US Intelligence Report
+- Experts Warn U.S. Soldiers may Be Replaced with Robot Warriors
+- Fase 2 del Gran Reset: Guerra
+- FEMA - Federal Emergency Management Agency - Main File
+- Feria Militar Flotante del "Sistema-Italia"
+- Five Countries The U.S. Is Royally Screwing Over
+- Five Reasons That Corporate Media Coverage is Pro-War
+- From Missiles to Metadata - Why this War isn't about Iran or Israel - Coherent Reality
+- Gene Drive Technology - What Species should we make Extinct Today? - Why are B. Gates and Military involved?
+- Gli USA non credono che la Guerra di Ucraina finisca in una Guerra Nucleare
+- Globalists Pull Plug on KONY 2012 with Spectacular Crash and Burn
+- Globe Over Nation - World's Future
+- Gran Fracaso de la ONU en Protección a Civiles en los Conflictos
+- ¿Ha Pedido el Gobierno Checo a sus Ciudadanos que "Se Preparen para lo Peor"?
+- Hillary's Bloody Legacy - Militarizing The State Department
+- How Terrorist Groups End - Lessons for Countering al Qa'ida
+- How to Understand Globalization
+- "In a Nuclear War the 'Collateral Damage' would be the Life of All Humanity" - Fidel's Message against Nuclear...
+- Information Operation Roadmap
+- In The Religion of 100% Americanism, Ignorance is Strength
+- Is Kavanaugh Confirmation being Sabotaged to delay Military Trials of Deep State?
+- Israel's Pillars of Samson - Not Quite Armageddon, But
+- Israel to Use Iranian and Pakistani Dupes in Dirty Nuke Ploy
+- Israel Usará a Los Iraníes y Pakistaníes Como Chivo Expiatorio en Un Sucio Complot Nuclear
+- "Is this What We Destroy Lives for?" - Iraq, Afghanistan Veterans' Guilt, Unanswered Questions Spike Suicide...
+- 'It All Looks as if the World is Preparing for War' - Mikhail Gorbachev
+- KONY 2012 Part 2 - License for Imperial Conquest
+- KONY 2012 Psy-Op Collapsing
+- La Alarmante Amenaza "Nuclear" del Presentador de Noticias favorito del Gobierno de Vladimir Putin
+- La Camarilla Criminal Está Creando Incidentes en Todas Partes en un Intento de Empezar la Ley Marcial...
+- La Estrategia de 'Seguridad Nacional' de Joe Biden
+- La Guerra Es La Paz - Teoría y Práctica del Colectivismo Oligarquico
+- La Historia de 'Usar Niñas para Promover Agendas Políticas'
+- La Mentira - La Principal Arma de Guerra en Ucrania
+- La Misión Anglosajona - La Tercera Guerra Mundial y El Legado del Nuevo Mundo
+- La ONU Inicia Conversaciones para Prohibir las Armas Nucleares... ¿Y lo Llaman Populismo?
+- La Paz Convenida Mutuamente - Acabando con la Doctrina de la Guerra Perpetua
+- Laura Eisenhower - Unity Consciousness Will Collapse Military-Industrial Complex
+- Los Hombres Que Salvaron al Mundo
+- Losing Humanity - The Case Against Killer Robots
+- Manhunting - Counter-Network Organization for Irregular Warfare
+- Many Insiders believe Military Tribunals for 'Deep State' will Happen any time Now
+- Marine Animals are going to Be Genetically Modified and Work for the U.S. Military
+- Mass Depopulation, Genocide, WW-3?
+- Mathematical Model Explains How Complex Societies Emerge, Collapse
+- Merkel insta a Europa a Prepararse para un Mundo 'Sin el Liderazgo de EE.UU.'
+- Microsoft President Threatens that Orwell's '1984' could Happen in 2024
+- Military Intelligence has Weaponized Democracy Worldwide
+- Missing Nukes From The U.S. Air Force - Treason of The Highest Order
+- Molti Insider Ritengono che potrebbero Costituirsi dei Tribunali Militari contro il Deep State in Qualsiasi Momento
+- More War Lies
+- Murder Is Not An Anomaly in War
+- Mutually Agreed Peace - Ending the Doctrine of Perpetual War
+- Mysterious Missile Lights Up The Sky Over The Pacific
+- New York Times Says "Lack of Major Wars may be Hurting Economic Growth"
+- Nobel de La Guerra Para Los Señores del "Nobel de La Paz"
+- "Nobel Peace Prize Winner Barack Obama, is Preparing for War in South America" - Interview E. Golinger
+- Nobody is 'Stealing' your Jobs - You Spend Too Much on Wars - Alibaba founder tells U.S.
+- North Korean Attack Linked to Dismantling of North Korean Spy Network in Japan
+- Notas Sobre el NAFTA - Amos de la Humanidad
+- Nuclear Posture Review Report - 2010
+- Nuclear War? - No, We Were Born for Something Better
+- Obama - A "New" Sociopolitical Era? - Main File
+- Obama Continúa Ejerciendo Una Política Neoconservadora - Proyecto Censurado 2010
+- Obama Threatens Iran With Nuclear War
+- Opciones Rusas contra un Ataque Estadounidense en Siria
+- Operación Popeye - Cómo EE.UU. utilizó la lluvia como Arma en la Guerra en Vietnam
+- Operation Popeye - The Secret U.S. Weather Modification Program during the Vietnam War
+- Opium Production in Afghanistan - Strong and Corrupt as Ever
+- Para Evitar Una Guerra Nuclear Con Irán - Discurso de Fidel Castro en Parlamento Cubano - Agosto 2010
+- Perfil Estratégico de Chávez - Ni Tan Revolucionario ni Tan Demonio - La Suma De Los Factores
+- Phase 2 of The Great Reset - War
+- ¿Podría el Grupo de los BRICS formalizar una Alianza Militar?
+- Ponerology - The Science of Evil - Main File
+- Porqué el Capitalismo Hace la Guerra y No el Amor - El Factor Primario
+- Primeras Interpretaciones al Ataque de EE.UU. a Siria... - ¿Todo es Puro Teatro?
+- Primeros Observadores de EE.UU. llegan a Argentina para Instalar Bases Militares
+- Puppets in Revolt - Afghanistan, Iraq, Pakistan and The United States
+- Reportero Renuncia a la NBC por el Apoyo de la Cadena a la Guerra sin Fin
+- Report on War on Terror Amid Crackdown on Whistleblowers - James Risen Prepared to "Pay Any Price"...
+- Return of Cheney's One Percent Doctrine
+- Rusia provee la Tecnología de Espionaje necesaria a EE.UU... ¡para que Espíe a la propia Rusia!
+- Sepa Porqué Usted Está Parado Sobre La Tercera Guerra Mundial - El Desenlace
+- Significado de la Guerra en el Siglo XXI
+- Six North Korean Atomic Bombs Located in Japan - Five Have Been Seized by The Police
+- Sixth Generation Warfare - Manipulating Space and Time
+- Sociocultural Behavior Analysis and Modeling Technologies for a Phase 0 World
+- Solar Cycle and Wars
+- Summary 2018 National Defense Strategy of the United States of America
+- Syria War Will Empower Future Global Government
+- Targeting Iran - Is The US Administration Planning a Nuclear Holocaust?
+- The 239 Year Timeline of America's Involvement in Military Conflict
+- The Afghanistan Protocol - Explosive Leaks Provide Image of War from Those Fighting It
+- The Anglo-Saxon Mission - The Third World War and The Inheritance of the New World
+- The Anglo Saxon Mission - The Timeline - Letter from a Whistleblower
+- The Challenges Posed by The Militarization of Law Enforcement
+- The Chances of A War With China Are Rising
+- The Condition of Human Rights at The International Setting
+- The Criminal Cabal is Creating Incidents Everywhere in A Bid to Start Martial Law in The West
+- The Critical Law of Armed Conflict Academy as an Islamist Fifth Column
+- The Decade's Biggest Scam
+- The Doomsday Project and Deep Events - JFK, Watergate, Iran-Contra, and 9/11
+- The Doomsday Project, Deep Events, and The Shrinking of American Democracy
+- The Ecuadorian Coup - Its Larger Meaning
+- The Global Banking Cartel Has One Card Left to Play - The Road to World War III
+- The Global Elite's Digital Agenda Played Out as Censorship and Cyber Warfare
+- The Globalist Rule of Law
+- The Global Union
+- The History of Using Children to Push for Agendas
+- The Internet War
+- The Lack of Major Wars May Be Hurting Economic Growth
+- The Mediterranean Union - Emergence of A New Order - World Geopolitics and The Battle for The...
+- The North America Union - Main File
+- The Obama Killing Machine in Afghanistan - The "Under-Reporting" of Civilians Killed by Foreign Forces
+- The Power behind the Throne and the Bankers' Forever Wars
+- The Real New World Order - Bankers Taking Over The World
+- The Road to Disaster - US War on Iran - The Worst Mistake in American History
+- The Strategic Counteroffensive
+- The Tri-Command Strategy and Merging U.S.-Canada Arctic Foreign Policy
+- The Ultimate Delusion - The United Nations - Main File
+- The U.S. Air Force Wants to Monitor, Track and Analyze Everything Done on The Internet Around The Globe
+- The War On Waste - Defense Department Cannot Account For 25% Of Funds - $2.3 Trillion
+- The West's Greatest Fear is A Peaceful Resolution in Syria
+- Think Tank financiado por Soros/Koch se Opone a la "Guerra para Siempre" de EE.UU.
+- To Avoid a Nuclear War With Iran - Speech at Cuban Parliament by Fidel Castro - August 2010
+- Tony Blair and George Bush's Phone Conversation a Week Before Iraq Invasion 'Must Be Released'
+- Top Contractors Dominate The Market With Billions in Government Business
+- Towards a Culture of World Peace
+- Towards an "Alternative New World Order"
+- Towards a Pre-emptive Nuclear War? - Why Moscow Does Not Trust Washington on Missile Defense
+- True Stories of Violation - Border Patrol (100 Miles From The Border)
+- Trump, la Tercera Guerra Mundial y el "Dilema del Prisionero"
+- Trump No Incluye a Rusia en la Lista de Prioridades de Defensa de EE.UU.
+- Unidades Policiales Chinas Comienzan a Entrar a Estados Unidos Para Proteger Bienes
+- United Nations Listing of Terrorist Organizations
+- United States as A Global Power - New World Disorder
+- Un Tercio de los Norteamericanos Apoyaría un Golpe Militar
+- U.S. at War Since 1950 - A New Year's Meditation
+- U.S. Government Officially Conscripts Google into the Military Industrial Complex
+- "U.S. is Reviving Terror Scare with ISIS to Promote the Terror War Industry" - Says FBI Whistleblower
+- U.S. Military World's Largest Polluter - Hundreds of Bases Gravely Contaminated
+- U.S. Presidents Charged With Crimes Against Humanity as Universal Jurisdiction Dies in Spain
+- U.S. Senate to Declare "International Martial Law" - Give President 'Unlimited' Military Powers
+- Varios Ataques con Armas Químicas del Gobierno de Los Estados Unidos de Los Cuales No Quieren...
+- War - A Balance of Profit and Fear
+- War and More War - Trump's National Security Strategy (NSS)
+- War and Wetiko
+- War in Ukraine is the WEF's Doorway to Global Technocracy
+- War is Peace - The Theory And Practice of Oligarchical Collectivism
+- War on Drugs in Afghanistan Revealed As Total Hoax - U.S. Military Admits to Guarding, Assisting Lucrative...
+- War or Peace? - World Entering Epochal Period of Geopolitical Change
+- Washington se Niega a escuchar a Rusia y a China
+- Was September 11 2001 The Start of World War III? - The March to War
+- We Are Watching The US, Israel and The United Nations Destroy Syria
+- What makes Evolution Work: Competition or Cooperation? - Only those survive who have learned to work...
+- Who's Who of The Elite
+- Who Will Rule The 21st Century?
+- Why WikiLeaks Is Good for Democracy
+- WikiLeaks and The Worldwide Information War - Power, Propaganda, and The Global Political Awakening
+- Wir sehen zu, wie Syrien Zerstört wird von USA, Israel und UN
+- Wisconsin Report - Dr. Beter Audio Letters - Main File
+- World War 3 Is Here - A Prediction
+- Zbigniew Brzezinski and The Trilateral Commission - Main File
+Private Armies
+- Blackwater - War Mercenaries Inc. - The Privatization of War - Main File
+- 'CST Global' Especializada en El Reclutamiento de Mercenarios
+- FedEx and Pepsi Are Top Defense Contractors? - Five Corporate Brands Making a Killing on America's...
+- La Otra Cara de los "Cascos Blancos" en el Conflicto Sirio
+- Obama's Secret Assassins - JSoc - Joint Special Operations Command
+- Piratas, Corsarios y Filibusteros del Siglo XXI
+- Spies For Hire - Who's Who in Intelligence Contactors
+- Syria Under Attack by Globalist Death Squad Experts
+- Syrien unter Beschuss von Todesschwadron-Experten der Globalisten
+- The March of The Private Armies
+- The Privatization of War - Mercenaries, Private Military and Security Companies (PMSC) - Beyond The...
+- The World's Most Powerful Mercenary Armies
+Multimedia:
+- Dirty Wars - Jeremy Scahill and Rick Rowley's New Film Exposes Hidden Truths of Covert U.S. Warfare
+The Invasion of Libya - 2011
+- After Me, the Jihad - Gaddafi's Unheeded Warning to the West
+- America's Planned Nuclear Attack on Libya
+- Breach of Duty - Hillary Clinton and Catastrophic Failure in Benghazi
+- China Podría Matar al Petrodólar con el Petroyuán - El Sueño de Gaddafi No Muere...
+- Clinton Allowed Stevens to Die in Benghazi to Keep Saudi Government Involvement in Syria Secret
+- Come Al-Qaida è Riuscito a Governare Tripoli
+- Come Gli Uomini di Al Qaida Arrivarono al Potere in Libia
+- Cómo Llegó Al-Qaida a Gobernar en Trípoli
+- Cruise Missiles with Depleted Uranium on Libya
+- El Libro Verde - Mulazim Awwal Mu'ammar Muhammad Abu Monyar al-Qadhafi
+- El Sistema de Pago de Gaddafi respaldado por Oro Panafricano
+- El Testamento de Gaddafi
+- Gaddafi Predicted and Tried to Stop this Terror Wave in UK - So the U.S. Murdered Him...
+- Gaddafi Was Killed by French Secret Serviceman on Orders of Nicolas Sarkozy - Sources Claim
+- Hillary Emails Reveal True Motive for Libya Intervention
+- How Al Qaeda Men Came to Power in Libya
+- Il Sistema di Pagamento di Gheddafi supportato da Oro Panafricano
+- "In Libya Now The Truth Is Coming Out" - New York Times Interview With Lizzie Phelan
+- La Cina potrebbe Uccidere il Petroldollaro con il Petroyuan - Il Sogno di Gheddafi Non Muore
+- La Guerra Contra Libia es Una Catástrofe Económica Para África y Para Europa - Entrevista al Mini. de...
+- La Guerra Contro la Libia è Una Catastrofe per l'Africa e per l'Europa - Intervista con il Ministro per la...
+- Lecciones que Deberían de haber sido Aprendidas de la Destrucción de Libia por la OTAN
+- Lessons that Should Have Been Learned from NATO's Destruction of Libya
+- Lezioni che avremmo dovuto Imparare dalla Distruzione della Libia da parte della NATO
+- Libia - La Vera Guerra Comincia Adesso
+- Libia - La Verdadera Guerra Comienza Ahora
+- Libia - ¿Petróleo o Bancos Centrales?
+- Libia y Gadafi - La Verdad Que Se Supone NO Debes Conocer - Un País Moderno Hecho Polvo
+- Libya and Gaddafi - Setting The Record Straight
+- Libya and The End of Western illusions
+- Libya - From Africa's Richest State under Gaddafi, to Failed State after NATO Intervention
+- Libya in Anarchy Two Years after NATO 'Humanitarian' Liberation
+- Libya - Naked, Bloody Imperialism or "We Came, We Saw, He Died"
+- Libya - The Real War Starts Now
+- Libya R.I.P. - The Rothschilds Own You Now
+- Los Emails Explosivos de Hillary Clinton
+- Matanza de La OTAN en Trípoli
+- NATO Carnage in Tripoli
+- NATO Incorporates Libyan Experience For Global War Template
+- NATO's Inevitable War - The Flood of Lies Regarding Libya
+- "Operation Libya"
+- Post-Gadhafi Libya - Naked Neo-Imperialism - The Daylight Robbery of Libyan Resources
+- ¿Qué Decidió El Club Bilderberg Para Libia?
+- Revolt In Libya - A Message to Chavez
+- Six Years Ago today the U.S. helped Murder Gaddafi to Stop the Creation of Gold-Backed Currency
+- The Benghazi Scandal is Obama's Watergate but Worse
+- The Benghazi Talking Points and How They Were Changed to Obscure The Truth
+- The Green Book - Mulazim Awwal Mu'ammar Muhammad Abu Monyar al-Qadhafi
+- The "Liberation" of Libya - NATO Special Forces and Al Qaeda Join Hands - "Former Terrorists" Join the...
+- The Libyan War, American Power and The Decline of The Petrodollar System
+- The New Libya - Assassination, Ruination, Broken Promises and Body Snatching...
+- The Truth About The Situation in Libya - Cutting Through Government Propaganda and Media Lies
+- Wadah Khanfar, Al-Jazeera and The Triumph of Televised Propaganda - The Invasion of Libya
+- Wadah Khanfar, Al-Jazeera y El Triunfo de La Propaganda Televisiva - La Invasión de Libia
+- War is Good for Business - Rebuilding Libya With Stolen Money
+- War on Drugs in Afghanistan Revealed As Total Hoax - U.S. Military Admits to Guarding, Assisting...
+- Who Are The Libyan Freedom Fighters and Their Patrons?
+- WikiLeaks Cables Expose Washington's Close Ties to Gaddafi
+- Lizzie Phelan Interview in NY Times
+- Michel Chossudovsky on 'Occupy Wall Street Movement' and Libyan War
+Project for The New American Century (PNAC)
+- Halliburton's Destructive Engagement
+- Project for The New American Century (PNAC) - All About Them
+- The Project for The New American Century
+- What is The Project for The New American Century?
+- El Nuevo Siglo Americano - Un Film de Massimo Mazzucco
+- Il Nuovo Secolo Americano - Un Film di Massimo Mazzucco
+Proxy War Tactics
+- A "Humanitarian War" on Syria? - Military Escalation - Towards a Broader Middle East-Central Asian War?
+- Al-Qaeda Is a Front Group for The US Military-Industrial Complex
+- America's 'Shadow Wars' in Africa
+- An Octopus Named Wackenhut - Main File
+- Civil War Declared in Syria - Globalist's Formula for WW III Begins
+- Como Funciona el "Golpe de La CIA" en Irán - La Guerra Por Otra Vías - Caballo de Troya
+- El "Cementerio de Imperios" reclama otra Víctima
+- How War Fuels the 'March toward a New World Order' - Is a New World War about to Begin?
+- La Alianza Secreta de EE.UU. con Al-Qaida y Los Fundamentalistas Islámicos
+- New Colonialism - Pentagon Carves Africa Into Military Zones
+- The Muslim Brotherhood - Main File
+- The Secret History of America's Defeat in Syria
+- The Secret History of the War in Ukraine - The untold story of America's hidden role in Ukrainian military op...
+- This War wasn't Just Provoked - It was Provoked Deliberately!
+Space Command - Space Force - Secret Space Program
+- A Brief History of the 'Secret Space Program'
+- An Un-American Way of War - Instruments of Statecraft - US Guerilla Warfare, Counterinsurgency...
+- Artistic Recreation of Extraterrestrial Visiting Space Shuttle Released by Former Space Craft Operator
+- Astronauts and Apollo's Missions - Main File
+- Beyond Bayonets and Battleships - Space Warfare and The Future of U.S. Global Power
+- Cosmic Colonialism? - DARPA's 'New Space Program' stirs Worldwide Concern
+- Cost to Test U.S. Global-Strike Missile Could Reach $500 Million
+- Galactic Federation is Helping Humanity build a 'Starfleet for Planetary Defense'
+- Has U.S. Space Command received Advanced Tech from Galactic Federation?
+- In the Midst of Global Pain our 'Star Trek Future' is being Birthed
+- Jack Parsons and the Curious Origins of the American Space Program
+- La Guerra de las Galaxias - De la Ficción a la Realidad
+- Laura Eisenhower and the Military Industrial Complex
+- Laura Eisenhower y el Complejo Militar Industrial
+- Pentagon to Start creating Space Force, even Before Congress Approves It
+- Reagan Records and Space Command Antigravity Fleet
+- Secret Space War
+- Space Command - Project Camelot Interviews with Captain Mark Richards
+- Space Fence - Connecting the Surveillance and Transhumanist Agendas
+- Space Force Personnel to be called 'Guardians
+- Space Warfare - Preparing the "Battlespace" for A New Imperial Adventure - Secretive Mini-Shuttles and...
+- Space Wars - The First Six Hours of World War III
+- The Aerospace Corporation - from "Elite Watch"
+- The Artemis Accords Principles for Cooperation in the Civil Exploration and Use of the Moon, Mars, Comets...
+- The Future of Space 2060 and Implications for U.S. Strategy - Report on the Space Futures Workshop
+- The Militarization of Space - Military Research Agendas For The Future
+- The USAF Space Command and What it Does...
+- The Weaponization of Space - Corporate Driven Military Unleashes Pre-emptive Wars
+- Trump's Space Force is now Officially the Sixth Military Branch
+- USCYBERCOM - Estados Unidos Oficializa Su Interés en La Guerra Cibernética de Cara a Las Próximas...
+- U.S. Cyber Command - Documents Reveal Pentagon Launching Covert Cyber Attacks
+- U.S. Cyber Command - Waging War In World's Fifth Battlespace
+- U.S. Grounds Virgin Galactic after Space Flight 'Mishap'
+- U.S. National Space Policy
+- U.S. Space Command's Vision 2020
+- A Brief History of Secret Space Programs according to Jason Rise
+- Space Command - AirForce Space Today
+The Pentagon - El Pentágono
+- A Secret War in 120 Countries - The Pentagon's New Power Elite
+- El Pentágono admite que ha Analizado restos de Ovnis Estrellados - Los hallazgos podrían "Cambiar...
+- El Pentágono Habla
+- Global Warfare USA - The World is The Pentagon's Oyster - US Military Operations in All Major Regions...
+- How the Pentagon's Skynet Would Automate War
+- La Futura Pesadilla que El Pentágono Está Creando para La Humanidad
+- La Geopolítica de Obama del "Pivote" Chino - China en La Mira del Pentágono
+- No hay Guerra sin Propaganda de Guerra
+- Obama's Geopolitical China 'Pivot' - The Pentagon's "New Enemy" Image
+- Pentagon Continues Contracting U.S. Companies in Latin America
+- Pentagon Fails its First-ever Audit - Official Says...
+- Pentagon Fuel Use, Climate Change and the Costs of War
+- Pentagon Provokes New Crisis With China - The Drums of War?
+- Pentagon's Arms-research chief Eyes Space-Based Directed Energy Weapons
+- Pentagon Secretly Goes to War With The Internet
+- ¿Qué es el Comando Sur, el 'Pentágono en Miniatura' de EE.UU.?
+- That's Militainment! - Big Hollywood succumbs to the Pentagon Borg...
+- The Difference Between the Death Star and the Pentagon
+- The Pentagon and Big Oil - Militarism and Capital Accumulation
+- The Pentagon's Law of War Manual - A Blueprint for Total War and Military Dictatorship
+- The Pentagon's Secret Nuclear Agenda - "Privatizing Nuclear War"
+- Why is the Pentagon interested in UFOs?
+- Yemen - Pentagon's War On The Arabian Peninsula
+- Bombshell Docs Reveal COVID-19 Cover-Up Goes Straight to the Top - Redacted with Clayton Morris
+- The Pentagon - 2.3 Trillion Dollars Missing... - One Day Before 9-11 WTC Attack!
+Weapons - Armas
+- A Battleground for Weapons of The Future
+- AI Drone Swarms and Autonomous Vessels - Palantir Co-Founder warns how Warfare is about to Change for...
+- Armas Biológicas Étnicas - Una Amenaza Real
+- Bioterrorism - Main File
+- Cyberwarfare - Hi-Tech/Top Secret Military Weapons - Main File
+- Depleted Uranium Contamination - A Crime Against Humanity
+- EU Military Industrial Complex Forms Single Massive Company - BAE, EADS Talks May Spur More Mergers
+- La Guerra Genética - El Nuevo Escenario de Confrontación de Estados Unidos
+- Las Armas procedentes de Ucrania inundarán Europa y más allá - Según un informe
+- "Lavender" - Se Desenmascara la Aterradora Realidad de la Guerra Automatizada
+- Los Dioses de la Guerra y de la Muerte - Tánatos, Ares y Keres
+- Más Sobre Guerra Genética - Laboratorios Secretos el Pentágono en Georgia
+- 'Plagues, Cyborgs, and Supersoldiers' - Report suggests Pentagon exploring Biotech-Based Warfare
+- Screaming: Nuclear War is Coming...! - "All this is Made Up to Scare You"
+- Secrets on 'Iran Nuclear Strike' spill into open as Pentagon defends Bombing
+- Sobre Súper-Armas y Dominio Global
+- The Future of Organized Crime beyond the Russo Ukrainian War
+- Ukraine, Russia and the Future of War...
+- Weather Warfare - Main File
+Books-Treatises
+- 1984 - by George Orwell (Eric Blair)
+- 1984 - por George Orwell
+- America's "War on Terrorism" - by Michel Chossudovsky
+- Code Red - The Coming Destruction of America 2004 - by David Booth
+- Common Sense - Addressed to the Inhabitants of America, on the following Interesting Subjects - by T. Paine
+- Critical Mass - The Real Story of the Birth of the Atomic Bomb and the Nuclear Age - by Carter P. Hydrick
+- De la Guerra - por Carl von Clausewitz
+- El Arte de La Guerra - por Sun Tzu
+- El Destino de los Imperios y la Búsqueda de la Supervivencia - por Jeff Bagot Glubb
+- Killing Hope - U.S. Military and CIA Interventions since World War II - by William
+- Militainment, Inc. - War, Media and Popular Culture - by Roger Stahl
+- Neurotechnology in National Security and Defense - by James Giordano
+- Pawns in the Game - by William Guy Carr
+- Razones de Estado - por Chester Swann
+- The Age of AI - And our Human Future - by Eric Schmidt and Henry Kissinger
+- The Fate of Empires and Search for Survival - by Jeff Bagot Glubb
+- The Kill Chain - Defending America in the Future of High-Tech Warfare - by Christian Brose
+- The Police State Road Map - by Michael Nield
+- The Sleepwalkers - by Christopher Clark
+- Understanding the War Industry - by Christian Sorensen
+Multimedia
+- "Afghanistan Pakistan Imbroglio" With Pakistani General Hamid Gul
+- All Wars Are Bankers' Wars
+- Another War? - Russia, China and the American "Empire"
+- A Political Road Movie - 'South of The Border'
+- Beyond Treason
+- Bilderberg Group Gives Green Light for War With Iran
+- Collateral Murder - Wikileaks
+- Countdown to Zero
+- Cultures of War - Pearl Harbor/Hiroshima/9-11/Iraq
+- Dick Cheney - The Unauthorized Biography
+- Dr. Strangelove or How I Learned to Stop Worrying and Love The Bomb
+- Eisenhower's Farewell Address to The Nation
+- Empire - Hollywood and The War Machine
+- Even The Troops Are Waking Up
+- Fighting in The Fifth Dimension - The Cyberworld is A New Frontline
+- Fork in The Road - "They" Want To Trigger World War III - David Icke
+- Full Spectrum Treason - Future Combat System [FCS]
+- Guerra Psicológica
+- Hubris - Selling The Iraq War
+- In Whose Interest? - Why The U.S. Went to War for Profit
+- I.O.U.S.A. - One Nation - Under Debt - In Stress
+- Iraq for Sale - The War Profiteers
+- KONY 2012 - A Ponerological Example in Africa
+- La Cuarta Guerra Mundial - The Fourth World War
+- La "Elite" Habla - Lindsay Williams
+- La Guerra Contra La Democracia
+- NWO About to Nuke The World With WW3 - URGENT BEN FULFORD MESSAGE
+- PsyWar - Wake Up!
+- Regímenes Mundiales desarrollan Armas de I.A. sin considerar los Riesgos para todos...
+- Russia and the Neocon March to World War 3 - Paul Craig Roberts
+- SuperPower - 2008 Documentary
+- The Elite Speak - Lindsey Williams
+- The Fog of War - The Nature of Modern Warfare
+- The Fraud of "Humanitarian Wars"
+- The Lies That Led To War - CBC - The Fifth Estate
+- The Use of Depleted Uranium Munitions - Beyond Treason
+- The Video The US Military Doesn't Want You to See
+- The War of The World
+- The War on Democracy
+- The War You Don't See
+- Trump y lo que Vas a Ver en las Noticias...
+- Uncovered - The Whole Truth About The Iraq War
+- Un Film de Realidades Politicas - 'Al Sur de La Frontera'
+- U.S. Quest for Global Dominance - Superpower - The Film
+- U.S. Revolution Is Near - Economist
+- War and Globalization - The Truth Behind September 11 (9/11)
+- War with China - Are we Closer than we Think?
+- Why We Fight - The History of The Military Industrial Complex
+- Wikileaks Leaked Video of Civilians Killed in Baghdad
+Related Reports
+- Air Force 2025 - Main File
+- Antarctica Rediscovered - Main File
+- Crimes Against Humanity - Main File
+- Germany's ET Contacts - Its Legacy On The Twentieth Century And After... - Main File
+- Martial Law in USA - The Death of Democracy - Main File
+- The 9-11 Events - Main File
+- The Elite's Drug Management - Main File
+- The Middle East Exopolitical Saga - Main File
+- The Protocols of The Learned Elders of Zion - Main File
+- WikiLeaks - International New Media Non-Profit Organization - Main File
+Return to Globalization - The Octopus of The New World Order
+Return to Temas / Main Files
+Return to The New World Order

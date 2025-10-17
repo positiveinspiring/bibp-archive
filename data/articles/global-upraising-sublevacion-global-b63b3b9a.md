@@ -1,0 +1,490 @@
+# Global Upraising - Sublevación Global
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_globalupraising.htm
+
+Until one finds a cause for which one is willing to risk one's life,
+one has not yet begun to understand how life must be lived,
+nor learned what one is truly capable of achieving.
+Hasta que se encuentra una causa por la que uno está dispuesto a arriesgar la vida, uno aún no ha comenzado a entender cómo la vida debe ser vivida, ni aprendido lo que uno
+es realmente capaz de lograr.
+- 2019 - Movilizaciones Ciudadanas y Cambios Disruptivos en América Latina
+- Acuérdate del 5 Noviembre... - ¡Recuerda porqué No los Necesitamos!
+- América del Sur acelera "Vuelcos Políticos" que Conectan con el Pasado
+- América del Sur Clama: Neoliberalismo - ¡Nunca Más...!
+- American Apocalypse - The Government's Plot to Destabilize the Nation is Working
+- Antes del 2016 Puede Estallar una Revolución en EE.UU. - Advertencia de un Economista
+- Anti-Lockdown Protests All Across Europe
+- Are Tunisia and Egypt Facing Real Unrest or A Manufactured Crisis?
+- Are We Witnessing the Start of a Global Revolution?
+- Are you Ready for the Revolution?
+- Baltimore Riots and a Vision of Things to Come
+- Bolivia - A 'Color Revolution' or a 'New Surge' for Latin American Independence?
+- Brexit and the New Global Rebellion
+- Britain's Riots - Thuggery, Looting, Lawlessness by The Ruling Class
+- Brzezinski Decries "Global Political Awakening" During CFR Speech
+- Cada Vez Somos Más - Desobediencia Civil
+- Chaos Out of Order
+- Chilean Protests - A Revolt against Neoliberalism the Media Refuses to Acknowledge
+- Chile in Flames - The Neoliberal Model in Crisis throughout the Region
+- China Spending as Much on Calming Civil Unrest as U.S. on War Effort - Chinese Netizen Speaks Out
+- Chi Sono e Cosa Vogliono i 'Gilet Arancioni'
+- Civil Unrest is Erupting All Over the World - But just Wait until the United States Joins the Party
+- CNN Accused of Forcing Journalist to Censor Bahrain Brutality
+- Colombians Successfully Revolt Against Seed Control and Agricultural Tyranny
+- Como Abortarán la Revolución
+- Controlled Opposition - The Hidden Hand of Misdirection
+- Creciente Desesperación Illuminati a Medida Que se Acerca La Toma Final de Control
+- Disturbios Civiles están en Erupción en Todo el Mundo - Estados Unidos ¿se unirá a la Fiesta...?
+- "Democracy Uprising" in The U.S.A.?
+- Derrumbe del Modelo Occidental...
+- Dozens of Arrests at 'Occupy Oakland'
+- "EE.UU. en Espera de Una Revolución Inminente"
+- El Miedo vuelve Estúpida a la Gente
+- El 'Movimiento de los Chalecos Amarillos' se ha Extendido como Reguero de Pólvora en Todo el Mundo
+- El 'Movimiento de los Chalecos Amarillos' se ha Globalizado
+- El Surgimiento de la Resistencia y la Conciencia - El Colapso del Gobierno
+- El Único Camino para Salvar al Mundo es Salvarte a Ti Mismo
+- En Grecia somos Testigos del Jaque Mate de las Élites
+- Estados Unidos - La Rebelión de la "Generación Y (millennials)" y la "Generación Z (centennials)"
+- Esta Vez Estamos Cargándonos con Nosotros Al Planeta Entero
+- Europe Rises Up against 'Coronavirus Restrictions' - Massive Simultaneous Protests in London, Paris and Berlin
+- Explosión de "Indignados" pone en el 'Banquillo de los Acusados' al modelo Capitalista Neoliberal Chileno
+- Extraño Informe Advierte sobre "Epidemia de Disturbios Globales"
+- Fall of the Arab Spring - From Revolution to Destruction
+Italiano
+- False Flag in Arrivo? - "Noi, il Popolo, ci Rifiutiamo di essere Ingannati di Nuovo"
+- False Flag Incoming? - "We the People Refuse to be Deceived Again"
+- Fearing Yellow Vests, Macron attacks French Civil Liberties
+- Fear makes People Stupid
+- Ferguson and the False Promise of "Revolution
+- Forces for A Global Revolution - Tunisia, WikiLeaks And Food Crisis
+- Forgotten France Rises Up
+- France is on Fire - How Bad is it this Time?
+- France's Longest Protests since 1968 - Striking Workers Continue the Fight against Neoliberalism
+- Freedom or Fascism?
+- Global Instability and the Rise of Technopopulism
+- "Go To Hell" - Brave EU Politician delivers damning Message to Global Tyrants
+- Historical Lessons from Rebellions - Countering Globalist Strategies Post-Collapse
+- How Protesters Become Terrorists
+- How Wisconsin Could Turn Austerity Into Prosperity - Own a Bank
+- Il Gap tra il Ricco e il Povero è più Grande che Mai - La Frustrazione sta Crescendo a Livelli molto Pericolosi
+- Illuminati Desperation Grows as Final Takedown Approaches - Weekly Geopolitical News
+- In Greece we are Now Witnessing the Elites' EndGame
+- In Syntagma Square, Some See The Dawn of A New Politics
+- Italians 'Rise Up' against "Health Dictatorship" as Country Moves toward New Lockdown
+- It's Over Chaps - It's Just A Matter of When
+- Is Wisconsin Our Egypt? - 15,000 Protest Off-The-Wall Right-Wing Governor's Policies
+Español
+- La Manifestación de Berlín - Covid-19
+- La Olvidada Francia se Levanta
+- 'La più Grande Folla nella Storia della Germania' Insorge contro Bill Gates e Big Pharma
+- La Resistencia No Es Inútil... ¡Es Fértil!
+- 'Largest Crowd in German History' Rises Up against Bill Gates and Big Pharma
+- Las Élites Multicéfalas
+- Las Exigencias del 'Movimiento Chalecos Amarillos' se dirigen hacia un Verdadero Cambio Sistémico
+- Las 'Protestas de los Chalecos Amarillos' son un Canario en la Mina de Carbón
+- La Tiranía de la Tecnocracia - La Nueva Normalidad No Es Normal
+- L'Instabilità Globale e l'Ascesa del Tecnopopulismo
+- Los 'Chalecos Naranja' en las Plazas de Italia - Multitud de Manifestantes sin Máscaras o Distancias
+- Los Dictadores deberían Temer a la IA
+- Los Disturbios de Baltimore y una Visión de las Cosas por Venir
+- Los Recovecos Nauseabundos de la 'República' Francesa - La Indecente Arrogancia de Ricos y Poderosos
+- Media Conceal Chile's State Criminality and Delegitimize Bolivian Democracy
+- My Open Letter to Every Kid in America
+- Navegando en el 'Cuarto Giro' - Estos son los Tiempos que prueban a las Almas de los Hombres
+- Navigating the 'Fourth Turning' - These are the Times that try Men's Souls
+- No Alternative? - See Iceland...
+- No Masters, No Rulers - A World Without Statist Conditioning
+- No Necesitamos Nuevos Presidentes - Necesitamos una Nueva Conciencia y un Nuevo Sistema
+- Obama and The Media are Stirring the Pot in Ferguson - But Real Leaders are Trying to Bring us Together
+- Political Violence Contagion - A Framework for Understanding the Emergence and Spread of Civil Unrest
+- Politicians are Now Making Plans in Case the Public Turns Against them Violently
+- "Por Primera Vez en Toda La Historia, La Humanidad Está Despertando" - Zbigniew Brzezinski
+- Por temor a los Chalecos Amarillos, Macron ataca las Libertades Civiles de los Franceses
+- Protestas Chilenas - Una Revuelta contra el Neoliberalismo que los Medios de Comunicación se Niegan a...
+- Protestas Globales - Sistemas de Abordaje y Síntomas
+- Protest has helped Define the First Two Decades of the 21st Century - Here's what's Next...
+- Protests Against Wall Street Spread Across U.S.
+- Puppets in Revolt - Afghanistan, Iraq, Pakistan and The United States
+- Rabia Contra las Élites - Otra Revolución de Octubre en América Latina
+- Return to Wisconsin - The Beginning or The End?
+- Revolt In Libya - A Message to Chavez
+- Revolution is Brewing in Europe
+- Revolution or World War III - The Road Through 2012
+- Sei Pronto per la Rivoluzione?
+- Se Juega el Futuro y la Trampa de la Red se Cierra...
+- Si Gioca il Futuro e la Trappola della Rete si Chiude...
+- Sin Amos, Sin Gobernantes - Un Mundo Sin Acondicionamiento Estatista
+- Six Reasons The 'Occupy' Revolution Will Be Difficult to Co-Opt or Defeat
+- Some Reasons Why We do Not Need a President
+- South America Cries Out - Neoliberalism - Never Again...!
+- "Stop al Lockdown" - Cresce nel Mondo la Protesta
+- Sublevación Global - ¿Cambiar de Regímenes Políticos?
+- Syria - Who is Behind The Protest Movement? - Fabricating a Pretext for a US-NATO "Humanitarian...
+- 'Take Off the Mask!' - Thousands gather in London for 'Unite for Freedom' Rally, demanding 'Back to Normal Now'
+- Technocracy's Tyranny - The New Normal Isn't Normal
+- The Agenda for World Domination by the World Economic Forum
+- The Age of Civil Unrest
+- The Demands of the 'Yellow Vest Movement' are heading Towards Real Systemic Change
+- The Democratic Experiment is Finished
+- The Elite Coup to Kill or Enslave Us - Why can't Governments, Legal Actions and Protests Stop Them
+- The Future is being Played Out and the Trap of the Web Closes...
+- The Gap Between the Rich and the Poor is Larger than Ever - Frustration is Growing to Very Dangerous Levels
+- The Global Banking Cartel Has One Card Left to Play - The Road to World War III
+- The Global Uprising against CBDCs has Begun!
+- The Invisible Entity Behind The Global Uprising Taking Place
+- The Long Road to Occupy-Wall-Street and the Origins of the 99% Movement - A Report From The...
+- The Only Way to Save the World is to Save Yourself
+- The REAL Solution to the 'UN Madness'
+- There is a 'Deafening Media Silence' on Global Protests
+- There is No One Way to Live on this Planet but We Can Be Harmonious - Anonymous
+- The Revolt of the Pawns
+- The Rise of Resistance and Awareness - The Collapse of Government
+- These Americans are Preparing for War With their Own Government
+- The Three Stages of A Revolution
+- They can Tell Us anything they Want
+- The 'Yellow Vest Movement' has Gone Global
+- The 'Yellow Vest Movement' has Spread like Wildfire Across the World
+- The 'Yellow Vest' Protests are a Canary in The Coal Mine
+- This Time We're Taking The Whole Planet With Us
+- Thousands of Japanese Citizens flood streets to Protest WHO, WEF, Bill Gates, Vaccines...
+- Three Reasons Why Our Awakening Will Have Nothing to Do With, or Result in A Revolution
+- Tres Razones del Porqué Nuestro Despertar No Tendrá Nada Que Ver Con o Será el Resultado de Una...
+- Turkey and Brazil Protests Part of Same, Foreign-Led Conspiracy to Destabilize Governments - Erdogan
+- Una Primavera Europea Llama a la Puerta
+- Una Protesta Indígena Bloquea Pozos Petrolíferos en Perú
+- Una Revolución Increíble que te han Ocultado y que Debes Conocer - La Revolución del Coco
+- 'Unite the Kingdom' is a harbinger of a Western European Cataclysm
+- U.S. Groups Helped Nurture Arab Uprisings
+- U.S. Now Admits it is Funding "Occupy Central" in Hong Kong
+- Voting is Evil
+- We are at War... and It's Not Easy...!
+- "We are Preparing for Massive Civil War" - Says DHS Informant
+- We Don't Need New Presidents - We Need a New Consciousness and a New System
+- What The Media Aren't Telling You About American Protests
+- What Will Happen When the Arrests Begin? - A Futuristic Picture of Mass Arrests, Critical Mass and...
+- Why Hasn't the Revolution Already Happened?
+- Why North America's Revolution Won't Be Televised
+- Why Revolt Is All We Have Left - Interview to Chris Hedges
+- Wisconsins Uprising - A Guided Tour of The 11-Day Protest Encampment Inside The State Capitol in...
+- World of Resistance (WOR) Report
+- Your Guide to a World on Fire - 2019
+- Your Guide to a World on Fire - 'Gen Z Protests' 2025 Edition...
+- 3D Printing Guns and Bitcoin, Show Power of Technology to Create Change
+- After GMO Labeling Shot Down, Citizens Start Labeling Themselves - Grassroots Movement
+- A Graduation Message for a Tyrannical Age - You Are the True Guardians of the Galaxy
+- Air Force Sidelines 17 Nuclear Missile Officers - Commander Cites 'Rot' in System
+- Albert Einstein Institution Manual for A Colored Revolution in Egypt
+- Algunas de las Grandes Ilusiones que Nos Mantienen Esclavizados a La Matrix
+- Alternative Economics
+- America - A Sunset Empire
+- America Going Through its Own Political Arab Spring
+- A Movement Too Big to Fail
+- Analista Advierte que EE.UU. está al Borde de una Insurrección
+- Analysis of Financial Terrorism in America
+- Anarchy vs. Minarchy - Do You Want a Little Government or None at All?
+- Anger Builds in Italy as Old Guard Plots Fresh Technocrat Take-Over
+- Anónimo Publica un Poderoso Mensaje de Navidad a la Humanidad - 2017 va a Ser Emocionante
+- Anonymous Hits the New York Stock Exchange, World Bank, FED, and Vatican - Total Media Blackout
+- Anonymous Releases a Powerful Holiday Message to Humanity - 2017 is Going to Be Exciting
+- Anonymous Threatens Exposure of Government Secrets to Avenge Aaron Swartz's Death
+- An Open Letter to Wall Street
+- A Public Bank Option for Scotland
+- Argentina Unrest - Brought to You by Goldman Sachs
+- As Globalists Centralize, Secession Fever Grows Worldwide
+- Atención a Los Movimientos Telúricos Bajo la Frágil Arena Internacional
+- At The Point of No Return
+- Avaaz - The Online Pro-War Propagandist and Color Revolution NGO
+- Bahrain - Is Washington Preparing For 'Regime Change' in PR Disaster Kingdom?
+- Bank Transfer Day - Successful!
+- Be Your Own Revolution
+- Big Government - An Unnecessary Evil That Should Be Abolished
+- Big Soros Money Linked to "Occupy Wall Street"
+- Blackwater Mercenaries Guarding Greece Government and Overseeing Police - Coup Feared
+- Brain Dead Obama
+- BRICS and The Mission of Reconfiguring The World
+- Britains Royal Wedding - A Big Day For The Global Oligarchy
+- Britains Royal Wedding Fiasco and Its "Dirty little Secret" in Bahrain
+- Cables Reveal Saudi Royals' Money Grabs - U.S. Messages Detail Royal Welfare Program and Royal...
+- Calling Forth the Great Revolution
+- Capo dell'Intelligence Francese avvisa Rischio di "Guerra Civile" in Francia
+- Cinco Razones del Porqué la Anarquía Sería una Mejora en la Gobernabilidad Humana
+- Cincuenta Verdades Sobre Nelson Mandela
+- Civil Conflicts Are Associated With The Global Climate
+- Civil Disobedience or Death by Design
+- Climate Cycles Linked to Civil War - Analysis Shows
+- Color Revolutions - Argentina Next?
+- Cómo Creamos la Realidad
+- Confirmado que lo que Sucede en Cataluña es una Rebelión contra las Élites
+- Contra El Imperialismo y La Colonización - Seis Estrategias por La Soberania, Dignidad y Vida de Los...
+- Convocando la Gran Revolución
+- Corrupt Regimes Crumble When The Foot Soldiers Refuse to Carry Out The Tyrant's Draconian Orders
+- Countering The Corporate-Insurgency
+- Counterinsurgency - A U.S. Army Field Manual
+- Crece la Desigualdad entre Ricos y Pobres
+- Creeping Dread in The Rage of Aquarius
+- David Icke Books are Contraband in U.S. Jails
+- Declaración de Sanya - Reunión de Líderes BRICS
+- Dieci Donne Rivoluzionarie che Non Appaiono nei Libri di Storia
+- Diez Mujeres Revolucionarias que No Salen en los Libros de Historia
+- Discurso de 'Evo Morales' sobre La Verdadera Deuda Externa
+- Distrust in Governments Growing - Survey Finds
+- Does Humanity Even Want Freedom?
+- Do You See It Coming? - The Next Largest World View Movement Will Not Have a Name
+- Edward Snowden -There Will Be More 'Libertarian Millennials' Like Him
+- Egyptian President Mubarak Steals 40 Billion Dollars
+- Eight Signs you May be Living a Courage-Based Lifestyle
+- El Actor Matt Damon Llama a la Desobediencia Civil Global
+- El BRICS y la Misión de Reconfigurar el Mundo
+- El Documental "Fuego Sobre El Marmara" Evidencia Abusos del Ejército Israelí - Franja de Gaza
+- El Ex-Agente de la CIA que Llama a La Revolución Global - Robert Steele
+- El Comienzo Está Aquí
+- El Peligro Acechante - A Qué Teme Washington en América Latina - La Pérdida del Control y lo Que Viene
+- El Precio de La Verdad - Un Acto de Rebelión
+- El Testamento de Gaddafi
+- Empower Yourself to Fight The Power
+- En el Punto de No Retorno
+- Entendiendo y Desmantelando El Sistema de Control Global
+- "Estados Unidos No Teme a Los Informantes - Teme a Una Sociedad Informada" - Dice Snowden
+- Estambul Se Rebela
+- Expert Predicts End to Hierarchies and Value of Money, More ET/UFO Disclosure Starting July-Nov 2010
+- Fifty Ways to Starve The Beast
+- Fighting Back Against the "Intellectual Property" Racket
+- Financial Red Alert - Europe Stands on Verge of 'Apocalyptic' Debt Crisis With Only Days Remaining
+- Finding Freedom in Handcuffs
+- Five Reasons why Anarchy would be an Improvement in Human Governance
+- "Forgive Us for Not Arresting Those Truly Responsible for This Crisis: Bankers and Politicians" - Protesting...
+- Four Things the 'Powers-That-Be' Don't Want You to Know about Anarchy
+- Freedom - A Condition of The Human Heart
+- Frenzy Around Britains Royal Wedding "Should Embarrass Us All" - Johann Hari
+- George Soros on The Coming U.S. Class War
+- Global Uprising Underway - How many People Have 'Really Died from COVID-19'?
+- Gobernar para Las Élites - Secuestro Democrático y Desigualdad Económica
+- Guía para Desenmascarar a las Falsas 'Izquierdas'
+- How to Be a Rogue Superpower - A Manual for The Twenty-First Century
+- How We Create Reality
+- Human Will - The Forgotten Freedom Faculty
+- Il Piano per Destabilizzare La Siria
+- Imparable el Empobrecimiento de Los Trabajadores
+- International Currencies Increasingly Rejected in The Face of Inflation
+- Is It Fear of Uprisings or Altruistic Punishment?
+- Is It Finally Time For a Leaderless Society?
+- Is The World Too Big to Fail? - The Contours of Global Order
+- Italy Paralyzed as Grillo Plots Exit Route from Euro
+- Jefe de la Inteligencia Francesa advierte Riesgo de "Guerra Civil" en Francia
+- La Fine dei Re
+- La Guerra Mas Antigua del Mundo
+- La Inevitabilidad de La Revolución Pacífica
+- La Inminente Revolución - Una Nueva Realidad Vibracional
+- La Mente Crédula Explicada
+- La Revolución de La Conciencia - Urano en Aries
+- La Revolución Femenina
+- Las Diez Etapas Que Viviría El Mundo con La Introducción de Una Divisa BRICS
+- Las Horcas están Llegando... para Nosotros los Plutócratas - Carta Abierta de Un Multimillonario
+- Las Personas Nunca Jamás se Rebelarán mientras sean Propagandizadas Exitosamente
+- La Tierra Para Quien la Trabaja
+- Latin America - Growth, Stability and Inequalities - Lessons for The U.S. and E.U.
+- L'Attore Matt Damon Incita alla Disobbedienza Civile Globale
+- La Virtud de La Disidencia - Un Nuevo Concepto de Moralismo
+- Le Dieci Tappe Che Vivrebbe Il Mondo con lIntroduzione di Una moneta BRIC
+- L'Esecuzione sta Arrivando ... per Noi i Plutocrati - Lettera Aperta di Un Multimilionario
+- Let's Declare Our Interdependence Day
+- Libertad - Un Estado del Corazón Humano
+- Libia - ¿Petróleo o Bancos Centrales?
+- ¿Llegó Finalmente El Tiempo Para Una Sociedad Sin Líderes?
+- Local Protesters are Killing Big Oil and Mining Projects Worldwide
+- Lo Que Nadie Quiere Ver
+- Mercenarios de Las Monarquías Déspotas Contra La Democracia - Emiratos Árabes Unidos
+- Message to all Plutocrats - A Declaration of Emergence
+- Morsi and The Muslim Brotherhood Challenged in Egypt
+- Move Your Money!
+- Move Your Money - Campaign Grows to Divest from "Too Big to Fail" Banks to Local Banks, Credit Unions
+- NATO's Inevitable War - The Flood of Lies Regarding Libya
+- New Internet Privacy Service Moving Offshore - Here's Why
+- NGOs - Choice Tool of Subversion for the New World Order
+- Occidente Devora a sus Hijos
+- Occupied America - Senate Bill 1867 Would Allow U.S. Military to Detain and Murder Anti-Government...
+- Occupy The Food System - The World Can Feed Itself, Without Corporate America's Science-Experiment...
+- Occupy Wall Street is COINTELPRO - Phony Opposition
+- Ocho Señales que Usted Pudiera Estar Viviendo un Estilo de Vida Basado en el Coraje
+- Oligarchy and The War on Individualism
+- "Operation Libya"
+- "Our Politicians Are Money Launderers in The Trafficking of Power and Policy" - Bill Moyers
+- Our Ruling Elites have No Idea how much we want to See Them All in Prison Jumpsuits
+- Pedagogía del Oprimido
+- Pedagogy of The Oppressed
+- Pentagon Preparing for Mass Civil Breakdown
+- People will Never, Ever Rebel as long as theyre Successfully Propagandized
+- Perché Non Scoppia Una Rivoluzione
+- Peru Now has a 'Licence to Kill' Environmental Protesters
+- Policies for A Positive Future
+- Políticas para Un Futuro Positivo
+- Porqué el Mundo se Está Rebelando Contra los 'Expertos'
+- ¿Porqué las Izquierdas y las Derechas Nunca tienen las Respuestas?
+- Porqué No Estalla Una Revolución
+- Porqué nos Desprecian Los Gobernantes - Análisis Shock...
+- Porqué Protestan Contra El Mundial de Fútbol - Brasil
+- Prevent World War III - Civil Resistance Sole Way to Stop US Government Aggression
+- Privatization and Land Grabbing in Spain - Land For Those Who Work It!
+- Protegiendo el Espacio de las Mujeres en la Política
+- Qué Eres ¿"Normal" o "Anormal"? - Humanidad Promedio Estadístico
+- ¿Qué es Anonymous? ¿Qué es "El Plan"?
+- Rebeliones - Como Estambul pero en Río de Janeiro - "Nuestros 20 Céntimos son El Parque de Estambul"
+- Research Links Power and Tendency to Punish Harshly
+- 'Revolución de Color' en Casa - Estados Unidos se Autodestruye...
+- Riots in Istanbul - Gladio Strikes Again
+- Robber Barons - Revolution and Social Control
+- Russian Warships Enter Syrian Waters to Prevent NATO Attack
+- Sanya Declaration - BRICS Leaders Meeting
+- Scotland Forced to Freedom
+- Secession Movements Intensify - Separatism in Europe
+- Security, Safety, Security! - Dictatorship by Democracy
+- Se Expone la Hipocresía del Coronavirus
+- Sei "Normale" o "Anormale"?
+- Seizing Control of Our Destinies
+- Self-Sufficiency - A Universal Solution to The Globalist Problem - The Globalists' Worst Nightmare
+- Senate Wants The Military to Lock You Up Without Trial
+- Several Signs that Youre a Slave to The Matrix
+- Sí Es Posible Otro Mundo - Con Formas Diferentes de Gobernar y Ser Gobernados - CRÓNICA Desde...
+- Snowden Nominated for 'Freedom of Thought' Prize
+- Social Transformation - The Truth Behind Capitalism Decoded
+- Some Grand Illusions that Keep us Enslaved to The Matrix
+- Some Things you Need to Know about Anarchy
+- Sublevación Global en Marcha - ¿Cuántas Personas han 'Muerto Realmente de COVID-19'?
+- The Acceleration of A Global Gilded Age - Wealth Inequality Across The Globe
+- The American Empire Is Collapsing Before Our Eyes in The Mideast
+- The Beginning Is Here
+- The Class War Has Begun
+- The Coming EBT Riots - What Will Happen When Government Entitlements Stop?
+- The Coming Revolution - A New Vibrational Reality
+- The Condition of Human Rights at The International Setting
+- The Economic Elite Vs. The People of The United States of America
+- The End of Kings
+- The End of The New World Order
+- The Financial Road to Serfdom - How Bankers Use The Debt Crisis to Roll Back The Progressive Era
+- The First Streetwise Revolution? Or Another False and Manipulated Dawn? - It's Time to Choose
+- The Future of Countries
+- The Global Protests - A Riddle Wrapped in A Mystery Inside An Enigma
+- The Gullible Mind Explained
+- The Herd in the Head
+- The Hidden Hand of Controlled Opposition
+- The Inevitability of Peaceful Revolution
+- The Libyan War, American Power and The Decline of The Petrodollar System
+- The Neo-Imperialist Corporatist Order and the "Men Behind the Curtain"
+- The New Leadership Paradigm that Could Save the World in Less than A Decade
+- The New Mental Combat Zone - 2014: Let The Year of The Solutions Begin
+- The Phoenix Will Arise From The Ashes of The Old World Order
+- The Pitchforks are Coming for Us Plutocrats
+- The Plan to Destabilize Syria
+- The Rapid Destruction of Countries
+- The Revolution of Consciousness - Uranus in Aries
+- The Second American Revolution Has Begun
+- These Four Young People are the Voice of the Next Revolution
+- The Super-Wealthy have a Problem
+- The U.S. Colored Revolution User Manual for Egypt
+- The Virtue of Dissent - A New Concept of Moralism
+- The War Against Syria was Planned Two Years Before "The Arab Spring" - Former French Foreign...
+- The War Is Over... And We Won
+- The World As It Could Be If We Only Stand Together
+- The Worrying Trend of Internet Shutdowns
+- The Xtremes - Subversive Recipes for Catastrophic Times
+- This is what The Globalists Really Fear...!
+- Tipping The Balance of Power - How to Really Change The World - And It's Easier Than You Think
+- To Fight for Freedom, or to Fight for Empire - That is the Question
+- Tomando el Control de Nuestros Destinos
+- Top 20 Countries Likely to Face Coup in 2014
+- Transformación Social - Decodificada la Verdad Detrás del Capitalismo
+- Trickle-Down Tyranny - Why Ordinary People in Positions of Local Power Are Adopting Tactics of Tyrants
+- True Revolution
+- Turkey's Twitter Ban Collapse Fueled by VPNs and DNS Tricks
+- Ukraine, "Colored Revolutions", Swastikas and the Threat of World War III
+- Un Analista Avverte che Gli Stati Uniti sono al Limite di un'Insurrezione
+- Understanding and Dismantling The Global Control System
+- USAID Exposed in Cuba - What it Tells us About The U.S. Subversion Worldwide
+- U.S. Government Counterinsurgency Guide
+- "Vamos a Invadir 5 Países en 7 Años - Empezaremos Con Irak" - La Verdad Sobre Oriente Medio
+- Varias Señales que Usted es Un Esclavo de La Matrix
+- What Is Anonymous? What Is "The Plan"?
+- What Is The Basis For Corporate Personhood?
+- What Will Happen to Global Economy if BRICS Announce Launch of New Currency - Bricso?
+- Who are The Libyan Freedom Fighters and Their Patrons?
+- Who is Really Behind the American Militia Rebellion?
+- Anti-Washington "Rebellion" Brewing Across Country
+- Why are Americans Paying to Be Searched, Spied On, Shot At and Robbed Blind by the Government?
+- Why Brazilians Are Sick of Corrupt Politicians - And Signs That Their Government is Actually Listening
+- Why Collective Consciousness Will Soon Render All Forms of Government Obsolete
+- Why Protests and Civil Unrest are Growing Around the World
+- Why The Revolution Must Start in America - Chris Hedges's Endgame Strategy
+- Why the World is Rebelling Against 'Experts'
+- Why You Should Consider Ham Radio for Communications - Resistance 101
+- WiFi + USB Drive = Your Own Mini-Internet (Freedom)
+- Will Protests Alone Produce the Evolution We Want?
+- World Bank Warns of Food Riots as Rising Food Prices push World Populations Toward Revolt
+- You Are The Hope
+- Alex Jones on Arab Spring & Globalism - An Exopolitics Perspective
+- Arab Spring - Revolutions, Lies, and Intervention
+- Bahrain, a Brutal Ally
+- Bahrain - Nailing The Lie in Washingtons Rhetoric on "The Arab Spring"
+- Beyond The Arab Spring, The European Winter - Hungary Becomes Third European State to Suspend...
+- De la Impostura del 11 de Septiembre a Donald Trum - La gran Farsa de las "Primaveras Árabes"
+- La Alianza Secreta de EE.UU. con Al-Qaida y Los Fundamentalistas Islámicos
+- Year of The Dupe - One Year Into The Engineered "Arab Spring"
+- As We Go Marching - by John T. Flynn
+- De La Dictadura a La Democracia - por Gene Sharp
+- From Dictatorship to Democracy - by Gene Sharp
+- Pedagogía del Oprimido - por Paulo Freire
+- Pedagogy of The Oppressed - by Paulo Freire
+- The Power of The Powerless - by Václav Havel
+- 2012 - Jaque Mate a La Humanidad - Checkmate to Humanity
+- 2012 Revolution - World Awakening
+- Amazonia for Sale
+- Apartheid Did Not Die
+- Así Funciona El Mundo
+- Bahrain - Shouting in The Dark
+- Beware, Fellow Plutocrats, the Pitchforks are Coming - Nick Hanauer
+- Big Pharma - Llamamiento del Dr. Rath a La Población de Alemania, Europa y al Mundo
+- Changing Vibrations - David Icke Talking to Meria Heller
+- Cuidado, Compañeros Plutócratas, las Horcas están Llegando - Nick Hanauer
+- David Icke - La Conspiración del Coronavirus - Covid 19 y 5G
+- David Icke - The Coronavirus Conspiracy - Covid19 and 5G
+- Debtocracy
+- Democracy in Shambles - "Money First, People Second... If At All" - Bill Moyers
+- Despertar Masivo - Manifiesto a Favor de la Libertad de los Seres Humanos
+- El Manifiesto de Los Wayseer - The Wayseer Manifesto
+- Essential Knowledge For A Wall Street Protestor - David Icke
+- Fighting in The Fifth Dimension - The Cyberworld is A New Frontline
+- Four Horsemen
+- Global Rising - Noam Chomsky and Jeremy Paxman's Interview
+- Hacia la Nueva Tierra - Un llamado a Despertar en un Mundo Programado
+- How The Elite Stay In Power
+- Libertopia - A Documentary About Finding Freedom
+- Lucha No Violenta - Gandhi y La Marcha de La Sal
+- Michel Chossudovsky on 'Occupy Wall Street Movement' and Libyan War
+- Mozambique - Life after Death
+- Nobody Can Predict The Moment of Revolution - Occupy Wall Street
+- No Volverán - La Revolución Venezolana Ahora
+- Occupy Times Square - 1 Marine vs. 30 Cops - Marine Wins...
+- Palabras Desde Atenas - Words From Athens
+- Revolución Virtual
+- Senate Has Declared War on American People
+- The Collective Evolution
+- The Problem is Civil Obedience - Matt Damon from Howard Zinn's Speech
+- The Revolution Business
+- The Uprising!
+- 'V' For Vendetta - Subtitulos en español
+- Victoria para El Mundo - Paul Hellyer
+- Victory for The World - Paul Hellyer
+- We Are The Plan!
+- We Will Not Be Silenced - Brian Rose Documentary Movie
+- The Black Nobility - Main File
+- David Icke and Consciousness - Main File
+- Global Food Control - Main File
+- Latin America and The Global Elite - Main File
+- The BRICS - Main File
+- The Sociopolical 'Discoveries' of Benjamin Fulford - Main File
+- WikiLeaks - International New Media Non-Profit Organization - Main File
+Return to The Global Elite
+Return to Temas / Main Files
+Return to Big Brother Loves You...
+Return to Consciousness and Sociopolitics
+Return to Globalization - The Octopus of The New World Order
