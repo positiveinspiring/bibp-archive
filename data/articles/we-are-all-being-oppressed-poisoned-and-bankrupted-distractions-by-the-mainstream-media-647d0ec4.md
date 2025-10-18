@@ -1,0 +1,70 @@
+# We are All Being Oppressed, Poisoned and Bankrupted - Distractions by the 
+Mainstream Media
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_mediacontrol156.htm
+
+by Mike Adams
+April 04, 2015 from NaturalNews Website
+Indiana gay pizza
+uproar just the latest media ploy
+to distract you from
+the greater truth:
+We are All Being
+Oppressed, Poisoned
+and Bankrupted
+The primary function of the mainstream media is not to inform you, but to distract you from what's really happening.
+When it comes down to it, nobody really cares whether a tiny pizza joint in Indiana wants to cater a gay wedding with pizzas. (Who caters their wedding with pizza, anyway?)
+The far greater issue happening today is how we are all being enslaved, oppressed and exploited no matter what our sexual orientation, religious background, race or country of origin. The leftist media tries to drive a wedge between the people of America by staging contrived culture wars.
+The more people get caught up in these culture wars, the more they totally forget the real war on humanity being waged as follows:
+Central banks are stealing your savings, incomes and wealth by devaluing the currency through endless money printing. Corporations are poisoning your food, your medicine and your world with toxic chemicals that promote disease and destroy the ecosystem. Oppressive government is ratcheting up a police state occupation of America, turning all of America's streets, highways, airports and sports stadiums into lockdown prisons where you have no rights. The drug companies are profiting from disease while selling drugs and vaccines that harm human health and perpetuate a cycle of suffering and medical interventions. The cancer industry preys upon cancer victims, promoting cancer by suppressing any real investigation into the causes of cancer or cancer prevention strategies that could help save lives right now. Agricultural giants and biotech corporations are poisoning the whole world with glyphosate and self-replicating genetic pollution. The global debt pyramid is approaching a state of collapse, and the U.S. national debt has exploded beyond any ability to repay that debt, meaning the nation will inevitably experience its own debt collapse. Google is aggressively pursuing humanoid android robotics development and advanced artificial intelligence (AI) research, aiming for the creation of AI military robots which will of course be used, sooner or later, as a weapon against the People.
+Central banks are stealing your savings, incomes and wealth by devaluing the currency through endless money printing.
+Corporations are poisoning your food, your medicine and your world with toxic chemicals that promote disease and destroy the ecosystem.
+Oppressive government is ratcheting up a police state occupation of America, turning all of America's streets, highways, airports and sports stadiums into lockdown prisons where you have no rights.
+The drug companies are profiting from disease while selling drugs and vaccines that harm human health and perpetuate a cycle of suffering and medical interventions.
+The cancer industry preys upon cancer victims, promoting cancer by suppressing any real investigation into the causes of cancer or cancer prevention strategies that could help save lives right now.
+Agricultural giants and biotech corporations are poisoning the whole world with glyphosate and self-replicating genetic pollution.
+The global debt pyramid is approaching a state of collapse, and the U.S. national debt has exploded beyond any ability to repay that debt, meaning the nation will inevitably experience its own debt collapse.
+Google is aggressively pursuing humanoid android robotics development and advanced artificial intelligence (AI) research, aiming for the creation of AI military robots which will of course be used, sooner or later, as a weapon against the People.
+Notice that every single one of these issues is a far greater threat to your livelihood and future than whether or not some pizza place in Indiana is willing to cater a gay wedding. Yet the mainstream media - which we must now seriously call the "HATEstream media" for all the hate they spew - almost completely ignores these far more serious and universally impactful issues. According to the hatestream media, you should be far more concerned about the gay marriage preferences of a tiny pizza shop in Indiana than the $18 trillion in national debt that's going to financially wipe out future generations of Americans.
+You're supposed to be outraged over Christian beliefs while remaining totally apathetic about how your children are being systematically poisoned by Big Pharma with mind-altering ADHD medications. The hatestream media wants you to focus all your attention and hate on a small number of targeted cultural issues while totally ignoring the fact that your food and your planet are being systematically poisoned by powerful globalist corporations that are destroying our world with pesticides, herbicides and synthetic chemicals. You're also supposed to totally forget about the crime of global imperialist wars which were blasted by the leftist media when Bush was President but are now wholly embraced under the Obama administration even though they're the same damn wars! The same hatestream media that now says pizza shops can't discriminate against people who are gay openly endorsed doctors denying services to parents who refuse to have their children vaccinated.
+Discrimination is wholly accepted, embraced and even endorsed by the hatestream media when it serves their agendas, it turns out.
+Paul Craig Roberts really said it best in this article where he stated:
+We live in an electronic concentration camp. We are addicted to images on screens that disinform and propagandize us to accept and even welcome the police state activities that have destroyed our autonomy, privacy, and independence.
+In that column, he quotes a new book called Battlefield America - The War on the American People by John W. Whitehead (with a foreword by Ron Paul). In that book, Whitehead writes:
+The outlook for civil liberties grows bleaker by the day, from the government's embrace of indefinite detention for US citizens and armed surveillance drones flying overhead to warrantless surveillance of phone, email and Internet communications, and prosecutions of government whistle-blowers. The homeland is ruled by a police-industrial complex, an extension of the American military empire. Everything that our founding fathers warned against is now the new norm. The government has trained its sights on the American people. We have become the enemy. All the while, the American people remain largely oblivious.
+The outlook for civil liberties grows bleaker by the day, from the government's embrace of indefinite detention for US citizens and armed surveillance drones flying overhead to warrantless surveillance of phone, email and Internet communications, and prosecutions of government whistle-blowers.
+The homeland is ruled by a police-industrial complex, an extension of the American military empire. Everything that our founding fathers warned against is now the new norm. The government has trained its sights on the American people.
+We have become the enemy. All the while, the American people remain largely oblivious.
+This is all be design, of course.
+The American people remain oblivious because they are all caught up in the senseless, utterly irrelevant hysteria ginned up over a pizza joint in Indiana. Or the contrived hysteria over measles at Disneyland.
+Or the wholly false science hoax - widely reported across the hatestream media - that California wine was supposedly contaminated with "dangerous levels of arsenic."
+Hatestream media is the vehicle by which the entire American public is mentally distracted from the things that matter and tricked into focusing only on contrived hysterias.
+This is a crucial strategy for any state-run media propaganda network because if the masses ever woke up and realized the truth about how they're being lied to, suppressed, incarcerated, poisoned and dumbed-down by the status quo, they would rise up and revolt against their oppressors. So the entire aim of the hatestream media becomes one of making sure the American people will think, talk and socialize about anything other than reality. If reality were ever seriously questioned, reported or investigated, the delusion that Big Government socialism is your friend would collapse. The delusion that powerful drug companies and biotech corporations just want to help the world would be shattered.
+It might also eliminate the delusion that the real war in America is not a war between left vs. right but a war being waged by corporations and government against the people. But the most important thing they never want you to discover is just how powerful you really are as a beautiful, creative, divinely-inspired human being with the power to change the world.
+In today's twisted world, you are living in a corporate-occupied prison state.
+Everything you see, hear, buy, consume, eat, drink and swallow is twisted by corporate interests to keep you detached, diseased and oblivious to reality. The corporations now occupying the government, the media, the "science" journals and even the universities know full well that their greatest enemy is informed, intelligent, healthy individuals who can think for themselves.
+And to make sure few people ever become such individuals, they systematically,
+poison your food with chemicals poison your minds with medication poison your consciousness with fabricated news steal your savings via the central banks suppress your health,
+poison your food with chemicals
+poison your minds with medication
+poison your consciousness with fabricated news
+steal your savings via the central banks
+suppress your health,
+...and limit your voting options to little more than a choice between a criminal on the left vs. a criminal on the right. This poisoning is systemic and intentional.
+We've just learned, for example, that almost 70% of the people being "treated" with antidepressant drugs don't even have depression to begin with. The drugs dumb you down, suppress your mind and keep you detached from reality. Over ten percent of the U.S. population is taking these mind-altering drugs every single day. Everything you search in the popular search engines is now totally distorted to serve corporate interests.
+Under the guise of promoting "facts," search engines like Google now serve up twisted corporate and government propaganda on any search for a disease or health symptom.
+Similarly, nearly 80% of what you read on social media is generated by robots run by corporate-funded troll groups.
+Every newsstand magazine and mainstream medical journal is almost wholly hijacked by corporate ads pushing toxic poisons as beauty products, "natural" foods or "miracle" medications that actually cause liver toxicity and kidney damage. You are being poisoned at every level imaginable:
+Body, mind, culture, knowledge and beliefs.
+What's the antidote to all this? You're looking at it right now...
+Yes, you can stop the poisoning, and it's relatively easy to accomplish.
+All you need to do is stop consuming the poisons.
+Stop poisoning your mind by refusing to watch or listen to toxic HATEstream media outlets. Remember, the mainstream media is to your mind, what Monsanto is to your food. Stop poisoning your body by refusing to eat pesticides, herbicides and genetically altered foods. Buy ORGANIC. Better yet, grow your own food using the Food Rising Mini-Farm Grow Box system developed and gave away for free at www.FoodRising.org Stop poisoning your planet by refusing to purchase or use yard herbicides, toxic cleaning products for your home and toxic laundry detergents that get flushed down the drain. Stop poisoning your health with dangerous, deadly medications and toxic vaccines that are still - unbelievably - made with mercury, aluminum, MSG, formaldehyde and antibiotics. Reduce your ecological footprint by learning how to live more sustainably. Collect rainwater from your roof. Deploy solar power to reduce your grid power consumption. Get some backyard chickens to produce some of your own food. Find ways to live more "green." Investigate permaculture and food forests, then grow your own. Stop poisoning your children in government-run public school indoctrination centers. Get them out of the brainwashing factories and practice home schooling or private schooling where children have a chance to learn truthful, practical information and life skills.
+Stop poisoning your mind by refusing to watch or listen to toxic HATEstream media outlets. Remember, the mainstream media is to your mind, what Monsanto is to your food.
+Stop poisoning your body by refusing to eat pesticides, herbicides and genetically altered foods. Buy ORGANIC. Better yet, grow your own food using the Food Rising Mini-Farm Grow Box system developed and gave away for free at www.FoodRising.org
+Stop poisoning your planet by refusing to purchase or use yard herbicides, toxic cleaning products for your home and toxic laundry detergents that get flushed down the drain.
+Stop poisoning your health with dangerous, deadly medications and toxic vaccines that are still - unbelievably - made with mercury, aluminum, MSG, formaldehyde and antibiotics.
+Reduce your ecological footprint by learning how to live more sustainably. Collect rainwater from your roof. Deploy solar power to reduce your grid power consumption. Get some backyard chickens to produce some of your own food. Find ways to live more "green." Investigate permaculture and food forests, then grow your own.
+Stop poisoning your children in government-run public school indoctrination centers. Get them out of the brainwashing factories and practice home schooling or private schooling where children have a chance to learn truthful, practical information and life skills.
+Return to The Global Media Control
+Return to American "Empire"

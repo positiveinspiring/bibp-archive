@@ -1,0 +1,824 @@
+# ¿El Fin de La Internet... Que Conocemos? - The End of The Internet... As 
+We Know It?
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_internet.htm
+
+Menu
+Español
+- 2012 - El Año En Que Se Acaba Internet
+- 5G - Gli Effetti Dannosi della Nuova Tecnologia
+- 5G - Harmful Effects of a New Technology
+- 5G is an International Health Crisis in the Making
+- "5G Technology" will be the Backbone of Smart Cities - says The Trilateral Commission
+- 5G Telecomm Radiation is the Perfect Tool to Mass Modify Human Brain Waves
+- A Free And Open Internet Under Threat
+- Alemania Denuncia a Windows 8
+- "All Your Data Belongs to Us" - FBI Wiretapping of Internet Users - A Seamless Global Surveillance Web
+- America's Police State Mentality in The Electronic Age - Big Brother
+- A New Era of Online Communication?
+- Anonymous - Detrás de la Máscara
+- An Unknown State may be Running Drills for Taking Down the Entire Internet
+- Atemorizantes Nuevas Formas como la Internet lo Perfila a Usted
+- Attacking Tor - How the NSA Targets Users' Online Anonymity
+- Beware of New Plan to Censor Health Websites
+- Big Brother - Obama Demands Access to Internet Records, in Secret, and Without Court Review
+- Big Tech Companies agree to Work together in 'Internet Freedom Crackdown'
+- Big Tech Giants want to Prove they are 'American Gods' - Anyone watching 'the Watchers'...?
+- Bloqueo de Sitios Web Para "Dejar Libre Ancho de Banda al Departamento de Seguridad Nacional"
+- Brainwashed by The 1% - Are We Merely Puppets? - Hypernormalisation, a Documentary of 'A Fake World'
+- British Police Sell Web Enforcement
+- Can Dweb Save the Internet?
+- Censura Global y Militarización de Internet - Una Historia que se Repite
+- Columnist Calls for Internet "Quality Control" to Quash Dissent
+- Come Poter Gestire il Flusso Travolgente delle Informazioni nel 21º Secolo
+- Cómo Lidiar con la Cantidad Abrumadora de Información en el Siglo XXI
+- Congress Declares 'Offensive' War on The Internet in NDAA
+- Corporate Congress Critters Kill Internet Neutrality
+- Creative Commons Torpedoes Copyright Industry Lies
+- Crypto Wars! - Obama Wants New Law to Wiretap The Internet
+- Cuando las Banderas Falsas se vuelven Virales
+- Cuando las Banderas Falsas se vuelven Virtuales
+- Cuando la Tecnología te Conoce Mejor de lo que te Conoces a ti Mismo
+- Death of The Internet - Censorship Bills in UK, Australia, U.S. Aim to Block "Undesirable" Websites
+- Debido a la I.A. la "Internet como la conocías ya No Existe" - Matthew Prince, CEO de Cloudflare
+- Deep Packet Inspection - Telecoms Aided Iran Government to Censor Internet, Technology Widely Used...
+- De la Libertad de Expresión y la Actual Censura de Internet
+- Desconectados - La Nueva Tribu Urbana que Abandona Internet para Abrazar la Vida Real
+- Despotismo Tecnificado - El Fin de la Revolución Digital...
+- Doomsday for The Internet as We Know It?
+- Eleven Governments are Meeting in Peru to Figure Out How They Can Control The Internet
+- El Covid-19 ha Envalentonado a nuestros 'Censores' Modernos
+- Elon Musk y Twitter-'X' - Main File
+- Elite Panicking? - Independent Media has More Power than Mainstream Media
+- El Nuevo Control Mental - La Internet
+- El Nuevo Orden Mundial Prepara un "9/11″ Digital, y Después
+- El Plan de la ONU para Controlar la Libertad de Expresión en Internet
+- El Presidente Xi invita al Mundo a Unirse a China en la Construcción de una Nueva Internet
+- El Secreto de Chile para tener la Internet más Rápida del Mundo
+- El Triunfo del Gran Hermano
+- El Vertiginoso Crecimiento de la Tecnología LTE en América Latina
+- ¿Estás Preparado para la "Infodemia"?
+- Father of World Wide Web launches Platform which Aims to Radically Decentralize the Internet
+- FCC to Allow Tech Corporations to Run the Internet - WARNING
+- Federal Communications Commission (FCC) Poised to Kill Internet Neutrality Rules
+- Federally Funded Boffins Want to Scrap The Internet - Seeking Further Funding From Congress For...
+- Feds Order YouTube To Remove Video For Containing "Government Criticism"
+- Feds Used Aaron Swartz's Political Manifesto Against Him
+- First 100 Pages of Aaron Swartz's Secret Service File Released
+- Freedom on The Net 2016
+- Full Text of The PROTECT IP Act Released - The Good, The Bad And The Horribly Ugly
+- Gigantes Informáticos piden a Washington que Garantice un "Internet Democrático"
+- Globalists Seek to Sanitize Internet
+- Google and The Internet - Main File
+- Google Seeks Internet Surveillance of the Smart Grid
+- Governments, Corporations, and Criminals Work to Censor The Internet
+- How Access to Information can Make or Break the Elite Stranglehold
+- How a NeoCon-Backed "Fact Checker" plans to Wage War on Independent Media
+- How 'Big Tech' is Becoming the Government
+- How Covert Agents Infiltrate the Internet to Manipulate, Deceive, and Destroy Reputations
+- 'How do we Share the Planet with this new Superintelligence?' - Yuval Noah Harari
+- How Google, Facebook, Skype, Yahoo and AOL are All Blatantly Lying to Their Own Users in Denying NSA...
+- How Long After The Election Will Obama Sign Executive Order to Control The Internet?
+- How Over 5,000 Websites Quietly Track Your Online Behavior
+- How the NSA Plans to Infect 'Millions' of Computers with Malware
+- How the NSA Spies on Your Google and Yahoo Accounts
+- How the Pentagon's Skynet Would Automate War
+- How to Deal with Information Overwhelm in the 21st Century
+- Hyperlinking is Not Copyright Infringement - EU Court Rules
+- Information Control in The Digital Age - The Journey From Internet Piracy to Full Spectrum Tyranny
+- Information Overload is a Weapon of Control
+- "Internet A Very Large-Scale Spying Machine" - Info Leaking Site Co-Founder
+- Internet Blackout Highlights Failure of American Politics
+- Internet Censorship 2022 - A Global Map of Internet Restrictions
+- Internet Censorship - Australia to Implement Mandatory Internet Censorship
+- Internet Crashes Will Be Hard to Stop After Obamas Internet Giveaway
+- Internet Doomsday Creeps Closer - Big Government Pushes For Total Taxation and Restriction on The...
+- Internet Freedom is Fading in the 'New Era of Social Control'...!
+- Internet Takeover - New legislation Would Allow State to Arbitrarily Shut Down and Seize Websites
+- Internet Undergoes 'Biggest Change in a Generation' that You Never Heard About
+- In the 'Age of Misinformation,' who holds the Power to Categorize the 'Truth'?
+- Is Big Tech merging with Big Brother?
+- Italia Da Marcha Atrás en Su Polémica Ley de Control a Los 'Bloggers'
+- Julian Assange on TPP - 'Mostly Not About Trade, Regulates Internet'
+- La Arbitrariedad y la Censura han regresado a Occidente
+- La Batalla de los Censores
+- La Conspiración de la Teoría de Conspiración
+Italiano
+- La Crociata dei Mass Media Contro Internet
+- La Cruzada de los Mass Media Contra Internet
+- La Dicotomía de los Principales Medios de Comunicación versus los Medios de Comunicación Alternativos
+- ¿La Élite en Pánico? - Los Medios de Comunicación Independientes tienen Más Poder que los Medios de...
+- La Futura Pesadilla que El Pentágono Está Creando para La Humanidad
+- La I.A. y la alerta por la "Teoría del Internet Muerto"
+- La Inquisición de La Era de La Información - Sustein y Kagan
+- La Internet está Muerta - Larga vida a la Internet
+- La Internet Tal y Como la Conocemos Está en Su Lecho de Muerte
+- La Pérdida de la Neutralidad en la Red y el Peligro que puede Significar
+- La Revolución Tecnológica que llega a América Latina y tiene a Uruguay como Líder Mundial
+- L'Ascesa di Internet 2.0
+- Las Naciones Unidas Publica Plan para Llevar Adelante la Censura de la Internet Globalmente
+- La Sobrecarga de Información es un Arma de Control
+- La UE considera un Nuevo Enfoque para Hacer Frente a la Desinformación en Línea
+- La Visión desde las Trincheras de los Medios Alternativos
+- Le Nazioni Unite Pubblicano il Piano per Continuare la Censura di Internet a Livello Globale
+- L'Internet come la Conosciamo Oggi è Sul Letto di Morte
+- Live With The WikiLeakable World or Shut Down The Net - It's Your Choice
+- Los Filtros en la Web y la Espiritualidad Alternativa - Censura Selectiva de 'Creencias Alternativas'
+- Los Grandes Medios de Comunicación Empezarán a Intimidar a Bloggers por El "Uso Equitativo"
+- Los Medios de Comunicación versus la Era de la Información
+- Los Secretos de Silicon Valley - Lo que el Big Tech No Quiere que Sepas
+- Mafias Digitales Amenazan Campañas Políticas Latinoamericanas
+- Mainstream Media to Bully Bloggers Out of 'Fair Use'
+- Mainstream Media vs. the Age of Information
+- Malware Aimed at Unmasking 'Tor' Users Sent Data to IP Address Belonging to NSA or FBI
+- Medios de Comunicación en Línea - La Promesa y el Peligro
+- Meet the Internet Gatekeepers
+- Meet the Robin Hood of Science
+- More Hack Attacks Coming as Microsoft Slams Government Secrecy
+- Net Neutrality - The FCC, Wikileaks and The Future of Internet Freedom
+- 'News' Spreads Faster and more Widely when It's False...
+- ¡No Dejes Que el Parlamento de La Union Europea Privatice Internet!
+- No lo Sabes, pero Vives en una Prisión en la que Te Vigilas a Ti Mismo
+- NSA Director Defends Plan to Maintain 'Backdoors' Into Technology Companies
+- NSA Prism Program Taps into User Data of Apple, Google and Others
+- NSA Secretly Exploited Devastating Heartbleed Bug for Years - Report
+- Obama Can Shut Down The Internet For 4 Months Under New Emergency Powers
+- Obedece, Vacúnate y Muere como Ingenuo... - Obedece a la 'Autoridad
+- Online Media - The Promise and the Peril
+- Opresión en Red - El Nuevo Modelo de Tiranía
+- Pentagon Secretly Goes to War With The Internet
+- Porqué Todo el Mundo debe Alzarse en Armas sobre la Catástrofe en Internet que se Avecina en la UE
+- President Obama's Executive Order to Control The Internet
+- "Privacy" Search Engine DuckDuckGo smoked over Hidden Tracking Agreement with Microsoft
+- Promis
+- "Protect IP Act" Gives Government Power to Seize Websites On a Whim
+- Remote Amazon Tribe gets Internet Access - You already Know what happens Next...!
+- Researchers Explore Scrapping Internet
+- Revelan una de las Bases para la Tiranía que Pronto Afectará a Todos
+- Russia is Being Hacked at an Unprecedented Scale
+- Russia to launch 'Independent Internet' for BRICS Nations - Report
+- Salvemos La Internet del Ataque de Los EE.UU.
+- Save The Internet From The U.S.
+- Scary New Ways the Internet Profiles You
+- Secretive Trans-Pacific Partnership Talks Re-Commence in Lima, Peru - They Can Shut Us Out, But...
+- Secret Plan To Kill Internet by 2012 Leaked?
+- Secrets of Silicon Valley - What Big Tech Doesn't Want You to Know
+- Secret United Nations Document Lays Out Plan to Seize Control of Internet
+- 'Servidores Sirena' como La Matrix
+- Several Top Websites Use Device Fingerprinting to Secretly Track Users
+- 'Shadow Banning' is Just the Tip of the Iceberg - We're All Digital Ghosts Now
+- Silicon Valley está Construyendo un Sistema de Crédito Social al estilo de China
+- 'Siren Servers' as The Matrix
+- 'Snooper's Charter' Web Spying Bill - The Queen's Announced Internet Surveillance Plan
+- Snowden Revelations Led to 'Chilling Effect' on Pursuit of Knowledge - Says Study
+- Speculations on A Probable Future Destruction of The Internet
+- ¿Te Atreves a Navegar la Cara Oculta de Internet?
+- Technology Companies Concede to Government Surveillance Program
+- Ten Reasons Why Nothing You Do on The Internet Will EVER Be Private Again
+- Terror Laws Clear Senate, Enabling Entire Australian Web to Be Monitored and Whistleblowers to Be Jailed
+- The Battle for Power on The Internet
+- The "Blue Screen of Death" could throw the Global Economy into a State of Chaos for Weeks
+- The Brave New World of Surveillance Capitalism
+- The BRICS "Independent Internet" Cable - In Defiance of the "US-Centric Internet"
+- The Coming Age of Internet Censorship
+- The Conspiracy Theory Conspiracy
+- 'The Creepy Line' - A New Documentary on the Power of Tech Giants
+- The Dichotomy of Mainstream Media vs. the Alternative Media
+- The End of All That is Good and Pure about the Internet
+- The End of The Internet?
+- The End of The Internet as We Know It - Google-Verizon Deal
+- The EU Considers a New Approach to Confront Disinformation Online
+- The "Hi-Tech" Corporate Police State - "Reengineering" The Internet... for Persistent Surveillance
+- The Importance of RSS Feeds - Break Free from Censorship and Propaganda
+- The Internet - 10 Terrible Tech Laws That Have You in Their Bull's-Eye
+- The Internet as We Know it Is on Its Deathbed
+- The Internet - Dangers and Questions of the 'Zuckerberg Era'
+- The Internet is a Surveillance State
+- The Internet is Killing your Brain and Creativity - Will we Succumb to the Mindless Tech-Matrix?
+- The Internet is Splitting in Two as Dispute with China Emerges
+- The Internet War
+- The Internet Was Just Taken Over by a Global Monopoly - And No One Even Noticed
+- The New Mind Control - The Internet
+- The Next Phase of Internet Censorship Has Begun - Man The Battle Stations!
+- The Online Copyright War - The Day The Internet Hit Back at Big Media
+- The Pursuance Project - Goodbye Censorship - Digital Rights Activist creating Open Source Internet, Free...
+- The Race to Dominate Satellite Internet heats up...
+- The Real Reason Why the United Nations Wants Control Over the Internet - Technocracy
+- There's No Net Neutrality and we Made Dystopia a Reality - Welcome to 2018
+- The Rise of Internet 2.0
+- These Countries have an Internet Kill Switch - And they Admit It...
+- The Secret State's Mad Scheme to Control The Internet - Through The Wormhole
+- The Spread of True and False News Online
+- The State of Internet Censorship in Europe
+- The Strategic Significance of the Internet Commons
+- The Taking of The Internet
+- The United Nations International Telecommunications Union Next Danger to Internet Freedom
+- The UN Releases Plan to Push for Worldwide Internet Censorship
+- The U.S. Air Force Wants to Monitor, Track and Analyze Everything Done on The Internet Around The Globe
+- The View from the Trenches of the Alternative Media
+- The War Is On! - List of 'Fake News' Sites including Disclose.tv, Breitbart, Infowars, Zerohedge...
+- The Weaponization of Information - The Need for Cognitive Security
+- The Web Never Forgets - Persistent Tracking Mechanisms in the Wild
+- The Worrying Trend of Internet Shutdowns
+- Thirty-Two Tips for Navigating a Society that is Full of Propaganda and Manipulation
+- Time to Ditch DuckDuckGo? - Popular Alternative Internet Search Site censoring "Russian Disinformation"
+- Top Sites (and maybe The NSA) Track Users with "Device Fingerprinting"
+- Treinta y dos Consejos para Navegar en una Sociedad llena de Propaganda y Manipulación
+- Tu Guía para la 'Guerra de Quinta Generación'
+- Tus Datos Personales que WhatsApp comparte con EE.UU. - ¿Estabas al tanto?
+- Two-thirds of the World's Internet Users Live Under Government Censorship - Report
+- UKIP 'Saves the Internet' - EU's Attack on Memes Voted Down, Delayed
+- Una Libertad Bajo Vigilancia Electrónica - Extraído de "EUROPOL"
+- Una Nuova Era della Comunicazione Online?
+- Understanding the Origins of Internet Censorship
+- United Nations already Moving In to Take Control Over Internet
+- United Nations approves 'New Internet Convention' backed by Russia and China
+- United Nations may Tax and Censor Post-U.S. Internet - Experts Warn
+- United Nations Mulls Internet Regulation Options
+- United Nations Talks on Internet Regulation Labeled "Offensive"
+- United Nations (UN) digital World Brain seeks to 'Track Everything and Everyone'
+- U.S. Government Issues More Takedown Requests Than China, Including One for "Government Criticism"
+- U.S. Leaves ICANN - Opens Door for Global Internet Governance
+- U.S. Plans to 'Fight The Net' Revealed
+- "Vivimos Hiperconectados y eso permite que Controlen nuestra Mente"
+- Web Filters and Alternative Spirituality - The Selective Censorship of 'Alternative Beliefs'
+- Welcome to The Programmable World
+- We Need Wiretap-Ready Web Sites Now - Says The FBI
+- What is the Revenue Generation Model for DuckDuckGo?
+- What is the Trans-Pacific Partnership Agreement (TPP)?
+- White House Seizes Control of Internet by Executive Order
+- Who Spreads Fake News? - Overwhelmingly, Old White Men
+- Who Will Control Your Internet?
+- Why MIT Scientists are Building a New Search Engine "Google 2.0"
+- Why the United Nation's Push to Control The Internet Isn't Over
+- Why the Whole World Should Be Up in Arms about the EU's Looming Internet Catastrophe
+- Wikileaks - International New Media Non-Profit Organization - Main File
+- Yahoo, Acusado de Espionaje y Violación de La Privacidad
+- Yahoo a Sus Usuarios: "Permítanos Leer Sus Emails o Cerraremos Su Cuenta"
+- Yes, The FBI and CIA Can Read Your Email - Here's How
+Additional Information
+- 7 Tips to Optimize Identity Protection
+- 20YY - Preparing for War in the Robotic Age
+- 300 Years to Index The World's Info - Google ETA?
+- After Six years in Exile, Edward Snowden explains Himself
+- Alexa Ranking - Is that a Reliable Traffic Measurement Tool?
+- Alternative Media is Defeating The New World Order
+- Anonymous Threatens Exposure of Government Secrets to Avenge Aaron Swartz's Death
+- Apple Has Installed Security Backdoors on 600 Million iPhones and iPads - Claims Security Researcher
+- Are My "Friends" Even Real People? - Revealed That Air Force Ordered Software to Manage Army of...
+- ARM's Latest Processors Aim to Stretch Internet's Reach
+- Assange Warns U.S. Communications Dominance Threatens Latin America's Sovereignty
+- As We Become Cameras, Wearable Cameras will be Ubiquitous - We'll Barely Notice
+- A Tipping Point Against the Copyright Monopoly Regime Is a Lot Closer Than You Think
+- A Wake-Up Call - Why we can No Longer Assume Wireless Technology is Safe
+- Big Brother Is Watching You Shop
+- Big Brother Obama - U.S. to Spy on Internet Messaging - Regulations to Target Skype, Facebook...
+- Big Brother Pays Off as Predictive Behavior Technology Targets Shoppers
+- Canadian Court Slaps Restrictions on Copyright Trolling
+- #CancelCulture - Lessons from the Ancient World
+- #CancellaCultura - Lezioni dal Mondo Antico
+- Can Spirituality Survive in A Hyper-Connected Society?
+- Certified Lies - Detecting and Defeating Government Interception Attacks Against SSL
+- China Spending as Much on Calming Civil Unrest as U.S. on War Effort - Chinese Netizen Speaks Out
+- Combined Video Analytics and Image Fusion are Ushering in A New Era in Surveillance
+- Connecting The Many Undersea Cut Cable Dots...
+- Consciencia en la Era del Streaming - 'Spotifica' Tu Mente
+- Content and Popularity Analysis of Tor Hidden Services
+- DARPA Set to Drop Computer "F-Bombs" to Spy on Public
+- Data, Data Everywhere... But Not One Ounce of Wisdom
+- Despite U.S. Opposition, U.N. Pushes Forward Surveillance Bill of Rights
+- Detect Computer and Email Monitoring
+- Digital Life
+- Disaster Looms when AI Runs the Economy - Says Inventor of the Internet
+- Do You Trust the Government With Your Computer?
+- Edward Snowden explains Blockchain to his Lawyer and the Rest of Us
+- El Logos de Marshall McLuhan - Profeta del Internet y Místico de la Comunicación
+- Entendiendo la Interferencia de La Energía - Navegando por las Corrientes de Energía Invisible nos Rodean
+- Eternamente Conectado - Cómo la Tecnología te Desconecta de Ti Mismo
+- Eternally Connected - How Technology Disconnects You from Yourself
+- E.U. Body Calls for U.S. to Give Up Internet Control and Pushes for International Governance
+- Every Click You Make, They'll Be Watching
+- Everything You Need to Know about Blockchain but were Too Embarrassed to Ask
+- Farsas Sistémicas - ¿La "Voz" de Quién? - O Por Qué Me Di de Baja en Avaaz
+- Fewer Papers, More Web
+- First Deepfake Address from the 'Queen' of England makes its Debut on British TV
+- Former White House Official Says U.S. Already at War with Russia and China
+- Full Text of "The PROTECT-IP Act"
+- Gauss Virus Targets Banking System May Cause U.S. Financial Collapse
+- Going for The Throat - 'Carnivore' in an Echelon World - Surveillance Systems
+- Google Devising Method to Rank Websites by Truthfulness
+- Global Gridlock - How the US Military-Industrial Complex Seeks to Contain and Control the Earth and Its...
+- Global Smart Grid - Technocracy Endgame
+- Governments are Beginning to Censor Much More Than Just What Makes Us Healthy
+- Governing by Networks - Chart
+- History of ARPANET - Behind The Net
+- Homeland Security and Intelligence: Next Steps in Evolving the Mission
+- How does Alexa Track Traffic - Do they Really Have a Grasp of Your Traffic?
+- How Government Masks the Plight of Spain's Lost Generation
+- How Governments and Telecom Companies Work Together on Surveillance Laws
+- How Ideas Become Contagious Online
+- How to Protect Yourself from The Largest Pandemic of All Time - 4G/LTE Mobile Internet and WiFi
+- IBM Betting Carbon Nanotubes can Restore Moore's Law by 2020
+- Il Più Potente Supercomputer del Mondo è Assolutamente un Mostro
+- Influential Beats - The Cultural Impact of Music
+- Information Operation Roadmap
+- Inside The NSA's Largest and Most Expansive Secret Domestic Spy Center in Bluffdale, Utah - Exposed
+- Inteligencia Artificial que puede Escribir Textos Falsos es considerada Demasiado Peligrosa
+- International Code of Conduct for Information Security - China, Russia and Other Countries Submit to...
+- Internet Alien Presence
+- Internet Is The Primary News Source For Those More Educated As Well As People Under 30
+- INTERPOL Taps KGB Tech Wizard Kaspersky for Internet Security
+- Is The Crackdown on Wikileaks and Threats of Julian Assange's Arrest Exactly What He Was Planning?
+- Is The Internet 9/11 Under Way?
+- Korea's High-Tech Utopia, Where Everything Is Observed
+- La Caída de los Medios de Comunicación Dominantes - Cuando Falla la Propaganda, la Humanidad...
+- La Caja Idiota - Cómo te Hipnotiza la Televisión
+- La Comunicación en La Red De Redes Seriamente Afectada De Nuevo
+- La Diferencia entre Información, Conocimiento y Sabiduría - O porqué más Información nos ha hecho Menos Sabios
+- La Guerra contra Rusia y China ya ha Empezado - Declara Ex-funcionaria de la Casa Blanca
+- La Guerra contro Russia e Cina è Già Iniziata - Così Dichiara ex-Funzionaria della Casa Bianca
+- La Infantilización de la Cultura Occidental
+- La Lentitud y la Belleza - Un Argumento Contra la Automatización de la Vida
+- La Perniciosa Ignorancia de Pensar que la Tecnología es Neutral
+- La Telepresencia Amenaza el 'Orden Establecido'
+- La "Teoría del Bosque Oscuro" de la Internet
+- La Verdad que Nadie quiere Oír sobre los Medios Alternativos de Internet
+- Lessons from the Roman Empire about the Danger of Luxury
+- Lezioni dall'Impero Romano sul Pericolo del Lusso
+- Life in The Electronic Concentration Camp - The Many Ways that You're Being Tracked, Catalogued and...
+- LightSaver Max - Cargador Solar Portátil Ultraligero para Viajeros
+- Living in A Wireless World
+- Manifiesto de Internet - Como Funciona el Periodismo Hoy - Diecisiete Declaraciones
+- Mediterranean Council for Intelligence Studies - Yearbook 2012
+- Mujeres Latinoamericanas programan su Mundo contra Brecha Digital
+- New Report Explains Obama's Crusade to Censor the Press
+- No Escape from our Techno-Feudal World
+- NSA Boss Wants More Control Over The Internet
+- NSA Malware Infected over 50,000 Computer Networks Worldwide
+- NSA Refuses to Declassify Obama's Cybersecurity Directive - Exceptionally Grave Damage
+- NSA Wants "EZ Pass" Control for Internet
+- Orwell 2011 - Towards a Pervasive "Surveillance State" in America - Biometrics, Facial Mapping...
+- Persona Management Software
+- ¿Podría una Tormenta Solar dejar a la Tierra sin Conexión a Internet?
+- Policy Challenges of Accelerating Technological Change - Security Policy and Strategy Implications...
+- Porqué debemos Pensar en la Tecnología como una Droga
+- Professors' Letter in Opposition to "PROTECT-IP Act of 2011, S. 968"
+- Project 12 - Improving Protection of Privately Owned Critical Network Infrastructure Through Public-Private...
+- Proton is trying to Become Google - Without Your Data...!
+- ¿Puede la Espiritualidad Sobrevivir en una Sociedad Hiper-Conectada?
+- Realidades Falsas crearán Humanos Falsos
+- Rent-to-Own PCs Surreptitiously Captured Users' Most Intimate Moments
+- Rusia Desarrolla una Internet Propia para Propósitos Militares Aislado de la Red Global
+- Russian Researchers Expose Breakthrough U.S. Spying Program
+- Scientists linked two Quantum Computers with "Quantum Teleportation" for the first time and it changes Everything
+- Should Obama Control The Internet?
+- Sites Feed Personal Details to New Tracking Industry
+- Sitios Web con las Verdades Más Reveladoras - Información Importante
+- Siti Web con le Verità Più Rivelatrici - Informazione Importante
+- Strategic Plan For The U.S. Integrated Earth Observation System
+- Team Themis - Corporate Information Reconnaissance Cell - November 3, 2010
+- Technocrats turn to Ethicists to 'Save their Soul'
+- Teilhard de Chardin and Transhumanism
+- The Beginner's Guide to your Internet Speed
+- The Dark Forest Theory of the Internet
+- The Electronic Police State - 2010 National Rankings
+- The Fall of Mainstream Media - When Propaganda Fails, Humanity Awakens
+- The Implementation of The Communications Assistance for Law Enforcement Act
+- The Man Behind The World's Most Dangerous Website - Secrets and Lies
+- The Misinformation Virus
+- The NSA is Building The Country's Biggest Spy Center - Watch What You Say - Big Brother Goes Live...
+- The Objective, Non-Academic Publication
+- The Protect IP Act - Draft
+- The Prove-it Initiative - Immediate Moratorium on All New Public Wireless Technologies - External Link
+- There Is a Tipping Point for The Spread of Ideas and It Has Finally Arrived
+- The Skynet Conspiracy
+- The Spyfiles - WikiLeaks
+- The Starlink Incident - Revisited
+- The Sun is killing off SpaceX's Starlink Satellites
+- The War Is Over... And We Won
+- The Web's Longest Nightmare Ends - Eolas' Patents Are Dead on Appeal
+- The Web's New Gold Mine - Your Secrets
+- The World's Most Powerful Supercomputer is an Absolute Beast
+- The World Wide Web - from "The Evolutionary Mind - Trialogues at The Edge of The Unthinkable"
+- Think You're Not Being Tracked? - Now Websites Turn to Audio Fingerprinting to Follow You
+- Three Disruptive Technologies that will Transform the World into Technocracy within 10 Years
+- To 'Protect the Press' Spain Tries to Muffle the Internet
+- Total Data Domination - 5G, IoT, AI Surveillance and the Smart City
+- Trading Away Our Digital Rights - More Nations Join TPP as The Next Round of Negotiations Approach
+- Truths, Half-Truths, Lies and Cowards
+- UK Filter to Block 'Esoteric Content' - Worldwide Implications
+- Una Nueva Herramienta Democratiza la Ciencia de Datos
+- Un 'Apocalipsis de Internet' podría llegar a la Tierra con la Próxima Tormenta Solar - Advierte una Nueva...
+- Unclassified Report On The President's Surveillance Program - Obama Administration
+- Understanding Energy Interference - Navigating Unseen Currents of Energy that Surround Us
+- U.S. Underwrites Internet Detour Around Censors
+- Verdades, Medias-Verdades, Mentiras y Cobardes
+- Viviendo En Un Mundo Inalámbrico
+- Websites with Most Revealing Truths - Important Information
+- What the Internet Sales Tax in the U.S. is All About
+- White House Targets Conspiracy Theorists As Terrorist Recruiters - 'Strategy for Winning The War on...
+- Why Banks and U.S. Treasury Warn Virus will Wipeout Customer Accounts
+- Why You Should Consider Ham Radio for Communications - Resistance 101
+- WikiLeaks - A Big Dangerous U.S. Government Con Job
+- Windows-Microsoft-Bill Gates - Main File
+- 'Wireless' Humans Could Form Backbone of New Mobile Networks
+- Wireless Internet Makes Trees Sick
+- Wisdom in the Age of Information and the Importance of Storytelling in Making Sense of the World
+ACTA - CISPA - PIPA - SOPA
+- ACTA 2.0 - The Trans-Pacific Partnership
+- ACTA Is Dead After European Parliament Vote
+- ACTA is Worse Than SOPA - Here's What You Need to Know
+- ACTA - The Corporate Usurpation of The Internet
+- At Least 7,000 Websites Black Out Their Homepages in Protest of SOPA and PIPA Internet Censorship Bills
+- Fascism Comes to The Internet - Introducing CISPA
+- Google, Facebook, Amazon Planning Internet Blackout to Protest "Big Brother" SOPA Bill
+- Google-Twitter Cave to International Censorship Pressure
+- SOPA and PIPA Fully Alive - And a New Bill Joins Them
+- The SOPA/PIPA Blackout Protest - Anonymous Goes Nuclear - Everybody Loses?
+- Top Web Firms Set to Impose a Blackout in Protest Against 'Big Brother' Online Piracy Bill
+Multimedia:
+- What is ACTA?
+Algorithms - Algoritmos
+- Big Tech's Authoritarian Practices are Accelerating - Will You Submit?
+- Capitalismo de Vigilancia - Algoritmos para Manipular la Opinión Pública y la Caída de Facebook
+- Confiamos más en los Ordenadores que en los Humanos
+- Developing Algorithms that Might One Day be used Against You
+- Do you remember 'Who You Were' before the Algorithm? - The Mass Amnesia Crisis no one is Talking About
+- El Lenguaje Perdido del Cuerpo - Algoritmos, Ocultismo y los Límites del Conocimiento
+- Feudalism and the "Algorithmic Economy" - Using AI and Algorithms to Return to Feudal Economic Models
+- God's Algorithm
+- How Algorithms Rule The World
+- How Can we Stop Algorithms Telling Lies?
+- Humans rely more on Algorithms than Social Influence as a task becomes More Difficult
+- Investigación Muestra que ya No Son los Humanos los que Toman las Decisiones - Son los Algoritmos
+- La Algo-Matrix y los ETs - La Tierra Como una Iniciativa Extraterrestre
+- New Google Algorithm Restricts Access to Left-wing and Progressive Web Sites
+- 'Next-Level' Chaos traces the True Limit of Predictability
+- Raging Against the Algorithm - Google and Persuasive Technology
+- Silicon Valley Algorithm Manipulation is the 'Only Thing Keeping Mainstream Media Alive'
+- ¿Son los Algoritmos los 'Demonios' de nuestra Época?
+- The Age of A.I. Colonialism - Data-mining the Global South into Submission
+- The Algo-Matrix and the ETs - Earth as an Alien Enterprise
+- The Million Genius Problem - Why we're Racing Toward our own Obsolescence
+- The New Gatekeepers - How proprietary Algorithms increasingly Determine the News We See
+Cybercrimes and Cyberattacks
+- A Precursor to War? - As Washington Renews Military Threats Against Iran, Cyber Attacks Escalate
+- Chinese Hackers Suspected in Cyber Attack on Council on Foreign Relations
+- Cyberattack Drills Going Live?
+- Cyber Polygon - Will the 'Next Globalist War Game' lead to another Convenient Catastrophe?
+- 'Cybersecurity Act' Would Give President Power to 'Shut Down' Internet
+- Cyberwarfare - Hi-Tech/Top Secret Military Weapons - Main File
+- Department of Defense Strategy for Operating in Cyberspace
+- Draft Order Would Give Companies Cyberthreat Info
+- EE.UU. y Rusia - De la Guerra Fría a la Guerra Cibernética
+- El Ciberespacio - Nuevo Escenario de Confrontaciones
+- El Contra-Imperio - Mundialización y Cibernética
+- El Mundo está a punto de ver una Ola de Delitos Cibernéticos - Dicen funcionarios de Ciberseguridad Alemanes
+- El Pentágono da Nuevo Paso en La Ciberguerra - Puede Intervenir Cualquier Red Dentro de EE.UU.
+- Finding The 'Cure' for The 'Cyber Epidemic'
+- From "Event 201" to "Cyber Polygon" - The WEF's Simulation of a Coming "Cyber Pandemic"
+- Globalists Using London Cyberspace Summit to Push for Global Internet Treaty
+- Globalist War Against Humanity Shifts into High Gear - Cars, Cash, Literature and Independent News all...
+- Governments launch Cyber Warfare against Citizenry to overcome 'Vaccine Hesitancy'
+- How Cybercrime has Evolved since the Pandemic Hit
+- Internet 'Kill Switch' Dropped From Cybersecurity Bill - But White House Still Claims Power to Intervene in...
+- 'Lack of Cybersecurity has become a Clear and Immediate Danger to our Society' - K.Schwab, Cyber Polygon 21
+- Microsoft, FBI and DHS Team Up to Fight Cybercrime
+- New CISPA Cybersecurity Bill Will Censor The Web - Even Worse Than SOPA
+- Offensive Cyberspace Operations, The NDAA, and The Title 10-Title 50 Debate
+- Pandora's Vox - On Community in Cyberspace
+- Pentagon Will Help Homeland Security Department Fight Domestic Cyberattacks
+- Security Grifters Partner-Up on Sinister Cyber-Surveillance Project
+- Shadows in The Cloud - Investigating Cyber Espionage
+- The Global Elite's Digital Agenda Played Out as Censorship and Cyber Warfare
+- The Internet is Rotting...!
+- Tracking GhostNet - Investigating a Cyber Espionage Network
+- USCYBERCOM - Estados Unidos Oficializa Su Interés en La Guerra Cibernética de Cara a Las Próximas...
+- U.S. Cyber Command - Documents Reveal Pentagon Launching Covert Cyber Attacks
+- U.S. Cyber Command - Waging War In World's Fifth Battlespace
+- Virus Sauron - Un Nuevo 'Proyecto de Estado' para el Ciberespionaje Mundial
+- What's the 'End Game' for Cybercrimes and Ransomware Attacks?
+- When Solar Flares meet Cyberattacks at the Confluence of Global Mayhem
+- Your Body is the Next Frontier in Cybercrime
+- ¿Y si el Próximo Gran Ciberataque tuviera como Objetivo la Internet?
+Deep Dark Web
+- Cómo Funciona la Internet Profunda
+- Deep Web - La Rete oltre Google
+- Deep Web - Las Oscuras Profundidades de Internet que Ya Preocupan a Gobiernos
+- Deep Web - What is it and How to Access it? - The Ultimate Guide
+- Digital Life in 2025 - Experts Predict the Internet will Become 'Like Electricity' - Less Visible, more Deeply...
+- How the Deep Web Works
+- La Web Profunda - Qué es y cómo Acceder a ella - La Guía Definitiva
+- Los Servicios Secretos Rusos Quieren Cerrar el Acceso al 'Lado Oscuro' de Internet
+- Study suggests most "Dark Web" Users are Not Engaging in Illicit Activities
+- Qué es la 'Red Tor' y cómo puedes Usarla
+- What's the Dark Web and how to Access it in 3 Easy Steps
+Internet Privacy - Privacidad
+- Bill Gates "defends" Free Speech - Unless it hurts His Investments...!
+- CISPA - Four Viewpoints You Should Hear
+- CISPA Passes The House - Privacy Battle Moves to Senate
+- CREEPY Bill Gates Strikes Again with Windows 10
+- Defending Privacy at The U.S. Border - A Guide for Travelers Carrying Digital Devices
+- Di Quali 'Video Chiamati App' vi Potete Fidare?
+- Edward Snowden Divulges the 5 Easiest Ways to Protect Yourself Online
+- El Cofundador de 'Telegram' revela el "Secreto" por el que hay una Fuga de Usuarios de WhatsApp a su...
+- El Impactante Centro de Datos Submarino de China
+- Encryption Does Not Prevent Mass-Snooping - Snake-Oil Alert!
+- E.U. proposal to Scan All Private Messages gains momentum...
+- Europa se Asoma al Abismo del Control Digital - La UE podría escanear todos los Chats, incluso Cifrados...
+- Forget Privacy - By 2025 There Will Only Be The Watchers and The Watched
+- Forget WhatsApp - CIA has Tools to Hack almost All Social Media Platforms
+- Government Proposes Massive Shift in Online Privacy Policy
+- How Cookies Track You around the Web and How to Stop Them
+- How Privacy Became a Commodity for the Rich and Powerful
+- "I have Nothing to Hide - Why should I Care about my Privacy?"
+- Información Personal de Visitantes de Web Anti-Trump - Departamento de Justicia de EE.UU. exige...
+- Internet Privacy and Personal Access at Risk
+- Invasive Cyber Technologies and Internet Privacy - Big Brother is Only a "Ping" or Mouse Click Away
+- L'ORRIPILANTE Bill Gates colpisce Ancora con Windows 10
+- New Internet Privacy Service Moving Offshore - Here's Why
+- NSA and State Surveillance - 5-Part Special
+- Permaneciendo Anónimo en 'WIRE'
+- ¿Porqué me Vigilan, si no soy Nadie?
+- Privacy Protection and The Secret State's Surveillance Powers
+- ¿Qué es el 'Cyberbullying' y cómo Prevenirlo?
+- Sin Cifrado Perderemos toda la Privacidad - Este es nuestro Nuevo Campo de Batalla
+- Staying Anonymous on 'WIRE'
+- The FTC is investigating 'Data Collection' at YouTube, Facebook, and Seven other Companies including...
+- There is No More Encryption Debate - Backdoors Threaten the Whole World
+- The Secret State's Surveillance Machine - Undermining the American People's Right to Privacy
+- The Ultimate Online Privacy Guide
+- This Internet Provider Pledges to Put Your Privacy First Always
+- Which Video Call Apps can You Trust?
+- Worried Your Emails Might Be Spied On? - Here's what You can Do
+- Your Online Data is in Peril - The Blockchain Could Save It
+- CISPA - Why You Should Care
+- Nothing to Hide
+- Skynet 2.0 - Unstoppable Secret Network Bypasses Internet
+Internet Re-Evolution - Internet of Things - Internet of Bodies
+- 5G and 'Internet of Things' to Create Unprecedented Surveillance
+- 5G and IoT - Total Technological Control Grid being Rolled Out Fast
+- 6G - Manufactured Dystopia - Globalists Won't Stop Hacking Humans
+- 10 Ways Hackers Have Punked Corporations and Oppressive Governments
+- Anonymous Hits the New York Stock Exchange, World Bank, FED, and Vatican - Total Media Blackout
+- Anti-NSA "Blackphone" - Encrypted Smartphone Designed to Liberate Users from Total Surveillance
+- Anti-Piracy Efforts are Unlikely to Beat Sci-Hub
+- A Whole New Version of The Internet is About to Be Switched On
+- Beyond IoT and 5G - Internet of Bodies or IoB
+- Bienvenido al Internet Quántico
+- Bitcoin - The New World Order's Plot for A World Currency?
+- 'Bond Villain' Schwab and his WEF are Pushing the Internet of Bodies
+- Challenging The Dollar' - Bitcoin Total Value Tops $1 Billion
+- CIA Home Invasion - Smart TVs and The 'Internet of Things'
+- Científicos Almacenan en ADN un Sistema Operativo, una Película y un Virus de Computadora
+- Computer Scientists achieve 'Crown Jewel' of Cryptography
+- DARPA launches 'Project CHARIOT' in Bid to shield Big Tech Profits
+- Demonstration of Communication Using Neutrinos
+- Dimenticate Internet, presto ci sarà OUTERNET - Una società pianifica linea gratis Wi-fi per ogni persona...
+- DNA Fountain Enables a Robust and Efficient Storage Architecture
+- Documents Reveal NSA Reads Your Internet Chats - Here's How to Avoid Being Spied On
+- Domestic "Internet of Things" Begins to Merge With the Industrial Smart Grid
+- El Internet de Todo - Aniquilando el Tiempo y el Espacio
+- Elon Musk Unveils New Plan for Global Satellite Internet - While Google Invests a Billion in SpaceX
+- El Outernet
+- El Outernet se Une a La Carrera Espacial para la Accesibilidad al Internet
+- Europa Apuesta por la Revolución de la Web 3.0
+- Evade Government Surveillance Stay Anonymous Online
+- Fabricando la Sociedad Adicta
+- Fighting Back Against the "Intellectual Property" Racket
+- Five Ways to Avoid Pulling a "Petraeus" - Security for Your Email
+- Forget the Internet - Soon there Will Be the OUTERNET - Company Plans to Beam Free Wi-fi to Every...
+- Future Networks and The Internet - Early Challenges Regarding the "Internet of Things"
+- Giant 5G Drones in Hawaii Skies? - Pushback is Growing
+- How to Hide Your Digital Communications from Big Brother
+- How to Succeed at Becoming a Digital Nomad
+- How to Unblock Websites for Free and Why it Feels Good
+- How will We Live in the Year 2065? - Cities, Cyborgs and Social Science
+- Human Microchip Implants and the Internet of Bodies
+- IBM Gets Closer to Real Quantum Computing
+- International Internet Standards-Setting Body Pulls Away from U.S. Control, Citing Surveillance Concerns
+- Internet Freedom - Get Free Access to Anonymous VPNs Via University Project
+- Internet Launches Fightback Against State Snoopers
+- 'Internet of Bodies' may lead to 'Internet of Brains' by 2050 - RAND Corporation
+- Internet of Things in 2020 - A Roadmap for the Future
+- In the Room Where It Happens - Characterizing Local Communication and Threats in Smart Homes
+- Kim Dotcom wants to Encrypt Half of the Internet to End Government Surveillance
+- Lavabit and Silent Circle join forces to Make all Email Surveillance-Proof
+- New Tech Startup Predicts the Future by Decoding the Past
+- New VPN Technology Claims to Thwart Great Firewall of China
+- Nodo en la Red sin Consentimiento - Un Activo en una Base de Datos
+- Now Everyone Wants to Sell You a Magical Anonymity Router - Choose Wisely
+- Nuevo Inicio Tecnológico predice el Futuro Descifrando el Pasado
+- Olvídese del Internet, pronto Habrá el OUTERNET - Compañía Planea Irradiar desde el Espacio Wi-Fi...
+- Outernet Joins the Space Race for Internet Accessibility
+- Outernet - La Guerra de la Información Alcanza un Nuevo Nivel
+- Outernet - The Information War on a Whole New Level
+- People, Places, Things - Web Presence for The Real World
+- Potente Impulso al Internet Quántico - Consiguen la Teleportación Quántica entre dos Chips Fotónicos
+- Quantum Teleportation Breakthrough May Pave The Way for Quantum Computing
+- Radio.Garden - La Aplicación para Sintonizar cualquier Emisora del Planeta
+- Recordando 'Quiénes Somos Realmente' frente a la Revolución Digital
+- Remembering 'Who We Truly Are' in the Face of the Digital Revolution
+- Researchers Send "Wireless" Message Using Elusive Particles
+- Scientists Create a 5-atom Quantum Computer that Could Make today's Encryption Obsolete
+- Scientists Store on DNA an Operating System, a Movie and a Computer Virus
+- Set Citation Data Free..!
+- Tecnología sin Soberanía - Quién controla el flujo de Datos en América Latina
+- The Internet of Everything - Annihilating Time and Space
+- The Internet of Things - ITU Internet Reports 2005 - Executive Summary
+- The NSA is Working on Powerful Quantum Computing Technology
+- The Outernet
+- The Quantum Internet
+- The Technologies Building the Smart Cities of the Future
+- They are Using Lab-Grown Human Brains that they have Enslaved called "Organoids" to Run Computers
+- Turkey's Twitter Ban Collapse Fueled by VPNs and DNS Tricks
+- Turning The Tables on Big Brother - Now Internet Users Can Watch Who Is Spying on Them in Blow...
+- Under the Skin - The Internet of Bio-Nano Things
+- Un Estudio revela Amenazas para la Privacidad y la Seguridad en los Hogares 'Inteligentes'
+- Un Futuro Hecho de Lenguaje en el Que Podremos Programar Universos
+- UN Predicts 'Internet of Things'
+- Untangling The Web - A Guide to Internet Research - Large File
+- U.S. Government Developing Ultimate Cyber Weapon - Prime-Factoring Quantum Computing Makes...
+- Welcome to The Quantum Internet
+- What is a Quantum Computer?
+- Who Tracks the Trackers that Track You Online? - You Can, with 'Lightbeam'
+- WiFi + USB Drive = Your Own Mini-Internet (Freedom)
+- Wireless Neutrino Network Could Pass Through the Center of The Earth
+- World's First Anti-Propaganda Search Engine Launching Soon - Favors Independent Media while Banning...
+VPN:
+- A Glance through the VPN Looking Glass - IPv6 Leakage and DNS Hijacking in Commercial VPN clients
+- Alien-Level Tech Required to Crack New VPN Encryption Setup - Makers Say
+- Can You Trust Your VPN Provider ? - The Internet
+- Edward Snowden's Revelations and Implications to VPN Use in The Internet
+- How VPN Services Responded to Heartbleed
+- Israel espía los Mensajes Confidenciales de 1.600 Millones de Personas
+- Mastercard and Visa Start Banning VPN Providers
+- Proof that Using a VPN Keeps Piracy Lawsuits and 'Strikes' Away
+- VPN Provider Shuts Down after Lavabit Case Undermines Security
+- VPN Providers Respond to Allegations of Data Leakage
+- VPN Services that take Your Internet Anonymity Seriously - 2013 Edition
+- Which VPN Services take Your Anonymity Seriously? - 2014 Edition
+Metaverse
+- Defining, Building and Governing a Metaverse for "all" - The First Research of its Kind
+- Enter the Bizarre World of Mark Zuckerburg's 'Metaverse' - 'Blurring the Lines' of Reality with NWO Transhuman
+- Facebook Construirá el Metaverso - Una Plataforma de Realidad Virtual Corporativa
+- Hyperreality, Synchromysticism and Simulation
+- Meta Facebook - Metaverso Solamente
+- 'Meta' - Il Distacco Finale dalla Realtà?
+- 'Meta' - The Final Disconnect from Reality?
+- Metaverse - Augmented Reality Pioneer warns 'It could make Reality Disappear'
+- Metaverse è la 'Libertà' inflitta dai Tiranni Tecnologici
+- Metaverse is 'Freedom' Meted Out by Technological Tyrants
+- Openness and The Metaverse Singularity
+- Realidad Extendida (RX) - El Metaverso podría convertirse en el Nuevo Campo de Contención de la Humanidad
+- Snow Crash - by Neal Stephenson
+- Snow Crash - por Neal Stephenson
+- The Great Narrative and The Metaverse
+- The Link between Transhumanism and the Metaverse
+- The Metaverse - Reality Occulted
+- WEF - Living in Metaverse will be 'More Meaningful to us than our Physical Lives'
+Skype
+- Eurojust Supports Wire-Tapping of Skype Conversations
+- EU Wants to Intercept Encrypted VOIP Communications
+- Has Skype's VOIP Encryption Been Broken?
+- India to Ban Skype
+- Intelligent Traffic Manager
+- Investigation Launched in Luxembourg over Skype's Links to NSA Surveillance Programs
+- Lucha de Titanes - Skype se Blinda ante la Nueva Amenaza de WhatsApp
+- Microsoft Buys Skype and a Future in Telecommunications
+- NSA Offering 'Billions' for Skype Eavesdrop Solution - Business Model for P2P Firm at Last?
+- NSA Leaks Hint Microsoft May Have Lied about Skype Security
+- Skype Collaborated With NSA Long Before PRISM - The New York Times
+- Skype Encryption Stumps German Police
+- Skype Makes Chats and User Data More Available to Police
+- Skype Secrecy Under Attack Again - European Law Enforcement Pushes for The Ability to Monitor Internet...
+- Skype Security And Encryption Review Now Available
+- Skype Security Evaluation
+- Skype's Secret 'Project Chess' Reportedly Helped NSA Access Customers' Data
+- Skype With Care - Microsoft is Reading Everything You Write
+- Spooks Want Government to Block Skype
+- Taliban Using Skype Phones to Dodge MI6
+- Think Your Skype Messages Get End-to-End Encryption? - Think Again
+- Web's Reach Binds NSA and Silicon Valley Leaders
+Social Networks - Redes Sociales
+- Conozca la Nueva Red Social Cifrada 'Anti-Facebook' Respaldada por Anonymous
+- Conservative Lawyers file Major Lawsuit against Facebook, Twitter, Zuckerberg and Dorsey
+- Cualquier Excusa es Buena - Los Tecnócratas Globalistas y el Control
+- Depressione Digitale e Masse Solitarie
+- Digital Addiction - Increased Loneliness, Anxiety and Depression - by Erik Peper and Richard Harvey
+- Digital Addiction increases Loneliness, Anxiety and Depression
+- Digital Depression and Lonely Masses
+- EE.UU. busca obtener el Control de TikTok a cambio de su Futura Operatividad en el País - Forbes
+- Esta Mujer Predijo en 1994 el Lado Oscuro de las Redes Sociales de forma Increíblemente Lúcida
+- FBI Wants New App to Wiretap The Internet - 'Scraping' Social Network Postings Including Facebook and...
+- Facebook and The Internet - Main File
+- Facebook, Google and YouTube Censorship at an All Time High - What Ever Happened to Free Speech?
+- Firefox's new Privacy Feature stops Facebook Seeing what Else you Do Online
+- Harvard Professor Exposes Google and Facebook
+- Hegel, Filósofo de la Conciencia Absoluta, da Buena Razón para dejar de Perder Tiempo en Redes Sociales
+- La Industria de la Desinformación es un Sector Económico en Auge
+- ¿Las Redes Sociales nos están Convirtiendo en Idiotas?
+- Netflix, Facebook and the NSA - They're All in it Together
+- No More FOMO - Limiting Social Media Decreases Loneliness and Depression
+- Ogni Scusa è Buona - Tecnocrati Globalisti e Controllo
+- Pereza Cognitiva - Quien No Piensa es Fácil de Engañar
+- Pereza Cognitiva y Redes Sociales - ¿Cómo se Relacionan?
+- Poisoned Mind - Social Media in the 21st Century
+- Por qué las Redes Sociales son Terribles - Robert Sapolsky, el gran Experto en la Biología del Estrés
+- Profesor de Harvard Expone a Google y Facebook
+- Revealed About U.S. Spy Operation That Manipulates Social Media
+- Russia to Pass Fake News Law that would Fine Social Networks $793,000
+- Sobre el Embrutecimiento Colectivo de Nuestra Sociedad en la Era Digital
+- Social Media is Driving a Global Epidemic of Loneliness among Millennials
+- Social Radar for Smart Power
+- Study Shows that Reducing Use of Social Media Can Reduce Depression and Loneliness
+- Trapped in The Net - What They Don't Tell You About the Internet and Social Media
+- U.S. Government Software Creates 'Fake People' on Social Networks to Promote Propaganda
+- 'Word Camouflage' to Evade Content Moderation
+- Cómo 'Nos dejamos Manipular' por las Redes Sociales
+- 'El Dilema de las Redes Sociales' - Un Documental que nos Afecta a Todos
+Wi-Fi
+- Crean un Dispositivo para Transformar la señal Wi-Fi en Electricidad
+- Dimenticate Internet, presto ci sarà OUTERNET - Una società pianifica linea gratis Wi-Fi per ogni persona...
+- Do Wi-Fi Signals Kill Trees?
+- El WiFi Bloquea El Crecimiento de Las Plantas- La Amenaza Oculta del Internet Inalámbrico
+- Forget the Internet - Soon there Will Be the OUTERNET - Company Plans to Beam Free Wi-Fi to Every...
+- Il WI-FI Blocca la Crescita delle Piante - La Minaccia Occulta di Internet Senza Fili
+- Is Wi-Fi Killing American Trees?
+- Más Personas Reportan que la Conexión Wi-Fi los Enferma
+- More People Reporting Wi-Fi is Making them Sick
+- Scientific Papers Showing Adverse Biological Effects and Damage to Health from Wi-Fi
+- The Effect of a High Frequency Electromagnetic Field in the Microwave Range on Red Blood Cells
+- The Wi-Fi Alliance coming Soon to Your Neighborhood - 5G Wireless
+- What is Wi-Fi 7? - Everything You Need to Know
+- Wi-Fi Block Plant's Growing - European Acclaim for Grade 9 Experiment
+- Wi-Fi is an important Threat to Human Health
+- Wi-Fi - The Invisible Killing Fields
+- Scientists Make International Appeal on Dangers of Wi-Fi
+Wikipedia
+- Chilling Effects - Online Surveillance and Wikipedia Use
+- How Google and Wikipedia Brainwash You...!
+- La Russia Sostituisce Wikipedia con la Grande Enciclopedia Russa
+- Propaganda - Cofundador de Wikipedia dice que sitio Web se ha Transformado en un Patio de Recreo para...
+- Russia to Replace Wikipedia with the 'Great Russian Encyclopedia'
+- The Jewish Hand Behind Internet - Google, Facebook, Wikipedia, Yahoo!, MySpace, eBay...
+- The Wikipedia Revolution - How a Bunch of Nobodies Created the World's Greatest Encyclopedia - by Andrew Lih
+- Wikipedia - A Disinformation Operation?
+- Wikipedia creará una Red Social para Combatir la Ignorancia que Facebook Fomenta
+- Wikipedia è divenuta "La Mente della Polizia dell'Establishment" - Larry Sanger ha Ragione
+- Wikipedia has become the 'Establishment Thought Police' - Larry Sanger is Right
+- Wikipedia is an Information Warfare Tool
+- Wikipedia - The George Soros Connection
+- Wikipedia - Un'Operazione per Disinformare?
+- Conspiracy Theories - White Paper by Cass R. Sunstein
+- Sandworm - A New Era of Cyberwar and the Hunt for the Kremlin's Most Dangerous Hackers - by A. Greenberg
+- The Internet of Things - A critique of Ambient Technology and The All-Seeing... - by Rob van Kranenburg
+- The Machine Stops - by E.M. Forster
+- The People's Platform - Taking Back Power and Culture in the Digital Age - by Astra Taylor
+- The Revolt of the Public and the Crisis of Authority in the New Millennium - by Martin Gurri
+- The Wikipedia Revolution - How a Bunch of Nobodies Created the World's Greatest Encyclopedia - by A. Lih
+- Understanding Media: The Extensions of Man - by Marshall McLuhan
+Multimedia
+- Alex Jones sobre la Censura en Internet
+- A Glimpse Ahead
+- Bigger Brother - Total Surveillance Comes to UK
+-¿Como Será Internet Hacia el 2015?
+- Deep Packet Inspection - Democracy Now!
+- El Final de Internet - ¿Pagarías Un Peso por Leer tu Sitio Web?
+- El Mundo Según Google
+- Fighting in The Fifth Dimension - The Cyberworld is A New Frontline
+- Fraud Fighters - Hackers expose Illegal Call Centers and Phone Scams - Marketplace
+- High-speed Internet from Outer Space
+- HyperNormalisation
+- Internet Rising
+- Is the Internet Being Used to Shape Our Reality?
+- Jay Rockefeller - "Internet Should Have Never Been Invented"
+- La Teoría de Los Seis Grados - Sincronicidad y La Estructura de Redes
+- Lawrence Lessig Predice Un i-9/11
+- Menaces Sur l'INTERNET en 2012
+- Our Mysterious Governance System and AI - Who and What is in Charge Here on Planet Earth?
+- Revolución Virtual
+- Rickard Falkvinge and The Internet - Swedish "Pirate Party" Founder - Interview by Federico Mello
+- Stare Into the Lights My Pretties
+- The Death of The Internet?
+- The Future of The Internet - Lawrence Lessig, Joichi Ito and Phil Rosedale
+- The Little Known Internet - Secret Web
+- They're Censoring Your Reality (Alex Jones)
+- U.S. Agenda to Censor Internet - EE.UU. = CHINA - Patriot Act For Internet Ahead?
+- Web of Deceit - Bilderberg and UK Internet Censorship
+External Links
+- Como Evitar la Censura en Internet
+- How to Bypass Internet Censorship
+Related Reports
+- Cell Phones - Microwave Radiation - Main File
+- Computer Simulation - Main File
+- Conspiracy Theories - Main File
+- The Echelon Network - Main File
+- The NSA - The Super Secret National Security Agency - Main File
+- The Trans-Pacific Partnership - Main File
+Return to EndGame
+Return to The Human Brain
+Return to Temas / Main Files
+Return to The New World Order
+Return to Big Brother Loves You...
+Return to The Global Media Control

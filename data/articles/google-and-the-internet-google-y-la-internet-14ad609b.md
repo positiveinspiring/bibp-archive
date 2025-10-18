@@ -1,0 +1,243 @@
+# Google and The Internet - Google y La Internet
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_internetgoogle.htm
+
+Contents
+- ¡Adiós a Google!
+- Beware of Google
+- Big Broother Is Well-Connected - And Then There Were Four - The Google Saga Continue...
+- Big Tech Giants want to Prove they are 'American Gods' - Anyone watching 'the Watchers'...?
+- Big Tech 'Indenture entire Populations into Servitude' to Corporations and Governments - Snowden
+- Bilderberg, Google and The G8 - New Global Tax Regime Already in The Works
+- Bilderberg Wields Artificial Intelligence - "A Tool to Massively Amplify Our Ability to Control the World"
+- Boom... Google Crushes Traffic to a Website by 99%
+- Cómo Facebook y Google Financian Masivamente el Periodismo en Todo el Mundo
+- Como Google Puede Manipular el Resultado de Todas las Elecciones Democráticas del Mundo
+- Con la Censura Unilaterale di un Presidente in Carica Big Tech ha Dimostrato che è più Potente di qualsiasi Gov.
+- Control 101 - Creating Consensus Reality
+- Cosa Succederà se Facebook e Google si Impossessano del Mondo?
+- Cuidado con la Manipulación de las Empresas de Tecnología como Google
+- Debido a la I.A. la "Internet como la conocías ya No Existe" - Matthew Prince, CEO de Cloudflare
+- Deep Web - La Rete oltre Google
+- Director of DARPA Departs Pentagon for Google - Further Reinforcing Government Ties
+- Dismantling the Transhumanist Agenda
+- Don't Be Evil Google!
+- El Denunciante que Expuso la Profunda Conspiración de Google para Derrocar al Gobierno de EE.UU.
+- El Duopolio de Facebook y Google está Acabando con Todos los otros Medios Digitales
+- ¿El Fin de Google? - La Batalla que cambia 'Internet como lo conocemos'...
+- El Imperativo de Reemplazar Google y Facebook
+- El Matrimonio de Big Data con Big Brother - China crea Sistema para Evaluar Conducta de sus Ciudadanos
+- El Riesgo que Corremos Abandonando al Mundo a Google y Facebook - Monopolios Peligrosos
+- El Verdadero Origen de Google está Vinculado a la CIA
+- Eric Schmidt Admits Google+ Is a Giant Advertising Database
+- EU warns Google CEO Sundar Pichai - It Won't allow the Web to remain the 'Wild West' any longer
+- Ex-Empleados de Facebook y Google Luchan contra la Tecnología que Construyeron
+- Ex-Impiegati di Facebook e Google Lottano contro la Tecnologia che hanno Costruito
+Español
+- Experto Explica por qué se debería Dejar de Usar Google Chrome
+- Gmail de Google Escanea, Controla la Sintaxis, Analiza y Cataloga tu Correo Electrónico
+- Goodbye Google - Some reasons to 'De-Google Your Life Now'
+- Google Adds to Its Menagerie of Robots
+- Google - A Dictator Unlike Anything the World has Ever Known
+- Google admits in Court Documents that it believes "Free Speech is Disastrous" for Society
+- Google and Facebook Accused of Bypassing iPhone's Privacy Settings to Spy on Owners to Build...
+- Google and Facebook - Alliances With Intelligence to Make Privacy Obsolete
+- Google and YouTube have Created a Culture of Censorship
+- Google Announces Privacy Changes Across Products - Users Can't Opt Out
+- Google Anuncia Cambios de Privacidad en Todos los Productos - Los Usuarios No Pueden Elegir...
+- Google Archipelago - The Digital Gulag and the Simulation of Freedom - by Michael Rectenwald
+- Google Assumes Role of Private Intel Big Brother
+- Google Buys Boston Dynamics
+- Google Charges Feds $25 A Head For User Surveillance
+- Google Chrome is Tracking Your Every Move and Storing it - This is How to Stop It
+- Google Chrome's New Feature - Spying On You for Google
+- Google Claims 'Quantum Supremacy' - Marking a Major Milestone in Computing
+- Google Claims to Have Reached Quantum Supremacy
+- Google Developing Eavesdropping Software - Audio 'Fingerprint' for Content-Relevant Ads
+- Google Devising Method to Rank Websites by Truthfulness
+- Google Executive Expresses Wacky Thoughts on Internet Domination
+- Google Gives New Meaning to "Orwellian" - Becomes Ministry of Truth
+- Google Has Become Orwell's "Ministry of Truth"
+- Google is Evil and We Must Denounce Its Stunning Hypocrisy
+- Google is Not What It Seems
+- Google is Tightening its Grip on Your Website
+- Google is Watching You - Meet Jigsaw: Google's Intelligence Agency
+- Google latest Search Engine Update crushes Traffic to "Inconvenient" Websites
+- Google Megalomaniacs in Bed with Pentagon/NWO Lunatics
+- Google - None Dare Call It Sedition
+- Google nos Vigila - El Caso de los Servicios Médicos
+- Google Plans To Kill Web In Internet Takeover Agenda
+- Google Proclama la 'Supremacía Quántica' con el Ordenador más Potente
+Italiano
+- Google Proclama la "Supremazia Quantica" col il Computer più Potente
+- Google Putting CNN, Washington Post, NYT in Charge of Fact-Checking News
+- Google Re-establishes Relationship With Government Spies
+- Google's Chrome Web Browser "Has Become Spy Software"
+- Google Secretly Planting Cookies on Millions of iPhone Browsers - Your FTC Privacy Watchdogs
+- Google Seeks Internet Surveillance of the Smart Grid
+- Google's Eric Schmidt and the Artificial Intelligence Military-Industrial Complex
+- Google Spans Entire Planet With GPS-Powered Database
+- Google's "Quantum Supremacy"...?
+- Google Starts Watching What You Do Off The Internet Too...
+- Google Street View Secretly Took Your Wi-Fi Details ...And Will Use The Data to Target Ads at Mobile...
+- Google's True Origin Closely Tied to the CIA (Central Intelligence Agency)
+- Google's True Origin partly lies in CIA and NSA Research Grants for Mass Surveillance
+- Google - The Perfect Compliment to Big Brother
+- Google to Fund and Develop Wireless Networks in Emerging Markets
+- Google - Who's Looking At You?
+- Google y La Ultima Trampa para Proteger a Los Poderosos
+- Harvard Professor Exposes Google and Facebook
+- How Facebook and Google provide Massive Funding to Journalism around the World
+- How Google and Wikipedia Brainwash You...!
+- How Google Could Rig the 2016 Election
+- How Google is Secretly Recording You through your Mobile - Monitoring Millions of Conversations Every Day
+- How Google spent 15 Years creating a 'Culture of Concealment'
+- How Wide Does This Go? - Now Google Devices 'Found to Transmit User Locations Back to The Company'
+- Il Duopolio Facebook e Google sta Distruggendo Tutti gli altri Media Digitali
+- Is Big Tech merging with Big Brother?
+- Is Google Making Us Stupid? - What The Internet Is Doing to Our Brains
+- Is Google's 'DeepMind AI' close to 'Human-Level' Intelligence?
+- Julian Assange - 'Google is Not What it Seems' - They 'Do Things the CIA Cannot'
+- L'Ascesa di Internet 2.0
+- Las Razones por las que ya No Debería Utilizar Google y Gmail
+- La Trampa de Google - ¿Su Inteligencia Artificial está Manipulando Cerebros?
+- La Verdadera Razón por la que Google y YouTube Censuran la Verdad sobre las Vacunas
+- L'Imperativo di Sostituire Google e Facebook
+- Lo Que Google Sabe Acerca de Tí
+- Los Secretos de Silicon Valley - Lo que el Big Tech No Quiere que Sepas
+- Lost in The Cloud - Google and The U.S. Government
+- Nace una Nueva Tecnología con Graves Implicaciones para El Futuro
+- New Global Internet Censorship Tool Kit - By Google...
+- New Google Algorithm Restricts Access to Left-wing and Progressive Web Sites
+- Orwell Acertó - El "Ministerio de la Verdad" ya Existe
+- Our Quantum Computer is 100 million Times Faster than a Conventional System - Says Google
+- ¿Porqué me Vigilan, si no soy Nadie?
+- 'Privacy Is a Casualty' of Google and Facebook's Success - Senator Al Franken
+- Profesor de Harvard Expone a Google y Facebook
+- Quello che Google Sa su Di Te
+- ¿Qué Pasará si Facebook y Google se Apoderan del Mundo?
+- Raging Against the Algorithm - Google and Persuasive Technology
+- Revelan un Nivel Récord de 'Espionaje' Gubernamental de EE.UU. a Través de Google
+- Secrets of Silicon Valley - What Big Tech Doesn't Want You to Know
+- 'Selfish Ledger' Video reveals Google's Scheme to Direct Human Evolution
+- 'Shadow Banning' is Just the Tip of the Iceberg - We're All Digital Ghosts Now
+- Showdown in Europe - Tech Giants Brace for Sweeping EU Privacy Law
+- Skynet is Coming - Google Uses "Virtual Brain" to Improve Voice Recognition
+- Some Reasons Why Google Wants to Build the Perfect Human
+- Spanner - Google's Globally-Distributed Database
+- The All-Seeing-Eye of Google and the Future of Criminal Investigations
+- 'The Creepy Line' - A New Documentary on the Power of Tech Giants
+- 'The Good Censor' - Leaked Google Briefing admits Abandonment of Free Speech for 'Safety and Civility'
+- The Imperative of Replacing Google and Facebook
+- The New Gatekeepers - How proprietary Algorithms increasingly Determine the News We See
+- The Paris Lawyer who Gives Google Nightmares - The New Clash between Free Speech and Privacy
+- The Rise of Internet 2.0
+- The Whistleblower who Exposed Google's Deep Conspiracy to Overthrow the U.S. Government
+- Turning The Tables on Big Brother - Now Internet Users Can Watch Who Is Spying on Them in Blow...
+- Una IA Financiada por Google será Capaz de escribir 30 Mil Historias Mensuales para Otros Medios en...
+- U.S. Government Officially Conscripts Google into the Military Industrial Complex
+- Verdades Ocultas de Google - Reuniones a Puerta Cerrada y Juguetes para Espiar a los Niños
+- What Google Knows About You
+- When A.I. takes Control of Your Computer
+- With Unilateral Censorship of a sitting US President, Big Tech has proven it's more Powerful than any Govern...
+- 'You Have to Fight for Your Privacy or You Will Lose It' - Google's Eric Schmidt Interview
+- Your Secret Wi-Fi Password is No Secret to Google
+Additional Information
+- 7 Tips to Optimize Identity Protection
+- A Generalist Agent
+- Antarctica Mysteries
+- Big Brother Is Well Connected - Google's Growing Domination
+- Big Brother Not Just Spying on Schoolchildren Through Their Laptops
+- Dystopia or Utopia - Google's City of the Future in Toronto
+- Elon Musk Unveils New Plan for Global Satellite Internet - While Google Invests a Billion in SpaceX
+- Exposed The Covert, Real-Time Spying on Youtube, Facebook and Blogs
+- Firefox's new Privacy Feature stops Facebook Seeing what Else you Do Online
+- Going With The Flow - Google's Secret Switch to The Next Wave of Networking
+- Google-Twitter Cave to International Censorship Pressure
+- Google versus Muerte - ¿El Combate del Siglo?
+- Insanity - New Google Glass App Will Read Other People's Emotions
+- Invasive Cyber Technologies and Internet Privacy - Big Brother is Only a "Ping" or Mouse Click Away
+- Is Google Censoring Nibiru-Planet X?
+- Kill Off The Open Internet - Verizon-Google - There's a Hard Rain Coming
+- Knowledge-Based Trust - Estimating the Trustworthiness of Web Sources
+- Kurzweil and Google Working Together to Develop Technology for Immortality
+- La Religión del Dataísmo y el Posible Fin del Homo Sapiens
+- Last Chance Before Google Rounds Up Your Web History
+- Shocking Censorship at Google News and The Future of Net Neutrality
+- Sites Feed Personal Details to New Tracking Industry
+- The Age of Tyrannical Surveillance - We're Being Branded, Bought and Sold for Our Data
+- The Anatomy of a Large-Scale Hypertextual Web Search Engine
+- The Good Censor - A Google Leak
+- The Jewish Hand Behind Internet - Google, Facebook, Wikipedia, Yahoo!, MySpace, eBay...
+- The Many Ways Google Wants to RFID Chip Your Body
+- The Oligarch Takeover of U.S. Media
+- Transhumanism - From MK-Ultra to Google
+- Transhumanismo - Desde el MK-Ultra hasta Google
+- Untangling The Web - A Guide to Internet Research - Large File
+- When Capitalism Meets Civic Tech
+- Who Will Save Us from The Future? - What Google Has Done to Life on Earth
+- Why MIT Scientists are Building a New Search Engine "Google 2.0"
+- World's First Anti-Propaganda Search Engine Launching Soon - Favors Independent Media while Banning...
+Google and The CIA-NSA
+- Department of Justice Wants Court to Keep Google/NSA Partnership Secret
+- Google and CIA Plough Millions Into Huge 'Recorded Future' Monitoring Project
+- Google and The NSA Connection
+- Google and The NSA - Who's Holding The 'Shit-Bag' Now?
+- Google Asks NSA to Help Secure Its Network
+- Google, CIA and the NSA - Inside the Secret Network behind Mass Surveillance, Endless War and Skynet
+- Google, CIA Invest in 'Future' of Web Monitoring
+- Google Partners With NSA, CIA on Intelligence Database
+- Google's New Search Tool to Use CIA and World Bank as Sources for 'Facts'
+- Google Teams Up With CIA to Fund "Recorded Future" Startup Monitoring Websites, Blogs & Twitter...
+- Google to Enlist NSA to Help It Ward Off Cyber-Attacks
+- Google, Your Files and The CIA
+- How Google, Facebook, Skype, Yahoo and AOL are All Blatantly Lying to Their Own Users in Denying NSA...
+- How Much did CIA and NSA have to do with the Founding of Google?
+- How the CIA made Google
+- How the NSA Spies on Your Google and Yahoo Accounts
+- Intelligence Community Massive Digital Data Systems Initiative
+- Latest Docs Show Financial Ties Between NSA and Internet Companies - Google, Yahoo, Microsoft and...
+- NSA, GCHQ Using Data from 'Leaky' Smartphone Apps to Spy
+- NSA Infiltrates Links to Yahoo and Google Data Centers Worldwide - Snowden Documents Say
+- NSA Prism Program Taps into User Data of Apple, Google and Others
+- Security-Enhanced Android - NSA Edition
+- Skynet Rising - Google Acquires 512-qubit Quantum Computer - NSA Surveillance to Be Turned Over to...
+- The Google-NSA Alliance - Developing Cybersecurity Policy at Internet Speed
+- The NSA has Inserted its Code Into Android OS, or Three Quarters of All Smartphones
+- Use These Secret NSA Google Search Tips to Become Your Own Spy Agency
+- Why Google made the NSA
+- Yes, The FBI and CIA Can Read Your Email - Here's How
+Multimedia:
+- Google Created by CIA NSA Blocking Dissidents & Whistleblowers Government Cyber Warfare &...
+- Google Teams Up with CIA - Democracy Now - June 2010
+YouTube
+- FaceBook, Google and YouTube Censorship at an All Time High - What Ever Happened to Free Speech?
+- Feds Order YouTube To Remove Video For Containing "Government Criticism"
+- German Library Claims Copyright on "Nazi Anthem" Censors Documentary on YouTube
+- Google-YouTube reverses policy Banning Critics of Masks and Vaccines - After Years of Silencing the Truth
+- Los Oscuros Contratos de Elon Musk con la Inteligencia Estadounidense
+- YouTube amplía su Censura hacia Terapias Alternativas como "Formas de Desinformación Médica"
+- YouTube Censors Video Interview With Jeffrey Smith About GMOs
+- The Age of Surveillance Capitalism - by Shoshana Zuboff
+- The Silicon Jungle - A Novel of Deception, Power, and Internet Intrigue - by Shumeet Baluja
+Multimedia
+- Counter-Intelligence - Shining a Light on Black Operations
+- El Mundo Según Google
+- Facebook, Google, Yahoo are Spying Tools - Julian Assange
+- Google - Behind The Screen
+- Google - Fabrica de Ideas
+- Google Earth - Unusual and Secret Images
+- Google Reveals 'Scary' Timeline Feature that Tracks Your Every Move
+- Google's Jigsaw to Be Used to Undermine Alternative Media?
+- Monsters Inc. - Amazon, Google and Facebook
+- ¿Porqué me Vigilan, si Soy Nadie?
+- Secret Meeting Between Julian Assange and Google CEO Eric Schmidt - Audio
+- The Creepy Line - Social Media's Manipulation of Society
+Related Reports
+- Facebook and The Internet - Main File
+- The NSA - The Super Secret National Security Agency - Main File
+- Windows-Microsoft-Bill Gates - Main File
+Return to Temas / Main Files
+Return to The Global Media Control
+Return to CIA - The Central Intelligence Agency
+Return to The End of The Internet... As We Know It?

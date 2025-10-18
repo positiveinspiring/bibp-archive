@@ -1,0 +1,280 @@
+# Facebook and The Internet - Facebook y La Internet
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_internetfacebook.htm
+
+Contents
+- About Facebook
+- Acclaimed Journalist and Author explains what Social Media is Doing to Society
+- Activists Claim Purge of Facebook Pages
+- A Look into Facebook's Potential to Recognize Anybody's Face
+- Another Facebook Executive issues Warning about its Disastrous Effect on Psychology and Society
+- As Facebook becomes TikTok, a new 'Feeds' tab ditches the Algorithm
+- Association of Facebook Use with Compromised Well-Being - A Longitudinal Study
+- Big Tech Companies agree to Work together in 'Internet Freedom Crackdown'
+- Big Tech Giants want to Prove they are 'American Gods' - Anyone watching 'the Watchers'...?
+- Big Tech 'Indenture entire Populations into Servitude' to Corporations and Governments - Snowden
+- Bulgarian Privacy Activist Buys A Million Facebook IDs For A Sandwich, Essentially
+- Capitalismo de Vigilancia - Algoritmos para Manipular la Opinión Pública y la Caída de Facebook
+- Causa del Apagón Global de Facebook y Servicios - Experto explica cómo se puede "Desconectar una parte..."
+- CIA Gets in Your Face(Book)
+- CIA's "Vengeful Librarians" Track Facebook
+- Cinco Razones para No Dejarse Atrapar por Facebook
+- Come Facebook diventa TikTok, una nuova scheda "Feed" elimina l'Algoritmo
+- Cómo Facebook se convirtió en un Cómplice de la Censura y de las Agencias de Inteligencia de EE.UU.
+- Cómo Facebook y Google Financian Masivamente el Periodismo en Todo el Mundo
+- Con la Censura Unilaterale di un Presidente in Carica Big Tech ha Dimostrato che è più Potente di qualsiasi Gov.
+- Conservative Lawyers file Major Lawsuit against Facebook, Twitter, Zuckerberg and Dorsey
+- Cosa Succederà se Facebook e Google si Impossessano del Mondo?
+- Dejar Facebook antes de que nos deje a Nosotrxs
+- Día Mundial Sin Facebook - 28 de Febrero
+- Digital Addiction increases Loneliness, Anxiety and Depression
+- Di quale Stimolo in più Avete Bisogno per Abbandonare le Reti Sociali?
+- Doctors Warn About 'Facebook Depression' in Teens
+- Documentos revelan 'Portal Secreto de Twitter' que el Gobierno usó para Censurar contenidos sobre COVID-19
+- Does Posting Facebook Status Updates Increase or Decrease Loneliness? An Online Social Networking...
+- Don't Replace Facebook - Disrupt It!
+- Edward Snowden Exposes Unsettling Truth about What Facebook Really Is
+- El Duopolio de Facebook y Google está Acabando con Todos los otros Medios Digitales
+- El Experimento de Facebook y Sus Raíces con La CIA
+- El Imperativo de Reemplazar Google y Facebook
+- El Matrimonio de Big Data con Big Brother - China crea Sistema para Evaluar Conducta de sus Ciudadanos
+- El Nocivo Efecto de 'Confesar' nuestros Problemas Personales en Redes Sociales
+- El Poder Político de Facebook
+- El Riesgo que Corremos Abandonando al Mundo a Google y Facebook - Monopolios Peligrosos
+- Envy on Facebook - A Hidden Threat to Users' Life Satisfaction?
+- ¿Es Facebook una 'Máquina de Destrucción Masiva'?
+- Espionaje en La Red - 'Facebook' Es de La CIA
+- Este Inquietante Documental en Netflix exhibe 'El Lado Oscuro' de Facebook, Twitter y otras Redes Sociales
+- Even Bigger Big Brother - Facebook Purchases Israeli Facial Recognition Company Face.com
+- Ex-Empleados de Facebook y Google Luchan contra la Tecnología que Construyeron
+- Ex-Facebook Chief Sean Parker warns Site Was Built to Exploit People's Weaknesses
+- Ex-Impiegati di Facebook e Google Lottano contro la Tecnologia che hanno Costruito
+- Facebook and Global Warming - Extending its Legacy of Science Denial
+- Facebook and the Electroencephalography Dictionary
+- Facebook as the Ultimate Government Surveillance Tool?
+- Facebook at 517 Million Users Suppresses ET/UFO Disclosure With Cointelpro Spying, Censorship
+- Facebook Bans Pages Calling for Palestinian Uprising
+- Facebook becomes Godzilla News Outlet for Disinformation
+- Facebook Buys Face.com... At What Privacy Cost?
+- Facebook Causes 'Psychotic Episodes and Delusions', Claims Study
+- Facebook Censors Prominent Political Critics
+- Facebook Dangerous Individuals and Organizations List
+- Facebook DC Connection - CIA
+- Facebook descubre un Peligro Imprevisto en el desarrollo de la Inteligencia Artificial
+- Facebook - ¿Es de La CIA?
+- Facebook, Google and YouTube Censorship at an All Time High - What Ever Happened to Free Speech?
+- Facebook is A Giant Data Mining Operation with Numerous Government Connections
+- Facebook is Tracking Your Every Move on the Web - Here's How to Stop It
+- Facebook is Working on a Smartphone that Can Read Thoughts
+- Facebook Knows More about You than the CIA
+- Facebook, la CIA y los Clinton
+- Facebook - La Normalización de lo que Nunca debió ser Normal
+- Facebook, las Redes Sociales y el Simulacro del Empoderamiento
+- Facebook Mind Control Experiment was Nothing Compared to the Deliberate Manipulations of The Mass...
+- Facebook o la Devaluación de la Privacidad y la Normalización de la Vigilancia
+- 'Facebook' o La Inocencia de La Tecnología IV
+- Facebook Partners with Globalist Atlantic Council to Interfere in Elections around the World
+- Facebook - ¿Red Social o Agencia de Espionaje?
+- Facebook - Rete Sociale o Agenzia di Spionaggio?
+- Facebook says its 'Rules Apply to All' - Company Documents reveal a Secret Elite that's Exempt
+- Facebook's Emotional Consequences - Why Facebook causes a Decrease in Mood and why People still...
+- Facebook's History of Tracking You - It's Complicated...
+- Facebook's 'Secret Blacklist' Exposed - Hitler, Hamas and... Hillbilly Militia Squad?
+- Facebook's War on Cognitive Liberty
+- Facebook, the CIA and the Clintons
+- Facebook Tracks You Even After Logging Out
+- Facebook Unlike - Users Flee, Sales Drop, Scramble for Relevance
+- Facebook Using Deep Data Mining to Destroy Privacy
+- Facebook y el Diccionario de Electroencefalografía
+- Facebook - You Don't Own Your Face, We Do...
+- Facebook y Redes Sociales - Medio Conveniente Para Espionaje
+- Firefox's new Privacy Feature stops Facebook Seeing what Else you Do Online
+- Five of the Darkest Facebook Secrets
+- Frances Haugen isn't a Whistleblower
+- Google and Facebook Accused of Bypassing iPhone's Privacy Settings to Spy on Owners to Build Ad...
+- Google and Facebook - Alliances With Intelligence to Make Privacy Obsolete
+- Harvard Professor Exposes Google and Facebook
+- Hegel, Filósofo de la Conciencia Absoluta, da Buena Razón para dejar de Perder Tiempo en Redes Sociales
+- How Facebook and Google provide Massive Funding to Journalism around the World
+- How Google, Facebook, Skype, Yahoo and AOL are All Blatantly Lying to Their Own Users in Denying NSA...
+- I Asked a Privacy Lawyer What Facebook's New Terms and Conditions Mean for You
+- Il Duopolio Facebook e Google sta Distruggendo Tutti gli altri Media Digitali
+Español
+- India Rechaza Plan de Facebook para Explotar a los Más Pobres del Mundo con Internet Privado
+- India Rejects Facebook Plan to Exploit World's Poorest with Private Internet
+- Is Big Tech merging with Big Brother?
+- Is Facebook Envy Making You Miserable?
+- Israelis Call Off Operation After Facebook Fiasco
+- It's Official - Facebook Is the Department of PreCrime
+- La Agenda de Facebook - Una Matrix dentro de otra Matrix
+- La Empia Trinità - Facebook come Dato di Fatto, Governo come Verità, Big Pharma come Dio
+- La Fortuna de Zuckerberg creció 6 Veces por esta razón...
+- La Sobrecarga de Información es un Arma de Control
+- ¿Las Redes Sociales nos están Convirtiendo en Idiotas?
+- Le Spie Sempre di Più Usano Facebook e Twitter per Prendere Dati
+- L'Imperativo di Sostituire Google e Facebook
+- L'India Rifiuta il Piano di Facebook per Sfruttare i Più Poveri al Mondo con Internet Privato
+- Los Orígenes Militares de Facebook
+- Los Secretos de Silicon Valley - Lo que el Big Tech No Quiere que Sepas
+- Los Secretos Servicios de Facebook - Espionaje en La Red
+- Man Buys 1 Million Facebook Users Personal Information for $5
+- Mark Zuckerberg Awarded CIA Surveillance Medal - Facebook
+- Medios de Comunicación en Línea - La Promesa y el Peligro
+- Mejor Elimine su Cuenta antes que Publicar esto en Facebook
+- Non Continuare a Permettere che Facebook Controlli le Tue Notizie - Dice Snowden al Mondo
+- No sigas Permitiendo que Facebook Controle tus Noticias - Dice Snowden al Mundo
+- Not all Speech is "Created Equal" says Facebook Security Officer
+- No todo Lenguaje es "Creado Igual" dice Oficial de Seguridad de Facebook
+- Online Media - The Promise and the Peril
+- Passive Facebook usage Undermines Affective Well-Being - Experimental and Longitudinal Evidence
+- People are Horrified After Downloading their Facebook Data - They Keep Texts, Phone Calls and More...
+- People who like Embarrassing or Angering Others find Social Media more Addictive - Study says...
+- ¿Porqué estamos Todavía utilizando Facebook?
+- ¿Porqué me Vigilan, si no soy Nadie?
+- 'Privacy Is a Casualty' of Google and Facebook's Success - Senator Al Franken
+- Privacy Lawyers Sell Out Facebook Users for $10 Million
+- Profesor de Harvard Expone a Google y Facebook
+- ¿Qué más Estímulos Necesitas para Abandonar las Redes Sociales?
+- ¿Qué Pasará si Facebook y Google se Apoderan del Mundo?
+- ¿Quiere Ser Feliz en 2017...? - ¡Sálgase de Facebook!
+- Secrets of Silicon Valley - What Big Tech Doesn't Want You to Know
+- Seeing Everyone Else's Highlight Reels - How Facebook Usage is Linked to Depressive Symptoms
+- 'Shadow Banning' is Just the Tip of the Iceberg - We're All Digital Ghosts Now
+- Showdown in Europe - Tech Giants Brace for Sweeping EU Privacy Law
+- Snapchat vs. Facebook - Differences in Problematic use, Behavior change attempts, and Trait social reward...
+- Soros-funded "Media Matters" caught Secretly Plotting with Facebook to Stop Alternative Media
+- Spies Increasingly Using Facebook-Twitter to Gather Data
+- Stop Letting Facebook Control Your News - Says Snowden to the World
+- Study Shows that Reducing Use of Social Media Can Reduce Depression and Loneliness
+- Surprising Numbers of Teens Refuse to Use Social Media
+- The Battle for Facebook
+- 'The Creepy Line' - A New Documentary on the Power of Tech Giants
+- The Enormous Implications of Facebook Indexing 1 Trillion of Our Posts
+- The Facebook Agenda - A Matrix within a Matrix
+- The 'Facebook' Catch - With Friends Like These...
+- The Facebook Experiment - Quitting Facebook Leads to Higher Levels of Well-Being
+- The Facebook Experiment - The Happiness Research Institute, 2015
+- The Facebook Files - Show 'Brazen and Aggressive' Censorship
+- The Founding of Facebook - The Accidental Billionaires - A Tale of Sex, Money, Genius and Betrayal
+- The Imperative of Replacing Google and Facebook
+- The Interplay between Facebook use, Social Comparison, Envy, and Depression
+- The Last Days of Facebook?
+- The Military Origins of Facebook
+- The New Gatekeepers - How proprietary Algorithms increasingly Determine the News We See
+- Threats to belonging on Facebook - Lurking and Ostracism
+- Toward an Integrated and Differential Approach to the Relationships Between Loneliness, Different Types...
+- Trilateral Commission Technocrat Served as Director of Facebook
+- Una Filtración revela que Facebook exime de sus Reglas a una 'Élite Secreta'
+- Unholy Trinity - Facebook as Fact, Government as Truth, Big Pharma as God
+- Want to be Happy in 2017? - Get Off Facebook!
+- We made Facebook as 'Addictive as Cigarettes' on Purpose - Says former Employee
+- What I Can Say and What I Cannot Say...
+- Who Created Facebook to be the Ultimate Surveillance Tool?
+- Why Are We Still Using Facebook?
+- Why doesn't Facebook just Buy Your Data if it's so Valuable?
+- Why we should Reject Mark Zuckerberg's Dehumanizing Vision of a "Metaverse"
+- With Unilateral Censorship of a sitting US President, Big Tech has proven it's more Powerful than any Govern...
+- You May Have Been a Lab Rat in a Huge Facebook Experiment
+- Zuckerberg warns that AI Companies 'Trying to Create God'... but he will "Save Us"...
+Additional Information
+- Are My "Friends" Even Real People? - Revealed That Air Force Ordered Software to Manage Army of Fake Virtual People
+- Billionaire Tech Moguls intend to Remake America's Schools
+- "Celebrities"
+- Compare the NSA's Facebook Malware Denial to its Own Secret Documents
+- Conozca la Nueva Red Social Cifrada 'Anti-Facebook' Respaldada por Anonymous
+- El Futuro de la Humanidad depende de un Código de Ética para el Diseño de la Tecnología
+- Esta Mujer Predijo en 1994 el Lado Oscuro de las Redes Sociales de forma Increíblemente Lúcida
+- Exposed The Covert, Real-Time Spying on Youtube, Facebook and Blogs
+- Facebook Sufre Histórico Retroceso - ¿El Principio Del Fin o Una Mala Temporada?
+- Have 'Tall Gray Alien Leaders' just been Captured by the Galactic Federation?
+- How to Break Archon Programming
+- Il Giappone rende ufficiale il Sistema che forgia Elites di Esseri Umani - Nuovo Sistema Educativo
+- Invasive Surveillance Technology Awaits - Have You Posted Your Pictures on The Internet?
+- Japón formaliza el Sistema forjando Seres Humanos Élites - Nuevo Sistema Educativo
+- La Religión del Dataísmo y el Posible Fin del Homo Sapiens
+- Latest Docs Show Financial Ties Between NSA and Internet Companies - Google, Yahoo, Microsoft, Facebook
+- Netflix, Facebook and the NSA - Theyre All in it Together
+- NSA, GCHQ Using Data from 'Leaky' Smartphone Apps to Spy
+- NSA Prism Program Taps into User Data of Apple, Google and Others
+- Russia to Pass Fake News Law that would Fine Social Networks $793,000
+- Social Media is Driving a Global Epidemic of Loneliness among Millennials
+- Social Media, Smartphones and Police Create a Stasi Web of Surveillance
+- Study Shows Mass Government Surveillance Silences Unpopular Opinions
+- The Age of Tyrannical Surveillance - We're Being Branded, Bought and Sold for Our Data
+- The Jewish Hand Behind Internet - Google, Facebook, Wikipedia, Yahoo!, MySpace, eBay...
+- The Oligarch Takeover of U.S. Media
+- The Pentagon is Building a 'Self-Aware' Killer Robot Army Fueled by Social Media
+- The Rise of 'Corporate Nations'
+- The Tortured Case for Deleting 'Instagram'
+- U.S. Government Software Creates 'Fake People' on Social Networks to Promote Propaganda
+- Vladimir Putin avverte sul Dominio "Big Tech" degli USA - Davos
+- Vladimir Putin warns of US 'Big Tech' Dominance - Davos
+- Were Facebook and Social Media Blackouts due to Capture of Tall Gray Aliens?
+- When Capitalism Meets Civic Tech
+- Why Facebook Lost 6 Million U.S. Users
+- Wikipedia creará una Red Social para Combatir la Ignorancia que Facebook Fomenta
+META
+- Consumers are Rejecting 'The Great Reset'
+- Enter the Bizarre World of Mark Zuckerburg's 'Metaverse' - 'Blurring the Lines' of Reality with NWO Transhuman
+- Facebook Construirá el Metaverso - Una Plataforma de Realidad Virtual Corporativa
+- It's Time to shut down Meta - And prosecute Mark Zuckerberg
+- Lawless Frontier - Crime and Punishment in the Metaverse
+- Meta - ¿Compañía Tecnológica o Asociación de Malhechores?
+- Meta-Facebook-Instagram slapped with 8 Lawsuits over Algorithms that hook Youth and Ruin their Lives
+- Meta Facebook - Metaverso Solamente
+Italiano
+- 'Meta' - Il Distacco Finale dalla Realtà?
+- 'Meta' - The Final Disconnect from Reality?
+- Metaverse è la 'Libertà' inflitta dai Tiranni Tecnologici
+- Metaverse - Augmented Reality Pioneer warns 'It could make Reality Disappear'
+- Metaverse is 'Freedom' Meted Out by Technological Tyrants
+- The Continued Unraveling of Mark Zuckerberg's 'Malicious Metaverse'
+- The Metaverse - Reality Occulted
+WhatsApp
+- Come Facebook 'Spia' le Vostre Conversazioni su WhatsApp - "Il Grande Fratello"
+- Cómo Facebook 'Espía' tus Conversaciones de WhatsApp - 'El Gran Hermano'
+- El Cofundador de 'Telegram' revela el "Secreto" por el que hay una Fuga de Usuarios de WhatsApp a su...
+- Forget WhatsApp - CIA has Tools to Hack almost All Social Media Platforms
+- Fundador de Telegram advierte de 'El Peligro de WhatsApp' en duro Comunicado - 'Deberías borrar WhatsApp'
+- It's Time to Break-up Facebook - 'Start by breaking off WhatsApp and Instagram'
+- Lucha de Titanes - Skype se Blinda ante la Nueva Amenaza de WhatsApp
+- Tus Datos Personales que WhatsApp comparte con EE.UU. - ¿Estabas al tanto?
+- Behind the Mask of Facebook - A Whistleblower's Shocking Story of Big Tech Bias and Censorship - by R. Hartwig
+- Controligarchs - Exposing the Billionaire Class, their Secret Deals, and the Globalist Plot to... - by Seamus Bruner
+- Experimental Evidence of Massive-scale Emotional Contagion through Social Networks
+- False, Misleading, Clickbait-y, and/or Satirical 'News' Sources
+- Leveraging Billions of Faces to Overcome Performance Barriers in Unconstrained Face Recognition
+- Lobbying Report - Facebook, Inc.
+- Mediterranean Council for Intelligence Studies - Yearbook 2012
+- No More FOMO - Limiting Social Media Decreases Loneliness and Depression
+- Pandora's Vox - On Community in Cyberspace
+- Persona Management Software
+- Team Themis - Corporate Information Reconnaissance Cell - November 3, 2010
+- Under Surveillance - Examining Facebook's Spiral of Silence Effects in the Wake of NSA Internet Monitoring
+-
+Multimedia
+- ¡Censura en Facebook!
+- CIA Sifts Social Media Sites
+- Cómo 'Nos dejamos Manipular' por las Redes Sociales
+- 'El Dilema de las Redes Sociales' - Un Documental que nos Afecta a Todos
+- Facebook, Google, Yahoo are Spying Tools - Julian Assange
+- Facebook Killed the Private Life
+- Facebook Parenting - For The Troubled Teen
+- Is the Internet Being Used to Shape Our Reality?
+- La Cara Oculta de Facebook
+- Monsters Inc. - Amazon, Google and Facebook
+- ¿Porqué me Vigilan, si Soy Nadie?
+- Stare Into the Lights My Pretties
+- The Creepy Line - Social Media's Manipulation of Society
+- The Face Behind Facebook
+- The Truth About Facebook - A CIA Profile Database
+- Zuckerberg's Virtual Reality Photo - Our Future in the Matrix
+Related Reports
+- Google and The Internet - Main File
+- The NSA - The Super Secret National Security Agency - Main File
+- Windows-Microsoft-Bill Gates - Main File
+Return to CIA - The Central Intelligence Agency
+Return to The Global Media Control
+Return to The End of The Internet?
+Return to Big Brother Loves You...
+Return to Temas / Main Files

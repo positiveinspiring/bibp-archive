@@ -1,0 +1,247 @@
+# The Actual Iran Case - The Beginning of World War III? / El Caso Actual 
+de Iran - ¿El Inicio de La Tercera Guerra Mundial?
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_iran.htm
+
+"As I went back through the Pentagon in November 2001, one of the senior military staff officers had time for a chat.
+Yes, we were still on track for going against Iraq, he said.
+But there was more...
+This was being discussed as part of a five-year campaign plan, he said, and there were a total of seven countries, beginning with Iraq,
+then Syria, Lebanon, Libya, Iran, Somalia, and Sudan."
+General Wesley Clark - March 02, 2007
+Origin
+Contents
+- "7 Countries in 5 Years" - Regime Change in Iran Coming Soon?
+- Acts of War
+- A Whirlwind 48 Hours - How Trump's Israel-Iran Ceasefire Agreement came together...
+- Brookings' "Which Path to Persia?"
+- Bush Agrees To War On Iran
+- Bush 'Plans Iran Air Strike by August' (2008)
+- Cañones para Construir Democracias
+- China Backs Iran Against The Great Satan
+- China abre Nueva Línea de Crédito a Irán de 10 Mil Millones... en Euros y Yuanes
+Español
+- China Respalda a Irán Contra El Gran Satán
+- Come lavoreranno Israele e Iran con l'Unione Economica Euroasiatica (UEEA) capitanata dalla Russia
+- Cómo Encaja Teherán en la Estrategia Rusia-China
+- Como Funciona el "Golpe de La CIA" en Irán - La Guerra Por Otra Vías - Caballo de Troya
+- Cómo trabajará Israel e Irán con la Unión Económica Euroasiática (UEEA) liderada por Rusia
+- Considering A War With Iran - A Discussion Paper on WMD in the Middle East
+- Cosa Significa Aver Tolto le Sanzioni contro l'Iran?
+- ¿Cuándo Empieza La Guerra? - Las Tres Razones del Desenlace Militar EE.UU.-Israel-Irán
+- De los Misiles a los Metadatos - Por qué esta Guerra no se trata de Irán o de Israel - Realidad Coherente
+- Detrás de la "Guerra de los 12 Días"
+- Divine Strake vs. Divine Strike Did Extraterrestrials Deter the Pentagon from a Preemptive Nuclear...
+- EE.UU. y Teherán Se Posicionan Para La Guerra - Plan de Ataque
+- El "Alto el Fuego" más Loco del Mundo
+- EU, Russia, Iran, and China unveil New Global Payment System Independent of U.S.
+- Exopolitical Implications of a Preemptive Nuclear War in Iran
+- Feds Foil Own Saudi Assassination Plot - Pin It On Iran
+- Former U.S. Policymakers Promote War on Iran
+- From Missiles to Metadata - Why this War isn't about Iran or Israel - Coherent Reality
+- Has the US-Israeli-UK War with Iran Officially Started?
+- House Passes HR 4133 Binding The U.S. to Israel and Their War Agenda
+- How the West made Israel-Iran War possible - The fantasy of Liberal Reform has given us the Ruins of War
+- 'If Iran falls, we all Lose' - Why Tehran's allies see this War as Civilizational
+Italiano
+- 'Il Patto Iran - Cina' il Turbocompressore delle Nuove Vie della Seta
+- In Unanimous Vote U.S. House Says No Legal Right to Attack Iran
+- Irán, al Unísono con Corea del Norte en Las Promesas de Una Guerra Mundial
+- Iran - A Quickly Evolving Geopolitical Imbroglio
+- Iran Attack Postponed Until Spring 2013 - Report
+- 'Iran-China Pact' Turbocharges the New Silk Roads
+- Iranian Nukes Might Be Good for Peace! - CFR Shifting Position
+- Iran is China's Secret Weapon for Killing off the U.S. Dollar's Global Reserve Status
+- Irán se Suma al Mundo Multipolar y Participará Plenamente en el Proyecto Chino de la Nueva Ruta de la Seda
+- Iran Target of 'False Flag' Strategy?
+- Iran - Time For A New Approach - Independent Task Force Report Sponsored by the Council on Foreign...
+- Iran - World War III?
+- Israel Has Destroyed Irans Nuclear Program - According to Stratfor Emails
+- Israeli President Says Attack on Iran Is Increasingly Likely
+- Israel's Preemptive Nuclear Strike Against Iran - An Exopolitical Perspective
+- Israel Seeks Preemptive Nuclear Strike Against Iran - An Exopolitical Perspective on Peace in the Middle East
+- Is Time Running Out for Iran? - In an Impotent World Even the Bankrupt Can Prevail
+- La Amenaza Nuclear de Irán y La "Segunda Crisis de los Rehenes"
+- La Guerra de Israel contra Irán resultó Contraproducente - Israel no logró sus Objetivos en su Ultima Guerra
+- L'Iran si aggrega al Mondo Multipolare e Parteciperà pienamente al Progetto Cinese della Nuova Via della Seta
+- Los Beneficios Chinos tras el Alivio de las Tensiones entre EE.UU. e Irán
+- Manufactured Crisis - The Untold Story of the Iran Nuclear Scare - Book Review
+- NATO Drilling for Nuclear Attack on Iran and Syria?
+Deutsch
+- NATO in Vorbereitung für Nuklearer Angriff auf Iran und Syrien?
+- NATOs Role in The Military Encirclement of Iran
+- NeoCon at Globalist Think-Tank says Use False Flag to Start War With Iran
+- Netanyahu's Secret War Plan - Leaked Document Outlines Israel's "Shock and Awe" Plan to Attack Iran
+- Nubes de Tormenta Sobre Irán
+- Obama is Preparing to Bomb Iran
+- Obama Threatens Iran With Nuclear War
+- Our Men in Iran?
+- Para Evitar Una Guerra Nuclear Con Irán - Discurso de Fidel Castro en Parlamento Cubano - Agosto 2010
+- Pearl Harbor Style Attack Will Be Pretext for War on Iran - Ex-Israeli Intelligence Officer Says...
+- Preparando La III Guerra Mundial - Objetivo Irán
+- Preparations For a Hit Against Iran - Stopping Israels Next War
+- Preparing for World War III in 1925!
+- Preparing for World War III - Targeting Iran
+- Preparing the Battlefield - The Bush Administration Steps Up Its Secret Moves Against Iran
+- Preparing to Attack Iran With Nuclear Weapons - "No Option Can Be Taken Off The Table"
+- QAnon on How Ending Iran Peace Deal thwarts Deep State Plans for Nuclear False Flag Attack
+- QAnon sobre cómo Finalizando el Acuerdo de Paz con Irán se frustran los Planes del Estado Profundo de...
+- ¿Qué Significa el Levantamiento de las Sanciones contra Irán?
+- Rohaní Aprueba incluir al Pentágono en la Lista Iraní de Organizaciones Terroristas
+- Sanciones de Mayo 2018 de Estados Unidos contra Irán - CIJ Ordena Medidas Provisionales a EE.UU.
+- Sanzioni di Maggio 2018 degli Stati Uniti contro lIran - CIG Ordina Misure Preventive per gli Stati Uniti
+- Se Barajan Los Naipes Para El Bombardeo de Irán - Nodo Crucial en El "Arco de Inestabilidad"
+- Secrets on 'Iran Nuclear Strike' spill into open as Pentagon defends Bombing
+- Should Israel Attack Iran?
+- Study on a Possible Israeli Strike on Irans Nuclear Development Facilities
+- Targeting Iran - Is The US Administration Planning a Nuclear Holocaust?
+- Tensions Grow as China, Russia and Iran Lead the Way Towards a New Multipolar World Order
+- The Coming Shakedown of the US and Iran
+- The Iranian "Smoke and Mirrors Threat" and Washingtons "Human Rights Card"
+- The Iran-Qaeda Scandal - Cheneys Covert Plan
+- The Iran Nuclear Situation Will Come to A Head in The 'Very Foreseeable Future' - Kissinger Says
+- The Iran Plans - by Seymour M. Hersh - The New Yorker 2006-04-17
+- The Iran War - How It Will Begin
+- The Militarys Problem With The Presidents Iran Policy
+- The Path to Persia and the Ongoing Plot to Destroy Iran
+- The 'Proxy War' - UK Troops Are Sent to Iranian Border
+- The Real Reason Why The U.S. and Israel Do Not Want a Nuclear Iran - Beyond The Propaganda
+- The Road to Disaster - US War on Iran - The Worst Mistake in American History
+- The Western Assault on Iran Has Begun
+- To Avoid a Nuclear War With Iran - Speech at Cuban Parliament by Fidel Castro - August 2010
+- U.N. "Green Light" for a Pre-emptive US-Israel Attack on Iran? Security Council Resolution Transforms Iran...
+- U.S. Policy Toward Iran One-Way Ticket to War
+- U.S. Preparing 'Massive' Military Attack Against Iran
+- U.S. Sends 11 Warships to Confront Iran - Showdown in The Red Sea
+- U.S. War on Iran Takes Bizarre Turn
+- War Clouds Amassing Over Iran
+- War in the Middle East and The Rothschilds - Confidential Pentagon Memo: "Take Out 7 Countries..."
+- War in the Middle East threatens Central Asia
+- War on Iran - The Perfect Storm from Hell
+- "War on Iran will Trigger World War III
+- Warning - Nuclear Deal with Iran Prelude to War, Not "Breakthrough"
+- War with Iran was Planned Decades Ago
+- Was a Covert Attempt to Bomb Iran with Nuclear Weapons foiled by a Military Leak? - An Exopolitical...
+- Which Path to Persia?
+- Will the U.S. Attack Iran Before September 21 - 2007? - Are CIA Front Comp. Investing $4.5 Billion to Profit...
+Additional Information
+- A Clean Break - A New Strategy for Securing The Realm
+- American Naifs Bringing Ruin to Other Lands
+- A Message from the Galactic Federation of Worlds on the Israel-Iran Conflict
+- An Unfolding Saga of Villains, Scape - The B-52 Incident
+- ¡Apocalipsis Now..., NO! - Construcción del 'Armagedón' Por Fanáticos Religiosos...
+- A Precursor to War? - As Washington Renews Military Threats Against Iran, Cyber Attacks Escalate
+- B-52 Nukes Headed for Iran - Air Force Refused to Fly Weapons to Middle East Theater
+- Brzezinski's Ghost shapes Washington Eurasia Geopolitics
+- Cheney's Ouster May Be Last Chance to Stop World War III
+- China Calls for New Security Pact with Russia and Iran
+- Civil War Declared in Syria - Globalists Formula for WW III Begins
+- Cómo los Houthis dieron Vuelta al Tablero de Ajedrez - Ataque a las Instalaciones Petroleras de Abqaiq
+- Crisis Over Teheran's Alleged Nuclear Plans Nearing Climax
+- Currency Warfare - What are the Real Targets of The E.U.? Oil Embargo Against Iran?
+- El Síndrome de La Mano Oculta - La Demonización de Irán
+- "En una Guerra Nuclear el 'Daño Colateral' sería la Vida de toda la Humanidad" - Mensaje de Fidel contra la...
+- "Evidence" of Iran Nuclear Weapons Program May Be Fraudulent - The Mysterious Laptop Documents
+- Guerra de Monedas - ¿Cuales son los Blancos Reales de la Unión Europea? ¿Embargo Petrolero contra Irán?
+- High-Level Assassination - The Staged Event To Bring About War With Iran?
+- How "BRICS Plus" clashes with the U.S. Economic War on Iran
+- How the Houthis Overturned the Chessboard - Attack on Abqaiq Oil Installations
+- "In a Nuclear War the 'Collateral Damage' would be the Life of All Humanity" - Fidel's Message against Nuclear...
+- ¿Increible?... No Tanto... - Administracion Bush Financia Programa Nuclear de Iran
+- Inside Iran's Sex Slave Industry
+- In The Religion of 100% Americanism, Ignorance is Strength
+- Iran Accountable for BP Oil Spill
+- Iran and Honduras in The Propaganda System - Media Disinformation - Washington's "Regime Change Hit...
+- Iran Finalizes Bill to Ban EU Oil Exports
+- Iran, Gold and Oil - The Next Banksters War
+- Iran, Gold und Öl - Der nächste Krieg der Großbanken
+- Iran - Nuclear Intentions and Capabilities - National Intelligence Estimate
+- Iran Off The table? Israel Falling From Grace?
+- Iran Says U.S. "Will Be Taught The Mother of All Lessons" - Editorial Warns of Pending Cyber Attack on...
+- Irans Natural Gas Riches - US Knife to the Heart of World Future Energy
+- Iran to Execute 4 Bankers on Fraud Charges
+- Iran Turns to Bitcoins to Thwart Sanctions
+- I Rapporti Russo-Iraniani si Rafforzano con le Sanzioni Internazionali
+- Is Israel Assassinating Iran Nuclear Scientists?
+- Israel fue Denunciada con Contundencia en La Conferencia de La ONU Contra El Racismo
+- Israeli False Flag Setting The Stage for Bombing at 2012 Olympic Games
+- Israel quiere Extender la Guerra a todo Oriente Medio
+- Israel's Insane War on Iran Must Be Prevented
+- Israels Pillars of Samson - Not Quite Armageddon, But
+- Israel Stations Nuclear Missile Submarines Off Iran
+- Israel to Use Iranian and Pakistani Dupes in Dirty Nuke Ploy
+- Israel Usará a Los Iraníes y Pakistaníes Como Chivo Expiatorio en Un Sucio Complot Nuclear
+- Kucinich - Bush Close to Igniting WWIII
+- La CIA y El Laboratorio Iraní - De Mossadegh a Ahmadinejad
+- La Guerra Secreta del Petróleo ha Comenzado
+- La Guerra Segreta per il Petrolio è Iniziata
+- Leon Panetta Admits Iran Is Not Developing a Nuclear Weapon
+- Mass Depopulation, Genocide, WW-3?
+- Media Misquotes Threat From Irans President - from 'Top 25 Censored Stories of 2007'
+- Netanyahu Shape-Shifts Iran Reality
+- Nevada "Mushroom Cloud" Blast Delayed Indefinitely - Reuters May 26, 2006
+- Nothing Depleted, About Depleted Uranium
+- Obama's Letter to Lula Exposes White House Forked Tongue on Iran
+- Obama Warns Netanyahu - Don't Surprise Me With Iran Strike
+- Operation Cassandra
+- Pentagon to Test a Huge Conventional Bomb - Washington Post March 31, 2006
+- Presidente Obama, ¡Hágalo! - Emplazamiento al Presidente de Estados Unidos
+- Return of Cheney's One Percent Doctrine
+- Russian-Iranian Relations Strengthen Amidst International Sanctions
+- Saudi Arabia Closer than Iran to Acquiring Nukes - BBC Reports
+- Saudi Nuclear Weapons 'On Order' from Pakistan
+- Seven Steps to Dissolve The Matrix and Stop World War Three
+- Siete Pasos Para Disolver La Matrix y Detener La Tercera Guerra Mundial
+- Significance of Iranian Flying Saucer Reports for The US Military Occupation in Iraq
+- Some Signs that Global War is Rapidly Approaching
+- State of War - The Secret History of The CIA and The Bush Administration
+- Stupid USA - How Iran Would Retaliate
+- Syria - The New Tripwire For WWIII
+- Test Blast in Nevada - A Nuclear Rehearsal - The Salt Lake Tribune April 18, 2006
+- The 0% Doctrine - Obama Breaks New Ground When It Comes to War With Iran
+- The B-52 Incident - An Unfolding Saga of Villains, Scapegoats and Heroes
+- The Blueprint for WWIII
+- The "Day of Destiny" & the Indefinite Delay of 'Divine Strake'
+- The Iranian Threat - Who Is the Gravest Danger to World Peace?
+- The March to War - Iran and The Strategic Encirclement of Syria and Lebanon
+- The Neoconservative Agenda to Sacrifice the Fifth Fleet The New Pearl Harbor
+- The Saga of a Bent Spear - Missteps In The Bunker
+- The U.S. and Israeli-Sponsored Destruction of Syria and Iran Continues
+- The U.S.' Main Allies abandon Trump over his Dangerous Military Escalation with Iran
+- The Western Alliance is Falling Apart
+- Trump cae en la Trampa de Aramco
+- Trump Falls Into the Aramco Trap
+- Tulsi Gabbard Slams Trump - Being "Saudi Arabia's Bitch is Not America First"
+- Una Lección Histórica sobre cómo EE.UU. y Reino Unido 'Traen Democracia'
+- U.S. Foreign Policy in Shambles - NATO and the Middle East - How do You Wage War without Allies?
+- U.S. Intel Director Prepares Public for False Flag Event - Desperate for War, U.S. Prepares to Blame Iran...
+- U.S. Intelligence Agencies Agree - No Evidence of Iranian Nuclear Weapons Program
+- ¿Va Israel a Provocar un Cataclismo?
+- War of The Words - The Holocaust
+- Was September 11 2001 The Start of World War III? - The March to War
+- Waxman, Waters and Iran - Connect The Dots
+- Web Bot - 1.2 Billion Dead in BP Oil Spill - Nov. 2010 Nuclear War - Accurate? Will ETs Intervene?
+- Why Trump now Wants Talks with Iran
+- Will a Missing Nuke be used in a Simulated Terrorist Attack? - Dick Cheney & Vigilant Shield
+- World War 3 Is Here - A Prediction
+Multimedia
+- AIPAC (American Israel Public Affairs Committee) Is Pushing Us To War With Iran for Israel
+- Bilderberg Group Gives Green Light for War With Iran
+- Did President Trump Stop the 'Gog and Magog End Times War'?
+- El Volcán de Islandia y La OTAN - Dra. Rauni Kilde
+- Nuclear Threat is From Israel NOT Iran
+- Objetivo - Iran - Proyecto Matriz
+- Sex, Lies, Iran, Israel And WikiLeaks
+- Should Israel Attack Iran? - AEI Event
+- U.S. Helping Fund Iran Nukes - Lou Dobbs
+- Why Fallon's Resignation is Frightening
+Related Reports
+- The Actual Syrian Case - Main File
+- The Bushes and The New World Order - Main File
+- The Making of World Wars
+- The New World Order - Main File
+Return to Atomic Power and the Use of Depleted Uranium (DU) Weapons
+Return to The Middle East Exopolitical Saga
+Return to Temas / Main Files
+Return to Global Militarism
+Return to Endgame
