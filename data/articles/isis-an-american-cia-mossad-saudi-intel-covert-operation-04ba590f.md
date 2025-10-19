@@ -1,0 +1,109 @@
+# ISIS - An American-CIA-Mossad-Saudi Intel Covert Operation
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_middleeast127.htm
+
+by Feroze Mithiborwala 13 September 2014 from CounterCurrents Website
+Feroze Mithiborwala is President of
+Bharat Bachao Andolan
+Email: feroze.moses777@gmail.com
+Compares NATO to Nazi-SS,
+slams US, Israel for 'creating ISIS'
+Fidel Castro
+"We have helped create ISIS"
+Retd. Lt. Gen. Ian McInerny
+On the ominous thirteenth anniversary of the 9/11 WTC false flag terror attacks that set the stage for a perpetual state of warfare, terror and chaos, Obama once again is set to launch another series of wars.
+ISIS provides the perfect raison d'etre for the re-intervention of the US-NATO occupation forces in Iraq, Syria and the Middle-East region. Every war against terror only leads to even more wars and more terror. Countries such as Iraq and Syria, which had no presence of the Al Qaeda, but after US-NATO interventions, these very terror organizations have taken root.
+Far worse and fanatical organizations such as the ISIS have now grown into veritable armies with modern advanced weaponry and thousands of foot-soldiers swarming towards the "hornets nest". In our estimation the spread of terror is directly linked to certain imperialist powers and collaborator governments, that fund, mobilize, train, provide safe havens and weapons.
+These terror gangs are then deployed to achieve their strategic objectives of global hegemony and control over natural resources, namely Oil and Gas. In terms of the rise of the ISIS (Islamic State of Iraq and Syria) the question that we must ask ourselves is that, is it possible for a terrorist organization to grow as powerful as on view, without the backing of certain nations and intelligence agencies?
+This is precisely what we will seek to achieve. Firstly there are 4 key regional and geopolitical reasons due to which we witness a global crisis all the way from the Middle East to Eastern Europe to the borders of Russia.
+In the year 2007 large Oil and Gas finds were discovered in the Eastern Mediterranean region, mainly to enrich the countries namely Syria, Lebanon, Palestine, Israel and Cyprus. The volume of Gas finds for both Iran and Qatar also showed increased proportions. The battle over the competition and control of the Pipeline routes between, namely the Iran-Iraq-Syria Pipeline and the Qatari pipeline, that needed access via Syria to reach the Mediterranean coastline as both pipelines went on via Turkey into Europe. If Russia and Iran were to have sovereign control over their Oil-Gas resources which they transported via their pipelines, then Russia and Iran would effectively control up to 50% of Gas exports to Europe. Thereby creating a greater energy, financial and market integration between the European nations, Russia and Iran and thus challenging the hegemony of the USA.
+In the year 2007 large Oil and Gas finds were discovered in the Eastern Mediterranean region, mainly to enrich the countries namely Syria, Lebanon, Palestine, Israel and Cyprus. The volume of Gas finds for both Iran and Qatar also showed increased proportions.
+The battle over the competition and control of the Pipeline routes between, namely the Iran-Iraq-Syria Pipeline and the Qatari pipeline, that needed access via Syria to reach the Mediterranean coastline as both pipelines went on via Turkey into Europe.
+If Russia and Iran were to have sovereign control over their Oil-Gas resources which they transported via their pipelines, then Russia and Iran would effectively control up to 50% of Gas exports to Europe.
+Thereby creating a greater energy, financial and market integration between the European nations, Russia and Iran and thus challenging the hegemony of the USA.
+Russia is building the South-Stream pipeline to circumvent the Ukranian quagmire.
+Russia has effectively countered the Western backed Nabucco pipeline.
+US-Saudi-Israel axis: Also in the aftermath of the Israeli defeat at the hands of the Hezbollah led Lebanese resistance in 2006, the strategic calculus began to shift drastically, with a redirection of US policy in the region. This hinged on countering the rise of the axis of the Resistance, also referred to as the Shiite Bloc, namely Iran, Iraq, Syria, Lebanon and all the way into Palestine. With a drastic sectarian Sunni-Shiite civil war already in the offing in Iraq, the Saudis, Israel and the US began to operate with multiple common strategic objectives.
+US-Saudi-Israel axis: Also in the aftermath of the Israeli defeat at the hands of the Hezbollah led Lebanese resistance in 2006, the strategic calculus began to shift drastically, with a redirection of US policy in the region.
+This hinged on countering the rise of the axis of the Resistance, also referred to as the Shiite Bloc, namely Iran, Iraq, Syria, Lebanon and all the way into Palestine.
+With a drastic sectarian Sunni-Shiite civil war already in the offing in Iraq, the Saudis, Israel and the US began to operate with multiple common strategic objectives.
+The Imperial-Zionist Israeli agenda was to essentially foment religious, sectarian and ethnic divisions and civil wars, leading to the partition and balkanization of those nations, into smaller warring stateless, to be then controlled by an all powerful Israel.
+This strategy appears in three documents:
+The Oded Yinon plan of 1982. A Clean Break, Strategy for securing the realm, authored by Benjamin Netanyahu and other Zio-Neoconservatives (1996). The Project for the New American Century (1997).
+The Oded Yinon plan of 1982.
+A Clean Break, Strategy for securing the realm, authored by Benjamin Netanyahu and other Zio-Neoconservatives (1996).
+The Project for the New American Century (1997).
+Post 9/11, we then had the revelation by General Wesley Clark that the Neoconservative Lobby had plans to target '7' countries in '5' years, namely Iraq, Libya, Somalia, Syria, Lebanon, Sudan and ending with Iran. The ideological and strategic alliance evolved during the Bush regime when in 2007 a new doctrine, referred to as the "Redirection" emerged.
+It openly advocated targeting Iran, tilting the balance of power away from the Shiite Bloc that the war on Iraq had disturbed, widening the Sunni-Shia split, for a close alliance between US, Saudi Arabia and Israel. The current crisis that we are witness to, unfolded in Libya in early 2011, where now an advanced 'welfare state' has been reduced to a warring "Failed State" - due to rampaging US-NATO forces who armed the most fanatical elements amongst the Islamists, including the al Qaeda.
+Thus there were Iraqi fighters who fought in Libya, amongst myriad others. The heavy weapons from the Libyan war theatre were transported to Southern Turkey and smuggled across the Syrian border to be supplied to the Free Syrian Army (FSA), the Jabhat al Nusra (Al Qaeda of Syria) and other not so moderate rebels... The entire concocted narrative of "Moderate Rebels" is an utter lie, if not a poor figment of Obama's skewed imagination.
+On the ground the FSA, Nusra, as well as the ISIS, function together and are interchangeable. The FSA Commander Jamal Mahrouf (April 2014) stated that FSA and Nusra worked together. In June 2014, for all practical purposes the Jabhat al Nusra (al Qaeda of Syria) and the ISIS had merged together. The jihadist network created by the CIA, Saudi Intel since 1979, has now expanded to an extent where now foreign Jihadists militants, mercenaries, terrorists are mobilized from across 80 countries and include even those from many of the key Western-NATO countries, such as the USA, Britain, France, Belgium, Australia amongst others. Clearly the US has played a key role in creating ISIS, which has been accepted by Retd. Lt. Gen. Ian McInerny. And yet SeNATOr John Mcain has been photographed openly hobnobbing with the the latest version of Bin Laden, al-Bakr al Baghdadi 2.0. Haaretz (Feb 2014): Reported that the US, Saudi, Jordan and Israel were all in the process of helping the Syrian rebels plan an attack on Southern Syria. Israel has also provided direct assistance in military operations. Then PBS (May 2014) carried a report of rebels who were interviewed as stating that they were trained in secret bases in Qatar.
+On the ground the FSA, Nusra, as well as the ISIS, function together and are interchangeable. The FSA Commander Jamal Mahrouf (April 2014) stated that FSA and Nusra worked together.
+In June 2014, for all practical purposes the Jabhat al Nusra (al Qaeda of Syria) and the ISIS had merged together.
+The jihadist network created by the CIA, Saudi Intel since 1979, has now expanded to an extent where now foreign Jihadists militants, mercenaries, terrorists are mobilized from across 80 countries and include even those from many of the key Western-NATO countries, such as the USA, Britain, France, Belgium, Australia amongst others.
+Clearly the US has played a key role in creating ISIS, which has been accepted by Retd. Lt. Gen. Ian McInerny.
+And yet SeNATOr John Mcain has been photographed openly hobnobbing with the the latest version of Bin Laden, al-Bakr al Baghdadi 2.0.
+Haaretz (Feb 2014): Reported that the US, Saudi, Jordan and Israel were all in the process of helping the Syrian rebels plan an attack on Southern Syria. Israel has also provided direct assistance in military operations.
+Then PBS (May 2014) carried a report of rebels who were interviewed as stating that they were trained in secret bases in Qatar.
+Similar reports also exist of CIA controlled training camps in Turkey. Israel too supports the ISIS, Jabhat al Nusra, FSA and the other militant groups with camps and field hospitals in the Golan Heights, in occupied Syria.
+The role of US SeNATOr John McCain, leader, Republican Party, only further proves the complicity of the US junta at the highest levels.
+4th of February 2011: According to the Report of the Foreign Intelligence Services, NATO organized a meeting to launch the Arab Spring in Libya and Syria. This meeting was chaired by SeNATOr John McCain. February 22, 2011: McCain met Saad Hariri in Beirut and gave him the responsibility to oversee weapons transfers into Syria. April 2013: He visited Idlib secretly and met up with the militants and terrorists of the FSA and Nusra. Here we have photographs of McCain with Abu Bakr al Baghdadi the self-declared Calipha. Even at this juncture, there was a $10 million price on al-Baghdadi's head, and McCain could be prosecuted for contact with a terrorist. A month prior to this meeting, al Baghdadi had already created the ISIS.
+4th of February 2011:
+According to the Report of the Foreign Intelligence Services, NATO organized a meeting to launch the Arab Spring in Libya and Syria. This meeting was chaired by SeNATOr John McCain.
+February 22, 2011:
+McCain met Saad Hariri in Beirut and gave him the responsibility to oversee weapons transfers into Syria.
+April 2013:
+He visited Idlib secretly and met up with the militants and terrorists of the FSA and Nusra. Here we have photographs of McCain with Abu Bakr al Baghdadi the self-declared Calipha. Even at this juncture, there was a $10 million price on al-Baghdadi's head, and McCain could be prosecuted for contact with a terrorist. A month prior to this meeting, al Baghdadi had already created the ISIS.
+The fact that the US regime is directly funding the moderate rebels, the Free Syrian Army is a stated fact of US policy.
+SeNATOr John McCain with FSA fighters,
+with al-Baghdadi in the left-hand corner below
+with the Syrian flag in the background.
+John McCain with top leaders of the Free Syrian Army
+and the Jabhat al Nusra (Al Qaeda of Syria)
+The ISIS has been brutal in it's massacres, especially targeting all those "Infidels and Kafirs" who refused to convert to Islam, especially the Yezidis, Christians, Shia's and even those Sunni's who refused to submit to their extreme version of Islam.
+Widespread massacre and ethnic cleansing of Christians and Yezidis is the norm for the ISIS, as well as the Jabhat al Nusra, the Al Qaeda of Syria. The Saudi-Qatar-Turkish role:
+Also reports state that the Qataris' paid $2.5 million to Abu Bakr al-Baghdadi to create the ISIS and become the future Calipha.
+After the major gas finds in 2007, the Qatari's firstly tried to convince President Assad to abandon the Iran-Iraq-Syria (IIS) pipeline and become a part of the Qatari pipeline. Assad said that he would not betray his Russian friend and ally.
+Then according to Roland Dumas (ex-French Foreign Minister) in 2009, Qatar paid $10 billion to the Turkish Foreign Minister Mr. Dovutoglu, with a plan to destabilize and overthrow the Assad Government.
+It was also at this time his British counterparts informed him that they were in the process of sending armed fighters to Syria. (Christoff Lehmann) Leaked emails from Pentagon reports revealed by Stratfor state that,
+"joint US-UK training of Syrian rebel forces since 2011 to bring about the collapse of the Assad regime 'from within'."
+It was after the Saudi failure in Syria that more than 20,000 mercenaries were defeated by the army, that the Saudis went on a worldwide hunt and mobilized jihadists from across more than 80 countries. Finally it was on the 10th of June 2014, that the world finally woke up to the threat of ISIS, after the fall of Mosul.
+The ISIS were out there boasting about their tanks, anti-aircraft guns, anti-tank missiles, heavy ammunition, Humvees, helicopters - all of which they captured from the Iraqi army, which did not even put up a fight.
+The Iraqi army that the US had been training at great cost, collapsed along sectarian lines.
+ISIS openly traveling across Iraq in June 2014.
+Not a single drone or aerial attack by the American forces.
+ISIS parading a captured SCUD missile.
+Strangely even though the ISIS were parading openly with all their captured American weaponry, the US chose not to attack, which is against standard US Military doctrine, that calls for captured weapons to be destroyed so that they do not fall into the hands of the enemy.
+At that very time the US was conducting drone strikes in Pakistan, but chose not to attack ISIS in Iraq. So is Obama a weak President, or even a no-war peace loving man, who only goes to war as the last option? That is certainly not the case.
+Obama's strategy has been to wage war by proxy, whereby they foment civil wars and strife, whilst deploying aerial attacks and drones, even as myriad proxies groups fight the land war. This is evident across Libya, Somalia, Iraq, Yemen, Lebanon and myriad other theatres of war. Then another question we are frequently asked:
+"Why after creating the ISIS, as you say, is the US bombing its own creation?"
+It's only a repeat of recent history.
+The US enthroned Saddam in 1963, used him against Iran and then destroyed him and similarly with the Al Qaeda and the Taliban in Afghanistan. Yet we tend to forget... unfortunately.
+US SeNATOr Lindsey Graham warns of a coming 9/11 attack. Fear Mongering to justify the wars in the Middle-East is part of the Neoconservative-Zionist strategy. The strategy is essentially to:
+Build up a dictator or an extremist group/s to be used to wage proxy wars against opponents. During this phase, crimes committed by proxies are swept under the carpet - Problem. Then after the 'nasty bad guys' have outlived their usefulness and served their purpose, then it's time to pull the plug and demonize them for all their barbarism. This works well when the public has no clue as to where these 'nasty bad guys' come from the first place - Reaction. Finally when the public finally begs the government to do something, a solution is proposed. This would usually mean military intervention couched in a humanitarian framework. This also leads to the reduction of freedoms in our nations and societies - Solution.
+Build up a dictator or an extremist group/s to be used to wage proxy wars against opponents. During this phase, crimes committed by proxies are swept under the carpet - Problem.
+Then after the 'nasty bad guys' have outlived their usefulness and served their purpose, then it's time to pull the plug and demonize them for all their barbarism. This works well when the public has no clue as to where these 'nasty bad guys' come from the first place - Reaction.
+Finally when the public finally begs the government to do something, a solution is proposed. This would usually mean military intervention couched in a humanitarian framework. This also leads to the reduction of freedoms in our nations and societies - Solution.
+Thus the ISIS has proved invaluable to the US-NATO strategic game-plan as there now exists a popular support back home to neutralize the ISIS threat that supposedly poses a threat to America.
+Therefore ISIS has provided a perfect alibi for the US-NATO forces to return back to the region as part of its re-colonization program. ISIS has also proved very useful in the Syrian theatre as today the ISIS does control up to 30% of territory and provides the perfect pretext for the US to invade Syria. The US-NATO allies could possibly enforce a no-fly zone in the ISIS held areas, thus preventing any role for the sovereign state and the Syrian Arab Army.
+As the ISIS retreats in the face of US bombing, that very territory would be handed over to the FSA and Jabhat al Nusra-Qaeda militants and mercenaries, surely with many ISIS mercenaries morphing into moderate rebels. Thus effectively partitioning Syria! The Syrian government has stated that they will not bear the violation of their sovereignty and Russia too has warned the US on this count. Entrap Russia: It was also in this very period that the Russian-US-NATO crisis over Ukraine began to emerge as a serious situation that could lead to a regional or a global war. The steps to counter ISIS are as follows:
+Work towards national political solutions, power sharing, constitutional democratic reforms, free and fair elections - to avoid civil wars, through regional and international mediation, whilst limiting the role of the US-EU and NATO institutions and military forces. Stop the physical routes from across the Turkish, Jordan and Lebanon into Syria. Shut down all safe-havens and camps active in Jordan, Qatar, Turkey and all other destinations. Shut down all sources of funding from Saudi, Qatar, Kuwait, Bahrain, Turkey and supply of weapons from US, Britain, France and other Western sources. Support the Governments battling this terror plague with satellite and intelligence reports so that the Army can perform better. Stop media propaganda and hate speech to stem the tide of publicity, hatred and fear. Identify and prosecute all those governments and private sources that are funding and arming terrorists so that a precedent is set.
+Work towards national political solutions, power sharing, constitutional democratic reforms, free and fair elections - to avoid civil wars, through regional and international mediation, whilst limiting the role of the US-EU and NATO institutions and military forces.
+Stop the physical routes from across the Turkish, Jordan and Lebanon into Syria.
+Shut down all safe-havens and camps active in Jordan, Qatar, Turkey and all other destinations.
+Shut down all sources of funding from Saudi, Qatar, Kuwait, Bahrain, Turkey and supply of weapons from US, Britain, France and other Western sources.
+Support the Governments battling this terror plague with satellite and intelligence reports so that the Army can perform better.
+Stop media propaganda and hate speech to stem the tide of publicity, hatred and fear.
+Identify and prosecute all those governments and private sources that are funding and arming terrorists so that a precedent is set.
+Thus the regional and the international situation is indeed fraught with danger, even as the US-NATO forces continue with their belligerence and war mongering.
+There is a need for an international alliance to counter the political, financial and military hegemony of the Western Imperial-Zionist axis. There is also a dire need for the popular resistance forces to counter the religious fanaticism that is being foisted within our societies by anti-democratic religious regressive obscurantist extremists who only weaken and divide our common struggles.
+These are the very elements that are indoctrinated to fight the proxy wars. There is thus a dire need for spiritual democracies to emerge as a counter to illiberal and regressive religious fanatics - much in the spirit of liberation theology.
+Where religion is redeemed from fanatics and texts interpreted with an all encompassing vision of love, compassion, universalism, mutual-respect and equality - thus liberating humanity from the religion and culture of fear, hatred and violence. Already forces and alliances such as,
+the Shanghai Cooperation Organization (SCO) the Non-Aligned Movement (NAM) the BRICS,
+the Shanghai Cooperation Organization (SCO)
+the Non-Aligned Movement (NAM)
+the BRICS,
+...are emerging as viable challenges in the near future, centered on Russia, China, India, Brazil and South Africa.
+The South American Bolivarian nations continue to successfully resist and build democratic socialist models, empowering their citizens thus posing a challenge to the neo-liberal capitalist framework. This even as the valiant Palestinian resistance continues to stand at the frontlines of the struggle for human emancipation and liberty, thus inspiring generations across the world. Finally it is for the people of the world to continue to march against the wars and terror, to march for the unity of the oppressed people and nations - and to march for the freedom, dignity and self-respect of all human beings.
+Return to The Middle East Exopolitical Saga
+Return to CIA - The Central Intelligence Agency
+Return to The Protocols of The Learned Elders of Zion

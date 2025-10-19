@@ -1,0 +1,299 @@
+# Ponerology - The Science of Evil / Ponerología - La Ciencia del Mal
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_ponerology.htm
+
+Derived from the Greek word 'poneria,' Ponerology is the diagnosis and deconstruction of the causes and mechanisms of socio-political evil.
+Contents
+- About Andrew M. Lobaczewski
+- After the Next 9-11 - Definition of Cryptocracy
+- A Journey Through The Madness Industry - The Psychopath Test
+- Archons - The Secret Pact
+- Arcontes - El Pacto Secreto
+- Beyond Insanity - Political Ponerology - Macrosocial Evil
+Español
+- Comienza el Juicio contra Israel por Genocidio en el Tribunal Internacional de Justicia
+- El Arte de la Deshumanización o cómo Justificar Guerras 'sin sentirnos mal'
+- El Bien y el Mal - La Corruptio optimi Pessima
+- El Mal Puro y Completo Enmascarado como Pandemia
+- Evil Only Comes where It's Invited - Tracking Ponerogenesis in History and Israel-Palestine
+- International Criminal Court Tribunal declares Trump and Duterte Guilty of Crimes Against Humanity
+- Introducción a Logocracia - Presentación mundial del último Libro de Lobaczewski
+- Introducing Logocracy - First entry in this world-first presentation of Lobaczewski's final Book
+- La Corte Caucásica Internacional - Justicia Selectiva en tiempos de Impunidad Global
+- La Ignorancia del Mal
+- La 'Ponerología Política' se cuela en los Medios de Comunicación Españoles
+- "Lavender" - Se Desenmascara la Aterradora Realidad de la Guerra Automatizada
+- Political Ponerology - A Science on The Nature of Evil Adjusted for Political Purposes
+- 'Political Ponerology' by Andrew M. Lobaczewski - Commentaries and Additional Quoted Material
+- 'Ponerologia Politica' por Andrew M. Lobaczewski - Comentarios y Material Adicional Citados
+- Ponerología Política - Una Ciencia Sobre la Naturaleza del Mal Adaptada a Propósitos Políticos
+- Ponerology
+- Ponerology 101
+- Psicópatas y Psicopatía - Una "Rama" de La Ponerología - Main File
+- Psychopaths and Psychopathy - A Ponerological "Branch" - Main File
+- ¿Qué ha pasado con la Educación y la Sociedad Occidentales? - ¿De dónde Viene toda esta Locura?
+- Reflections on Political Ponerology
+- Reflexiones Sobre Ponerología Política
+- Serpientes en Traje - Ponerología 101
+- The Demon-cratic Cryptocracy "Puppet Show" Book - How the New World Order Cult Communicates &...
+- The Ponerological Dysfunctions of G.W.Bush
+Additional Information
+- About The Emotional Basis of Political Power
+- A Brief Exploration of COVID-Induced Mass Psychosis
+- Acerca de la Base Emocional del Poder Político
+- A Developing Evil - The Malignant Historical Force behind the Great Reset
+- A Different View of 'The Holocaust' - Main File
+- ¿Agresión Estadounidense? ¡Nunca...!
+- Algo Maligno Viene Hacia Acá
+- Alien Origins of Sociopathy - How Bloodlines Have Been Genetically Tweaked to Produce an Abundance...
+- All The President's Women - Hillary Clinton
+- American Apocalypse - The Government's Plot to Destabilize the Nation is Working
+- A Parasite of a Different Order - A Psychic Tapeworm
+- A Ponerological Profile - Henry Kissinger - Main File
+- Are Globalists Evil or Just Misunderstood?
+- Are We Possessed?
+- A Study about the Origin of Evil - Yaldabaoth-Yahweh-Enlil
+- Axis of Evil - Cheney, Bush and The Real Axis of Evil
+- Backdoor Talks on Trans-Pacific Trade Deal Aim to Globalize Corporatocracy
+- Big Brother Loves You - Main File
+- Bohemian Grove - Main File
+- Bonhoeffer's "Theory of Stupidity" - We have More to Fear from Stupid People than Evil Ones
+- Bush Is Certifiable
+- Cambio Climático Cósmico y Terrorismo Financiero - Atando Cabos
+- Chemtrails and Geoengineering - Main File
+- Cheney's Deceit of Shakespearean Proportions
+- Cómo Sobrevivir a un Cambio de Régimen
+- Confessions of An Economic Hit Man
+- Congressional Probe Reveals Cover-Up of "Auschwitz-Like" Conditions at U.S.-Funded Afghan Hospital
+- Democide Mass-Murder and The New World Order
+- Democidio, Asesinato en Masa y El Nuevo Orden Mundial
+- Depopulation of Planet Earth - Main File
+- El Centro del Mal en el Mundo - El Estado en la Sombra Británico
+- El Desaliento - La Herramienta más utilizada por El Mal
+- El Gobierno Más Maligno en la Historia Estadounidense
+- Elitismo Global - Los Rasgos del Carácter de Gente Realmente Malvada
+- El Mal Escondido - Medios y Técnicas Para Desacreditar
+- El Príncipe de las Tinieblas se Reúne con Su Élite Global
+- El Reseteo Global - El Gran Reinicio - Main File
+- El Resultado Final de Ignorar el Mal
+- Errar es Humano... Pero No para Mí...
+- ¿Es Esto Arte????
+- ¿Estamos Poseídos?
+- EUROPOL
+- Exponiendo a Los Malévolos Dueños y Señores de La Tierra
+- Exposing The Evil Overlords of Earth
+- George Soros and The Rothschild - Main File
+- Germany's ET Contacts? - Its Legacy on The Twentieth Century and After... - Main File
+- Global Elitism - The Character Traits of Truly Evil People
+- Globalists Pull Plug on KONY 2012 with Spectacular Crash and Burn
+- Global Reset - Great Reset - Main File
+- Humanos 'Sin-Espiritu'
+- Identifican el Origen Común de la Maldad Humana
+- Idiots, Zealots, Elitists and Patriots - The 4 "Wise Monkeys" of Modern Society
+- Imposter Consciousness
+- Industry "Weapons" for Earth's Depopulation - Main File
+- Interview to Former Economic Hitman John Perkins - 2012, Government Corruption and More...
+- Killer Vaccines - Vacunas Que Matan - Main File
+- Klaus Schwab and the World Economic Forum - Main File
+- Klaus Schwab y el Foro Economico Mundial - Main File
+- KONY 2012 Part 2 - License for Imperial Conquest
+- KONY 2012 Psy-Op Collapsing
+- La Conciencia Impostora
+- La Corruptocracia
+- La Guerra Global contra los Niños
+- ¿La Raíz de toda Maldad? - "El Engaño de Dios"
+- La Vida... Invertida
+- Life... in Reversal
+- Los Círculos Herméticos - El Sistema Financiero Mundial y Sus Núcleos De Poder
+- Manipulating Matter - The Scientific Dictatorship as A Project in The Reconfiguration of Reality
+- Manufacturing The Deadhead - A Product of Social Engineering
+- Mass Depopulation on Its Way - The Secret Team's Management of The World
+- 'Mass Formation' - The Applied Science of Social Engineering
+- Monsanto - A Multinational Factory of Death - Main File
+- Murder Is Not An Anomaly in War
+- Normal People Under Pathocratic Rule
+- Obama - A "New" Sociopolitical Era or The Greatest Deception? - Main File
+- On The Nature of Man's Evil Deeds - Is All The Mass Killing Due To Genetics, Learned Behavior, or...
+- On The Need for New Criteria of Diagnosis of Psychosis in The Light of Mind Invasive Technology
+- Orígenes Alienígenas de La Sociopatía - Cómo Los Linajes han Sido Genéticamente Ajustados para...
+- ¿Porqué el Mal tiene Tanto Éxito?
+- ¿Porqué está el Mal tan Apurado? - La Muerte de La Luz
+- Projecting Evil Onto Russia
+- Psychology And Psychiatry Under Pathocratic Rule
+- ¿Qué es la "Psicosis de Formación Masiva"?
+- ¿Qué se Necesitaría para Construir 'Un Mundo Sin Globalistas'?
+- Qué Son Realmente los Chemtrails
+- Ratzinger aka Pope Benedict XVI - Main File
+- Reining In The Imperial Presidency - The Conyers Report and What YOU Can Do With It!
+- Rockefeller Internationalism - Main File
+- Satanic Reality
+- Sinister Forces - Audio Interview With Peter Levenda
+- Skepticism Vs. The "Art" of Debunking
+- Sobre la Naturaleza de Acciones Malvadas del Hombre
+- Something Wicked This Way Comes
+- Spiritless Humans
+- Spiritual Predators and Pathological Gurus
+- Struggling With Pedophilia in Islam
+- Synthetic Life - Robotoids, Parasites and Artificial Humans - Main File
+- Ten Reasons America Will Be Judged as The Most Brutal Empire in History
+- Teocracia - de "Guerra en El Cielo - El Colegio Invisible"
+- ¿Terroristas en La Administración Bush? - Terrorismo Internacional
+- The 13 Most Evil U.S. Government Experiments on Humans
+- The Architecture of History - How the World Has Been Set-Up: Proof Revision
+- The Ascendancy of The Scientific Dictatorship
+- The Bushes and The New World Order - Main File
+- The Bush Impeachment Movement - Main File
+- The Clintons - America Politics - Main File
+- The Covidian Cult
+- The Dark Core of Personality
+- The Dark Core of Personality - An Investigation
+- The Dark History of The Vatican - Main File
+- The Deadly Industry of Psychiatry - Main File
+- The Despoiling of America - How George W. Bush Became The Head of The New American Dominionist...
+- The End of All Evil
+- The European Union Is a Neo-Feudal Kleptocracy - 500 Million Debt-Serfs
+- "The Family" - Main File
+- The Faustian Face of Modern Science - Understanding the Epistemological Foundations of Scientific...
+- The First Corporation
+- The Global Elite - Main File
+- The Global War on Children
+- The Heart of Darkness - The Sexual Predators within America's Power Elite
+- The Holy Inquisition - Main File
+- The Madness of George W. Bush - A Reflection Of Our Collective Psychosis
+- The Most Evil Government in American History
+- Theocracy - from "War in Heaven - The Invisible College"
+- The Politics of Obedience - Discourse of Voluntary Servitude
+- The Power Elite's Use of Wars And Crises
+- The Prince of Darkness Meets His World Elite
+- The Protocols of The Learned Elders of Zion - Main File
+- The Psychopathic God
+- Therapy For The World of A Macrosocial Pathological Phenomenon
+- The Root of All Evil? - "The God Delusion"
+- The Rothschilds - Main File
+- The Rules of Disinformation - Twenty-Five Ways To Suppress Truth
+- The Secret History of America's Capital - Washington D.C. - Main File
+- The Sociobiology of Sociopathy - An Integrated Evolutionary Model
+- The Triumph of Evil
+- The Wetiko Virus - A Malignant Egophrenia
+- The WHO - World Health Organization - Main File
+- Top UN-Secret
+- Trickle-Down Tyranny - Why Ordinary People in Positions of Local Power Are Adopting Tactics of Tyrants
+- Una Realidad Satánica
+- Un Parásito de Orden Diferente - Una 'Tenia Psíquica'
+- Violent Humanity
+- "V" is For Vendetta
+- WEF- World Economic Forum - Main File
+- We're Not the Good Guys - Why is American Aggression Missing in Action?
+- West's Moral Bankruptcy Exposed
+- What Chemtrails Really Are
+- What would it Take to Build a 'World Without Globalists'?
+- Why America is the World's Most Uniquely Cruel Society
+- Why Do Good People follow Evil Orders?
+- Why Is Evil In Such A Hurry? - The Dying of the Light
+- Windows-Microsoft-Bill Gates - Main File
+Ahriman
+- El Advenimiento de Ahriman - Un Ensayo Sobre las Fuerzas Profundas Detrás de la Crisis Mundial
+- La Máquina Irreal
+- ¿Qué se ha Metido en Nuestras Mentes? - La Psicosis del Mundo Moderno y la Búsqueda de Uno Mismo
+- Rudolf Steiner, Secret Societies and 'The Ahrimanic Deception'
+- The Advent of Ahriman - An Essay on the Deep Forces behind the World-Crisis
+- The Ahriman Forces and.... How World Leaders are Influenced
+- The Future of Ahriman and the Awakening of Souls - by Peter Selg
+- The Incarnation of Ahriman - The Embodiment of Evil on Earth - by Rudolf Steiner
+- The Inversion - How We Have Been Tricked into Perceiving a False Reality
+- The Purpose of the Ahriman Forces
+- What has Gotten into Our Minds? - The Psychosis of the Modern World and the Search for the Self
+Pathocracy - Tyranny at The Hand of Psychopaths
+- ¿Como Opera la Élite Global en el Mundo?
+- Dissent into Madness...
+- Doublespeak in The Modern Pathocracy - Political Ponerology - Macrosocial Evil
+- El Nuevo Orden Mundial - Main File
+- Global Pathocracy - Authoritarian Followers and the Hope of the World
+- History Regurgitates
+- How does the Global Elite Operate in the World?
+- La "Ciencia" de la Manipulación - Investigadores elaboran 'Mensajes de Culpa y Vergüenza' para fomentar el...
+- La Historia se Vuelve a Repetir
+- La Patocracia del Estado Profundo - Tiranía en las manos de un Gobierno Psicópata
+- Los Patócratas quieren Destruirte - Estudiando al Psicópata
+- Los Protocolos de Los Patócratas
+- Los Seguidores Autoritarios No Cuestionan a la Autoridad y Habilitan los Objetivos de Tiranos
+- Pathocracy
+- Pathocracy - Extracted from "The Nature of Evil - Political Ponerology"
+- Pathocracy and Religion
+- Pathocracy - Our Global Disease
+- Pathocracy Rising - How Economic Systems breed Deviants
+- Pathocracy - Tyranny at The Hand of Psychopaths
+- Patocracia Global - Seguidores Autoritarios y la Esperanza del Mundo
+- Patocracia - Tiranía en Las Manos de Psicópatas
+- Psicopatía y Crímenes contra la Humanidad
+- The New World Order - Main File
+- The Pathocracy of the Deep State - Tyranny at the Hands of a Psychopathic Government
+- The Protocols of The Pathocrats
+- Tyranny and the Anankastic Mind - A guest post by Martin Grady
+- Tyranny without a Tyrant - The Deep State's 'Divide-and-Conquer Strategy' is Working
+- Pathocracy - DISEASE
+Books-Treatises
+- Confessions of An Economic Hit Man - by John Perkins
+- Extraordinary Popular Delusions and the Madness of Crowds - by Charles Mackay
+- Occult Theocrasy - by Lady Queenborough
+- Political Ponerology - The Science of Evil, Psychopathy, and the Origins of Totalitarianism - by A. Lobaczewski
+Italiano
+- Ponerologia Politica - di A. Lobaczewski
+- Ponerología Política - por A. Lobaczewski
+- The Authoritarians - by Bob Altemeyer
+- The Corporation - The Pathological Pursuit of Profit and Power - by Joel Bakan
+- The Crowd - A Study of the Popular Mind - by Gustave Le Bon
+- The Demon in Democracy - Totalitarian Temptations in Free Societies - by Ryszard Legutko
+- The End of All Evil - by Jeremy Locke
+- The Hidden Evil - The Financial Elite's Covert War Against the Civilian Population - by Mark M. Rich
+- The Mask of Sanity - by Hervey Cleckley
+- The Nature of Evil - Political Ponerology - by A. Lobaczewski
+Multimedia
+- A Conversation With John Perkins - Democracy Now
+- Childhood Under Siege - How Big Business Targets Children
+- Defense Against The Psychopath
+- El Origen del Mal
+- Faces of Evil that Rule the World!
+- Fall of The Cabal - The New World Order
+- How Economic Hitmen Enslave Nations For Generations
+- I, Psychopath - Extended Version
+- KONY 2012 - A Ponerological Example in Africa
+- La Caída del Cabal - El Nuevo Orden Mundial
+- La Ciencia del Mal
+- La Defensa en Contra del Psicópata - El Arte de La Supervivencia Urbana
+- Matrix Of Evil - Alex Jones
+- Political Ponerology
+- Political Ponerology - UPDATED version
+- Political Ponerology - Evil is Real
+- PsicoPatocracia
+- The Anatomy of Belief and Evil
+- The Corporation
+- 'The Corporation' - Instituciones o Psicópatas
+- The Corporatocracy and Central and South America
+- The God Delusion
+- The Origins of Evil - by Michael Tsarion
+- The Power of Nightmares - The Rise of The Politics of Fear
+- The Root of All Evil - Richard Dawkins
+- The Root of Evil
+- The Sequel to The Fall of the Cabal - Bill Gates
+- The World Government Terror Cryptocracy
+Related Reports
+- COINTELPRO - Main File
+- Crimes Against Humanity - Main File
+- Denver International Airport and its Murals - Main File
+- Gods and Religions on Planet Earth - Main File
+- Guerra en El Cielo - El Colegio Invisible - Un Concepto Completamente Nuevo y Revolucionario Sobre...
+- Matrix - Main File
+- MK-Ultra - The Monarch Project - Main File
+- Organic Portals - Main File
+- The Astral Plane - Main File
+- The Bushes' Clan and The New World Order - Main File
+- The Order of Skull & Bones - Main File
+- War in Heaven - The Invisible College - A Completely New And Revolutionary Conception of The Nature...
+- What is "STS-STO" - Que es "SAS-SAO" - Main File
+Return to The Archons
+Return to The Global Elite
+Return to Global Militarism
+Return to Temas / Main Files
+Return to The Divine and The Manipulative Extraterrestrials
+Return to Globalization - The Octopus of the New World Order

@@ -1,0 +1,552 @@
+# Obama - A "New" Sociopolitical Era or The Greatest Deception? - ¿Una 
+"Nueva" Era Sociopolítica o El Mas Grande Engaño?
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_obama.htm
+
+The Barack Obama revolution was over before it started, guttered by the politician's overweening desire to prove himself to the grandees
+of the establishment.
+From there on, other promises proved ever
+easier to break.
+Source
+"George W. Bush used to famously say that terrorists hated America for its freedoms.
+So he and Barack Obama conveniently solved that problem by eliminating Americas freedoms."
+Simon Black
+Contents
+- "Accountability for War Crimes is Imperative" - An Interview With Cindy Sheehan
+- A Decisive Shift in the Power Balance has Occurred
+- A Depressed President Hooked on Google "Vanity Searches"
+- Algo de Proporciones Históricas Está Sucediendo
+- All The President's Women - Hillary Clinton
+- 'America Must Surrender Sovereignty and Embrace One World Government' - Said Obama
+- America Stands Upon the Precipice of Brutal Martial Law
+- America, Welcome to The Fourth Reich
+- And Now, Ladies an' Gentlemen: Obama's 'War on Ebola'
+- Are Aliens Guarding President Obama?
+- At U.N. Obama Offers a Defense of a Liberal World Order Under Siege
+- Barack Hussein Obama - Additional Important Features - EXTERNAL LINK
+- 'Barack Obama Advocates World Government' - Suggests The Renowned Financial Times
+- Barack Obama 'Approved Tapping Angela Merkel's Phone 3 Years Ago
+- Barack Obama - As Bad as Bush
+- "Barack Obama dio el Paso más Agresivo Contra Venezuela en la Historia de Estados Unidos" - dice Maduro
+- Barack Obama Elected President - An Analysis by The Global Consciousness Project
+- Barack Obama - El Primer Presidente Judío de Estados Unidos
+- Barack Obama - The Naked Emperor
+- Big Brother - Obama Calls for The Integration of State and Federal Military Forces
+- Big Brother - Obama Demands Access to Internet Records, in Secret, and Without Court Review
+- Big Brother Obama - U.S. to Spy on Internet Messaging - Regulations to Target Skype, Facebook, Blackberry
+- Bilderberger Praises Medicare Rationing Advocate
+Español
+- ¿Borrón y Cuenta Nueva...? - Obama a America Latina
+- Candidate Obama - The Change We Need in Washington
+- Carta Abierta al Presidente Barack Hussein Obama
+- China Warns the U.S. to Stop its Ukrainian Proxy War Against Russia
+- Cierra la Administración Obama - Los Republicanos Fuerzan el Primer Cierre del Gobierno desde 1995
+- Con el TPP, Obama Expande el Moderno Comercio de Esclavos
+Italiano
+- Con il TPP, Obama espande il Moderno Commercio degli Schiavi
+- Crypto Wars! - Obama Wants New Law to Wiretap The Internet
+- ¿Cuán Fascistas son Los Estados Unidos? - Diez Indicadores del Fascismo
+- Department of Homeland Security Prepares for Civil Unrest as Obama Poised to Destroy 2nd Amendment
+- Do You Trust the Government With Your Computer?
+- El Hermano Obama - Artículo de Fidel
+- El Problema No Es Trump - Somos Nosotros
+- El Senado de EE.UU. y Obama Reclaman el Derecho a Matar y Encarcelar Americanos Sin Juicio Previo...
+- El Verdadero Poder Que Está Detrás de Obama
+- Estados Unidos Ya No Asusta a Nadie
+- Feroz Caída en Las Encuestas - Entre Las Masacres y La Crisis Global, Obama se Derrumba
+- Fighting Al Qaeda by Supporting Al Qaeda in Syria - The Obama Administration is a "State Sponsor of...
+- Financial Polarization and Corruption - Obama's Politics of Deception - Don't Let Him Get Away With It...
+- Five Reasons Obama is A Proven Stooge of The Elite
+- Ha Ocurrido un Cambio Decisivo en el Equilibrio del Poder Mundial
+- ¿Hasta Cuándo, Obama, Abusas de La Paciencia Nuestra?
+- ¿Hay Alienígenas Cuidando al Presidente Obama?
+- Hidden Story Behind Jesse Ventura and Piers Morgan's CNN Clash Over Obama CIA Ties
+- Hillary and Obama In Secret Bilderberg Rendezvous
+- How Long After The Election Will Obama Sign Executive Order to Control The Internet?
+- How Obama Surrendered Sovereignty to The Criminal Banking Cartel
+- Iceland Interior Minister Reveals Plot by Obama Administration "to Frame Julian Assange"
+- "Identify The Perpetrator" - How 'The Obama' Fulfills the "Deceiver" Archetype and Why it Is Important to...
+- If Assad Defends Against U.S. Attack, U.S. Will Attack - says Obama
+- Imperio Reciclado - Porqué Obama Hace Lo Mismo Que Bush - Las Líneas Matrices
+- Internet Crashes Will Be Hard to Stop After Obamas Internet Giveaway
+- Internet 'Kill Switch' Dropped From Cybersecurity Bill - But White House Still Claims Power to Intervene...
+- In the Foreign Policy Shadow of Dr. Brzezinski - Obama, Islamic Fundamentalism and Russia
+- Is Barack Obama The Messiah?
+- Is it Wise for Obama to Send Thousands of U.S. Troops into The Ebola Death Zone?
+- Is It Time to Pack Your Bags America?
+- Islamic Extremism and Sex Slaves - Report Reveals Obama's Relatives Run Charities of Deceit
+- Is the Obama Administration... Fully Operational?
+- Just How Fascist is The U.S.? - Ten Indicators of Fascism
+- La Biografía Oculta de Los Obama - Una Familia al Servicio de La CIA
+- La Cara Oculta de la Administración Obama
+- La Casa Blanca 'acusa' a Trump de Mantener Vínculos Financieros con Rusia y RT
+- La Continuidad de La Agenda - La Catástrofe Siria, Diseñada bajo Bush y Ejecutada al Pie de la Letra bajo...
+- La Falsa Guerra de Obama contra El Estado Islámico (ISIS)
+- La Geopolítica de Obama del "Pivote" Chino - China en La Mira del Pentágono
+- Leaked Debate Agreement Shows Both Obama and Romney are Sniveling Cowards
+- 'Let's Start A War' - An Alternative View
+- Like Bush Before him Obama is Transforming the Presidency into A Dictatorship
+- List of Obama's Czars
+- Many Nations Recognize a Palestinian State - Only Obama Stands in the Way of Full Global Recognition
+- New Obama 'Executive Order' Hints at Devastating Space Event
+- New Report Explains Obama's Crusade to Censor the Press
+- No Puedo Con Obama...
+- NSA Refuses to Declassify Obama's Cybersecurity Directive - Exceptionally Grave Damage
+- Obama Administration Claims Right to "Lawfully" Assassinate Citizens Within The U.S.
+- Obama and The Bilderberg
+- Obama and The Hero's Journey
+- Obama and The Media are Stirring the Pot in Ferguson - But Real Leaders are Trying to Bring us Together
+- Obama Asks Military Leaders If They Will "Fire On US Citizens" - Nobel Peace Prize Nominee Says
+- Obama Asserts Executive Privilege to Hide Involvement in 'Fast and Furious'
+- Obama Can Shut Down The Internet For 4 Months Under New Emergency Powers
+- Obama Capitulates to Federal Reserve Masters
+- Obamacare - Healthcare's "New World Order"
+- Obama Continúa Ejerciendo Una Política Neoconservadora - Proyecto Censurado 2010
+- Obama Crea una Ley para "Controlar Mentalmente a la Población"
+- Obama Criminalize Free Speech?
+- Obama Declares Venezuela "A Threat to National Security" - Seeks Regime-Change
+- Obama Doctrine - The New International Order
+- Obama es Humillado en China
+- Obama es Una Marioneta de Zbigniew Brzezinski
+- Obama Imposes Martial Law With New Executive Order
+- Obama Impulsa una Serie de Tratados Secretos que Cambiarán el Mundo
+- Obama is a Liar - Fake NATO Evidence - OSCE Confirms that No Russian Troops, No Tanks, have...
+- Obama is Bullish on War - No Matter How You Spin It
+- Obama is Preparing to Bomb Iran
+- Obama - Manufacturing a Savior - Case Study in Social Engineering
+- Obama Misinforming Public About U.S. Dollar and Yuan
+- Obama Moves to Make The 'War on Terror' Permanent
+- Obama Ordena "Limpiar la Casa" Borrando los Vínculos con al-Nusra en Siria
+- Obama Ordena Preparar Planes ante Posible Erupción Solar Peligrosa
+- Obama Presses "North American Union" with Mexico and Canada
+- Obama Rechaza 'Cooperación' con Putin sobre Siria - La Guerra de Washington contra el Terrorismo...
+- Obama Rejects "Cooperation" with Putin on Syria - Washington's War on Terror is A Fabrication, Zero...
+- Obama Rifiuta di "Cooperare" con Putin per la Siria - La Guerra di Washington contro il Terrorismo è...
+- Obama Says He Is 'Improving' the World
+- Obama's Bizarre Threats Indicate U.S. Desperation in Syria
+- Obama's Corporate Agenda Delayed as TPP Misses Deadline
+- Obama se Enfurruña con Putin
+- Obama's Endgame
+- Obama's "Fake War" Against the Islamic State (ISIS) - The Islamic State is Protected by the U.S. and its...
+- Obama's Geopolitical China 'Pivot' - The Pentagon's "New Enemy" Image
+- Obama's Gun-Running Operation - Weapons and Support for "Islamic Terrorists" in Syria and Iraq...
+- Obama's Humanitarianism as Window-Dressing for the US "Deep State" Agenda - The Case of Syria
+- Obama Signals He Isn't Interested In 'Truth Commission' to Investigate Bush Abuses
+- Obama Signs Law Giving Himself, 'Bush' Lifetime Secret Service Guard
+- Obama's Legacy - Human Cost of Eight Years of War
+- Obama's Letter to Lula Exposes White House Forked Tongue on Iran
+- Obama's "National Emergency" Violates The Constitution
+- Obama's Oil Man - George Soros
+- Obama's Pacific Trade Deal TPP 'Worst Ever' Attack on Public Health - Leaked Draft Shows
+- Obama's "Pathological Legacy"
+- Obama's Secret Assassins - JSoc - Joint Special Operations Command
+- Obama's U.S. Assassination Program?
+- Obama's War on Whistleblowers Finds Another Target
+- Obama's White House Scandals Conveniently Drowned Out by Hurricane Sandy Media Coverage
+- Obama's Zionist Jew at Treasury
+- Obama Threatens Iran With Nuclear War
+- Obama to attend TPP Summit, hold Talks with Xi and Turnbull during next APEC in Lima, Peru
+- Obama to Expand Modern-Day Slave Trade with TPP
+- Obama Trades Threats of War With Netanyahu in Secret White House Meeting
+- Obama-Trauma - A Deliberately Dysfunctional Mind
+- Obama - Trilateral Commission Endgame
+- Obama Uses CIA Funded al-Qaeda Attacks in Yemen to Declare National Emergency
+- Obama Wants to Make Sure The Government Can Lock You Up Without Trial - The National Defense...
+- Obama Warns Netanyahu - Don't Surprise Me With Iran Strike
+- Obama Wins a Second Term - Now What?
+- ¿Obama y Putin Van a Repartirse El Medio Oriente?
+- Only 30% of Americans Trust The Government - Obama's Government
+- Orwellian Justice System - The Securitization and Militarization of Daily Life - Spying on Americans...
+- Paraguay - Obama's Second Latin American Coup
+- Porqué Obama tiene Tanta Prisa por Firmar el TTIP
+- Presidential 2012 Candidates Debate While Rome Burns
+- Presidential Meeting Signals Catastrophic Event - "There Is a Crisis Unfolding Somewhere in The...
+- Presidential Memo on Insider Threats - Why Now?
+- Presidential Rule by Deception - Obama, The Master Con-Man
+- President Obama's Executive Order to Control The Internet
+- President Obama's Promise - Global War on Terror to Continue, with Fresh Makeup - Assassinating...
+- Putin Exposes Obama's Lame Duck Attempt to Start a New Cold War by Refusing to Retaliate
+- Putin Lashes Out at Obama - "Show Some Proof or Shut Up"
+- Putin vs. Obama - Mundo Real vs. Ilusa Fantasía
+- Putin vs. Obama - Real World vs. Deluded Fantasy
+- Rats Jumping Ship - High Profile Gangsters Leaving Obama
+- Rhetoric of Change - Among Politicians, Actors, and Preachers
+- Russia Protecting The American Public from Obama's War on Truth?
+- Secret 'Kill List' Proves a Test of Obama's Principles and Will
+- Secret Panel Can Put Americans on "Kill List"
+- Secret Service Removes Rahm Emanuel from Oval Office
+- Should Obama Control The Internet?
+- Societal Apocalypse
+- Something Is Happening of Historic Proportions
+- Swinderls List - Obama's Vicious Band of Zionist Criminals Are Stealing America Blind and Now Threaten...
+- Ten Ways That the Iron Grip of The Big Brother Prison Grid is Tightening on All of Our Lives
+- The 0% Doctrine - Obama Breaks New Ground When It Comes to War With Iran
+- The 2012 Debates - Memorandum of Understanding Between the Obama and Romney Campaigns
+- The Benghazi Scandal is Obama's Watergate but Worse
+- The Bottom End of Obama
+- The Brzezinski/Obama Axis
+- The Bureau of Counterterrorism - Obama Administration Gives Birth to New Agents of Tyranny
+- The Clintons - America Politics - Main File
+- The End of Hypocrisy - American Foreign Policy in the Age of Leaks
+- The Forbidden Truth - The U.S. is Channeling Chemical Weapons to Al Qaeda in Syria, Obama is a Liar...
+- The Killing of Osama bin Laden
+- The Last American President
+- The Many Points that Prove that Barack Obama and Mitt Romney are Essentially the Same Candidate
+- The Morning After Obama Was Elected The New US President - A 15 Minute Phone Conversation With...
+- The Movement to Impeach Obama - Calling Out The Hypocritical, War-Loving Left
+- The Murder of Americans - Existence of Secret Kill Lists Now Admitted by Lawless White House
+- The Obama Administration's Cover-up of The Flight 253 Affair - "New Smoking Gun" Disclosures
+- The Obama Deception - Information About a New Documentary Regarding The Current Looting of America
+- The "Obama Doctrine" - Eternal War For Imperfect Mankind
+- The Obama False Flag Attack That Would Suspend 2012 Elections
+- The Obama Killing Machine in Afghanistan - The "Under-Reporting" of Civilians Killed by Foreign Forces
+- The Obama Regime's Fabricated "Terror Conspiracy" in Defense of The Police State
+- The Obama's 'Dead Pool' - Deaths Connected to The Obama White House
+- The Obamathon Has Begun - How Long Will The Honeymoon Last?
+- The President's Lies are Finally Catching Up with Him
+- The REAL Reason U.S. Targets Whistleblowers
+- The Real Reason Why the United Nations Wants Control Over the Internet - Technocracy
+- The Red Line and The Rat Line - Obama, Erdoğan and the Syrian Rebels
+- The Ruthless State of The Union - The Current Crime Boss Speaks
+- The Secret Kill List - Is the U.S. President a Bloody Dictator?
+- The Shutdown of The U.S. Government and "Debt Default" - A Dress Rehearsal for the Privatization of...
+- The Story of Obama - All in The Company
+- The Top 9 Real Reasons to Go to War in Syria
+- The Top 10 Things Black America Will Have to Show for 8 Years of President Obama - None of Them Are...
+- The TPP - Obama's Secret Treaty Would Be the Most Important Step Toward a One World...
+- The Two Contending Visions of World Government - The Origin and Broader Context of Obama's "Trade"...
+- The U.S. Dictatorship and Its White House Servant 'President'
+- The U.S. Government Stands Revealed to The World as a Collection of War Criminals and Liars
+- The U.S. Senate and Obama Claiming The Right to Murder and Imprison Americans Without Trial Was...
+- The White House Has Been Covering Up the Presidency's Role in Torture for Years
+- Things Could Get Ugly Fast
+- Trump nombra otro Escándalo más grande en la Historia de EE.UU. - El bulo de Rusia, Rusia, Rusia en 2016
+- Trump = Obama = Bush = Clinton on 4 Core Issues
+- Tulsi Gabbard releases 'Overwhelming Evidence' of Obama coup plot against Trump in 2016 Presidential Elections
+- UBS Whistleblower Exposes 'Political Prostitution' All the Way Up to President Obama
+- Una Presentadora de Fox News 'Destroza' a Obama en Vivo...
+- Unclassified Report on The President's Surveillance Program - Obama Administration
+- Uncovered Muslim Brotherhood Documents Could Put Obama in Prison
+- United Nations and Obama, Flog Global-warming Alarmism - As More Scientists Defect
+- Un Presidente Depresivo Adicto a Las Búsquedas en Google Sobre Sí Mismo
+- Un Presidente Depresso Schiavo Della Ricerca su Google su Se Stesso
+- U.S. Admits No Imminent Threat from Syria - No Clear Evidence Assad Ordered Chemical Weapons Attack
+- U.S. Designates Wikileaks "Enemy of The State"
+- Washington se Rebela contra Obama
+- Was The Obama Administration Involved in The Planning of The Israeli Attack on The Gaza Freedom...
+- We Just Don't Trust You - Note to President Obama
+- We're Almost There Now - No Speech Zones - HR347
+- What Happened to the "Global War on Terrorism"? - The U.S. is "Fighting for Al Qaeda" in Syria
+- What The Obama Administration Really Represents
+- White House Lies to E.U. about U.S. Gas Supply
+- White House Seizes Control of Internet by Executive Order
+- White House Threatens to Blacklist Paper for Covering Protest - Obama, Bradley Manning and WikiLeaks
+- White House Unleashes New Terrorism Propaganda Campaign
+- Who Was Osama? - Who Is Obama?
+- Who were the "Shadow Men"? - Conspiracy against Donald Trump
+- Why Are Obama and Kerry So Desperate to Start a New War? - The Rule of Zombies
+- Why I Like Barack Hussein Obama
+- Why is Obama Hiding 6,000-Page Report on Bush-Era Torture and Why is Torture Still Allowed?
+- Why the Nobel Peace Prize is A Complete Joke
+- Why Was President Obama Gifted The Nobel Peace Prize? - The Answer to The Burning Question Du Jour
+- Will a Sitting President Finally Be Held Accountable for High Crimes and Misdemeanors?
+- Will Our U.S. Dictator-in-Chief Abdicate in 2016?
+- Winners and Losers in Snowden Fiasco
+- With TPP 'At Heart' of Obama Agenda, Critics Debunk Trade Talking Points
+- World Sees The U.S. as Bankrupt Politically and Financially
+- You Don't Deserve to Be Free - Said Obama to Americans
+Birth Certificate Issue
+- First-Ever Law-Enforcement Investigation Concludes Obama Birth Certificate "Computer Generated Forgery"
+- Hawaii Official Who Signed Off on Obama's Birth Certificate Dies in Plane Crash
+- Newly Released Obama Birth Certificate Forensic Forgery - Washington Times Report
+- Obama Birth Certificate Maybe Forged - Sheriff Joe Arpaio Says
+- Obama's Birth Certificate - Not The Issue
+CIA-DARPA-Mars-Time Travel Issues
+- Cosby/Obama Censored by CIA - Journalists to Launch "Inside-Out" News Agency with Mainstream Access
+- La Casa Bianca Nega Che La CIA ha Teletrasportato Obama su Marte
+- La Casa Blanca Niega Que La CIA Teletransportó a Obama a Marte
+- Mars Visitors Basiago and Stillings Confirm Barack Obama Traveled to Mars
+- Obama Pre-Identified as President by Secret DARPA-CIA Time Travel Program
+- Obama - Presidencia de USA 2012 Capturada por Tecnología Para Viajes en El Tiempo
+- Obama Response to White House ET Disclosure Petition Continues Mars Cover-Up
+- Tercer Alertador Confirma La Participación de Obama en Programa de 'La Sala de Salto' de La CIA a...
+- The Obama/Mars Cover-Up - Examiner.com Shuts Down Column of Alfred Lambremont Webre
+- Third Whistle Blower Confirms Obama's Participation in CIA Jump Room Program of Early 1980's
+- Visitantes a Marte Basiago y Stillings, Confirman Que Barack Obama Viajó a Marte
+- White House Denies CIA Teleported Obama to Mars
+Multimedia:
+- Basiago, Stillings and Eisenhower - Barack Obama Visited Mars - Coast to Coast
+- Third Whistleblower Publicly Confirms CIA Jump Room Program - Teleportation
+Obama and Monsanto
+- Former Monsanto VP Attaining Top Position at The FDA - Sign The Petition to Stop It
+- Meet Monsanto's Number One Lobbyist - Barack Obama
+- Monsanto Protection Act Proves Corporations More Powerful Than U.S. Government
+- Monsanto's Man in The Obama Administration - The Return of Michael Taylor
+- Monsanto's 'Partnership' With The Actual U.S. Presidential Candidates
+- New 'Monsanto Protection Act' Gives Monsanto Power Over US Government
+- Obama Signs Monsanto Protection Act Into Law After Promising GMO Labeling in 2007
+- Top Senator Apologizes for 'Monsanto Protection Act'
+- U.S. to Start 'Trade Wars' With Nations Opposed to Monsanto, GMO Crops - Leaked Information
+- White House Refuses to Release Email From Monsanto-Linked Lobbyist
+- White House Refuses to Reveal Ties With Monsanto
+Additional Information
+- Adverse Health Effects From The Operation of Digital Broadcast Television Stations (DVB-T)
+- Algunas Revelaciones de Los Documentos de WikiLeaks
+- "Alien Transformers" Descend On America
+- Air Force Sidelines 17 Nuclear Missile Officers - Commander Cites 'Rot' in System
+- A Map to Disclosure for President Obama - 7 Steps to Real Change
+- America's Drug-Corrupted War - Obama and Afghanistan
+- A New Giant Vaccine Scandal Exposes Government Lies and Psyops
+- An Examination of Obama's Use of Hidden Hypnosis Techniques in His Speeches
+- An Exopolitics Christmas Message - President-Elect Obama and Change We Can Believe In!
+- "A Pair of Testicles Fell Off The President After Election Day" - Former Guantanamo Chief Prosecutor Says
+- Así es como la Aristocracia de EE.UU. Extiende su Control Mundial - La Verdad sobre Obama
+- A Tale of Two Countries - New Zealand Apologizes for Illegal Domestic Spying, While U.S. Still Refuses...
+- Barack Obama Not Disclosing Extraterrestrial Presence is Top ET/UFO Story of 2009
+- Barack Obama to Make UFO Announcement in Coming Weeks
+- Barack Obama y John McCain - La Misma Cosa Pero Con Diferente Calzón...
+- Brain Dead Obama
+- Breach of Duty - Hillary Clinton and Catastrophic Failure in Benghazi
+- Briefing Obama on UFOs and Extraterrestrial Life
+- Bullets, False Flags and Biological Warfare - What Is The U.S. Government Planning?
+- Bypassing The Organized Dysfunction
+- Capitalist Terrorism
+- Case Against Syria's Assad Falls Apart
+- China's Crucial Role as America's Creditor - Strained US-China Relations
+- Chinese National TV Reporting Impending UFO/ET Disclosure by Obama Government
+- Clinton Sends Lackey to House Committee to Cover Her Involvement in Benghazi Attack
+- Cómo John McCain ha Paralizado la Guerra de Obama contra ISIS
+- Contact - Learning From Outer Space - Riyadh, Saudi Arabia 2011 Global Competitiveness Forum and UFOs
+- Copenhagen Is On - Obama Proposes a Treaty And Leads U.S. Delegation
+- Corexit - Coast Guard and Obama Administration Betrays The People and Country It Is Sworn to Protect
+- Dejar el Mundo Atrás - ¿Programación Predictiva o Advertencia sobre un Ciberataque Inminente?
+- Did China's Hu Order Obama to Resign or Was Hu Blackmailed?
+- 'Diebold' Voting Machines Can Be Hacked by Remote Control
+- Dollar Collapse Update - "Obama Demands Pay in Euros!"
+- Don't Riot - It's Just What They Want!
+- Drugmakers' Deal With Obama Said to Be Probed by House
+- EE.UU. y Teherán Se Posicionan Para La Guerra - Plan de Ataque
+- El Jaque Mate - Informaciones Para Materializar Un Mundo Nuevo
+- Estados Unidos es Un Títere de La Banca Privada - Entrevista de Anastasia Churkina al Cineasta Alex Jones
+- Everything Is A Lie - The Deliberate Intent To Deceive People Is At An All Time High
+- Evitando La Disfunción Organizada
+- Expediting The Grand Jihad - The Muslim Brotherhood
+- First Amendment Suspended in The Gulf of Mexico As Spill Cover-Up Goes Orwellian
+- Forced Abortions and Mass Sterilization Needed to 'Save' the Planet - says John Holdren, Obama's...
+- Forget ISIS, America Is the Real Threat to the World - Says Oliver Stone
+- From Democracy to Plutocracy - The United States of Corporate America
+- Germany's Merkel Now Comes Out as Basically a U.S. Agent
+- GOP Debate Evades ET Disclosure Issue - Now on Obama White House Website
+- Government Proposes Massive Shift In Online Privacy Policy
+- Government Protects Criminals by Attacking Whistleblowers
+- Gulf Spill - Disaster? Or a Well Organized Plan...
+- Hacia Un Mundo Sin Estados Unidos
+- Here Come The Toxic Psychiatrists - Obamacare
+- Hey, Hey, Hey, Ha, Ha, Ha... They Think It's All Happening by Accident... Hey, Hey, Hey, Ha, Ha, Ha...
+- House Passes HR 4133 Binding The U.S. to Israel and Their War Agenda
+- How Americas Aristocracy Extends Its Global Control - The Truth about Obama
+- How Google, Facebook, Skype, Yahoo and AOL are All Blatantly Lying to Their Own Users in Denying NSA...
+- How John McCain Crippled Obama's War on ISIS
+- How The U.S. Government and U.S. Military Became Murder, Inc.
+- How The U.S. Government Strikes Fear in Its Own Citizens and People Around The World
+- Huge Fines for Refusing to Buy Health Insurance - Americans Threatened With Jail Time
+- "Hunt For Bin Laden" A National Shame - Bin Laden Never Mentioned in McChrystal Report or Obama...
+- Hurricane Sandy as Environmental War - THE NEWS Live
+- Internet Blackout Highlights Failure of American Politics
+- Israel Attacks Gaza Aid Fleet
+- Israel's Pillars of Samson - Not Quite Armageddon, But
+- John Brennan Sworn in as CIA Director Using Constitution Lacking Bill of Rights
+- John Brennan Takes Oath on Draft Constitution Without The Bill of Rights
+- La Administración Obama Prohíbe el Testimonio del FBI Sobre el 11 de Septiembre
+- La Era de La Señora Muerte - Belicismo en Auge en El Mundo
+- La Esterilización de La Población Mediante el Agua Ya Está Sucediendo
+- Leave the World Behind - Predictive Programming or Cautionary Tale of Looming Cyberattack?
+- "Let the Plunder Begin" - The Return of Robert Rubin
+- Lilith, Inanna and Hillary
+- Los Hijos Secretos de Saul Alinsky
+- Los Pasos Para Llegar al Totalitarismo Según Naomi Wolf - Un Informe de la Situación
+- Los Políticos Como Empleados Corruptos del Poder Económico
+- Mainstream Media Takes Money from Foreign Dictators to Run Flattering Propaganda - CNN Exposed!
+- Maitreya Rising?
+- Martial Law, The Financial Bailout, and War
+- Memo to A More Conscious American Leadership - From a Fellow Achiever Who Is Gravely Concerned...
+- More War Lies
+- Mr. Smiley, Smiley, Hope and Change - Obama - Hear No Evil, See No Evil, Speak Not of Evil
+- Naomi Wolf's Steps to Fascism - A Progress Report
+- Neuroscience, Obama's BRAIN Project, and Military Mind Control
+- New Freedom - Something For Everyone
+- New Obama Executive Order Pushes Us Closer to A North American Union and A One World Economic...
+- New World Order Blueprint Leaked - The Trans-Pacific Partnership
+- Nobel de La Guerra Para Los Señores del "Nobel de La Paz"
+- "Nobel Peace Prize Winner Barack Obama, is Preparing for War in South America" - Interview With Eva...
+- Nubes de Tormenta Sobre Irán
+- NSA Security Running Amok to Plug Leaks About 9/11
+- Obama Administration Fingerprints on Ecuador Coup Attempt
+- Obama Administration Launches Deceptive Swine Flu Propaganda Blitz - To Counter Growing Criticism...
+- Obama Administration Pushing a Secretive Trade Agreement - Leaked Trade Doc Shows Obama Wants...
+- Obama Administration Shuts Down Investigations Into Bush-Era Torture
+- Obama Administration to Clash With Corporations Over UFO Files
+- Obama and Congress ARE Wall Street, Geithner IS the Federal Reserve - Now What?
+- Obama Authorizes Stationing of Japanese Troops on U.S. Soil
+- Obama Blocks Making TTIP Trade-Deal Terms Public
+- Obama Gives Israel All-Out Support
+- Obama Is 'A Muslim President Who Hates Farming, Hates The Military, Hates The U.S. And We Hate Him'
+- Obama, La Guerra Financiera y La Eliminación de DSK - Escándalo del Patrón del FMI
+- Obama, La Guerra Finanziaria e l'Eliminazione di DSK - Lo Scandalo del Patron del FMI
+- Obama Release of UFO Files Will Prepare Humanity For 2012 Solar Waves
+- Obama Returns Empty Handed While Papa Bush Sends Trillions of Dollars to Singapore
+- Obama's Black Budget And Federal Deficit Problems
+- Obama's Choice of CIA Director Signals Renewed Effort to Disclose CIA X-Files
+- Obama Science Advisor Called for "Planetary Regime" to Enforce Totalitarian Population Control Measures
+- Obama's H1N1 National Emergency Declaration Could Invoke FEMA Response to Pandemic (Opinion)
+- Obamas TTIP Trade Deal with Europe Would Be Disastrous for Europe - Says the First Independent Study
+- Obama's Use of Hidden Hypnosis Techniques in His Speeches
+- Obama's War - Why is The Largest Military Machine on The Planet Unable to Defeat The Resistance in...
+- Obama Will Bring "Peace" and ET False Flag Attack Followed by An "Armageddon" Against Positive ETs
+- October Surprise? - Shocking Rumors that Could Change The Outcome of The U.S. Election
+- Official Disclosure of Extraterrestrial Life is Imminent
+- Open Letter to Barack Obama President Elect of the United States November 21, 2008
+- "Operation Justified Vengeance" - Israeli Strike on Freedom Flotilla to Gaza is Part of A Broader Military...
+- Operation StillPoint to 'Take Down' The United States
+- Osama bin Laden Has Been Dead For Years
+- Para Evitar Una Guerra Nuclear Con Irán - Discurso de Fidel Castro en Parlamento Cubano - Agosto 2010
+- Political and Corporate Elite Shun GM Food on Their Own Plate
+- Popular Culture Promotes The Police State
+- Premio Nóbel de La Paz 2009, Entre Bastidores
+- Presidente Obama, ¡Hágalo! - Emplazamiento al Presidente de Estados Unidos
+- Presidential Directive Opens Door For Release of Antigravity Technology
+- Presidential Executive Orders - The Fourth and Stealth "Branch" of Governance
+- Proposed White House 'Extraterrestrial Affairs Commission' Puts Denver UFO Examiner's on Hold
+- Psychopaths - The Perfect Academic Word for U.S. Political, Economic "Leadership"
+- ¿Qué Podrá Depararnos El Futuro? - Línea de Tiempo 1, Variante 83
+- Radiation Scientists Agree TSA Naked Body Scanners Could Cause Breast Cancer and Sperm Mutations
+- Red China Successfully Blackmails The Obama Administration - Federal Reserve Will Be Broke by...
+- Rothschild & Obama Demands Pay in Euros!
+- Russian Expert Predicts Obama Will Declare Martial Law in America by End of 2012
+- Russia Reports Over 2 Million Dead in US as Mysterious Die-Off Accelerates - Genetically Modified...
+- Sarkozy Booted in France in Favor of Socialist Leader - What is Socialism and What Does It Mean for...
+- Scientists Respond to the Obama Administration's 2014 National Climate Assessment
+- Secret Trade Agreements Threaten to Undo Our Last Shreds of Food Safety - The TPP
+- Sen. Harry Reid Key Player in Big Pharma's Control Over Washington
+- Seymour Hersh on Obama, NSA and The 'Pathetic' American Media
+- Six Whistleblowers Charged Under The Espionage Act
+- Skull & Bones John Kerry 'Fails' to Provide Key Evidence in Syria
+- Snowden, Siria, Obama y Mas... - Versión Completa de La Entrevista a Vladimir Putin
+- Something Funny Is Going On - Our Government Is Not What It Appears to Be
+- Special Army Unit Ready to Be Deployed on American Soil Just Before November Elections
+- State of The Union? It's Behind Him...
+- Systemic Change, New Technology and Conscious Governance - Where Do We Begin?
+- Televisión Nacional China Informa Inminente Revelación del Gobierno de Obama Sobre Extraterrestres y...
+- The Age of The Reaper - War-Mongering on An International Scale
+- The Bank of The FED is Closed Forever
+- The CIA, The KKK and The USA
+- The Climate Time Bomb that Will Cost Us $60 Trillion
+- The Condition of Human Rights at The International Setting
+- The Conspiracy against Trump - The Deep State plot to Undermine the President
+- The Critical Unraveling of U.S. Society
+- The Drums of War are Beating in Syria - Killing Civilians to Protect Civilians
+- The Ecuadorian Coup - Its Larger Meaning
+- The Elephant in The Living Room at War With The World
+- The Financial Press - A Disinformation Machine
+- The Game That Goes On and On - A Swiss Bank, A President and The Permanent Government
+- The Hillary Clinton Dead Pool
+- The Iranian "Smoke and Mirrors Threat" and Washington's "Human Rights Card"
+- The NATO/UN Army - Perpetual War and Bankruptcy for U.S.
+- The Nobel, The Brand & The President
+- The Obama Administration Bars the FBI From Testifying on The 9/11 Attacks
+- The Octopus Is Dying - 5 Kissinger Associates Killed - Kissinger Missing-Presumed Dead
+- The Real Consequences of Corporatism, "Smart" Grid and Corrupt Government
+- The Science of Physical Economy - Economics as History
+- The Speculative Endgame - The Government "Shutdown" and "Debt Default", a Multibillion Bonanza for...
+- The Subterfuge of Syrian Chemical Weapons
+- The Trade Deal Scam - TPP and EU-US Free Trade Agreement
+- The U.S. Airstrikes in Northern Iraq are All About Oil
+- The U.S. Feds Invasion of Haiti Was Aimed at Taking Over The Haitian Central Bank
+- The 'War on Terror' - by Design - Can Never End
+- Timing Extraterrestrial Disclosure
+- To Avoid a Nuclear War With Iran - Speech at Cuban Parliament by Fidel Castro - August 2010
+- Todo Es Una Mentira - El Intento Deliberado Para Engañar a Las Personas Está en Su Punto Más Alto
+- Trilateral Geithner - Corrupted Regulator?
+- Two Faces of The Same Coin - Obama-McCain Candidates of The Global Elite
+- UFOs Crash Obama's Party and Open Door for 'X-Files' Disclosure
+- Una Búsqueda Sobre El Gobierno de Los Estados Unidos
+- Una Oligarchia Detiene Il Potere Politico Negli Stati Uniti - La Commissione Trilaterale Domina il Governo...
+- Una Oligarquía Tiene El Poder Político en Los EE.UU. - La Comisión Trilateral Domina El Gobierno de Obama
+- Una Revelación Publica Impactante sobre EE.UU. y el "Terrorismo Islámico"
+- Un Nuevo y Gigantesco Escándalo de Vacunas Expone las Mentiras y las Operaciones Psicológicas del...
+- U.S. Leaves Space for Russia
+- U.S. Treasury Warns of What's to Come - "Catastrophic Effect Could Last for More Than a Generation"
+- ¿Va Estados Unidos a Ir a La Guerra con Siria por Causa de un Gasoducto?
+- Washington Exposed As Secretly Financing Al-Qaeda - President-Elect Obama Demands Payment of...
+- What May The Future Hold? - Timeline 1, Variant 83
+- Who Are The Architects of Economic Collapse? - Will an Obama Administration Reverse The Tide?
+- Whose Sarin?
+- Why Bailing Out Banks Doesn't Work
+- Why Did The U.S. Refuse International Help on The Gulf Oil Spill?
+- Why Do a Majority of Americans Oppose Fast-tracking the TPP?
+- Why The Tar Sands Pipeline Will Be Game Over for Our Planet
+- Why WikiLeaks Is Good for Democracy
+- Wikileaks Releases Massive Set of Afghan War Files
+- Will Osama's Death Lead to New Contrived Global Threat Like... Extraterrestrial Life?
+- Will Russian and Chinese Military Forces on Syrian Soil Prevent Obama from Bombing Syria?
+- With Liberty to Monitor All - How Large-Scale US Surveillance is Harming Journalism, Law, and American...
+- You Are The Hope
+- Zionists Subjugate Nations by Controlling Their Political Parties
+Books-Treatises
+- Barack H.Obama - The Unauthorized Biography - by Webster Griffin Tarpley
+Multimedia
+- A&E Biography Barack Obama
+- Aventuras de Un Premio Nóbel en Africa
+- Barack Obama - The Wolf In Sheep's Clothing
+- Bush and Obama - Age of Terror - Untold History of United States - Oliver Stone
+- Bush y Obama - La Era del Terror - La Historia No Contada de Estados Unidos - Oliver Stone
+- Capitalismo - Historia de Un Romance - Capitalism - A Love Story
+- CIA Officer Explains New World Order's Demise
+- Collateral Murder - Wikileaks
+- Did The U.S. Government Plan The Earthquake in Haiti?
+- Dirty Wars - Jeremy Scahill and Rick Rowley's New Film Exposes Hidden Truths of Covert U.S. Warfare
+- Fall of The Republic - The Presidency of Barack H. Obama
+- Gray State 2013 - America's Last Chance for Liberty
+- How To Buy A Politician
+- Is Fast and Furious Obama's Watergate?
+- Judge Andrew Napolitano - "It's Time to Change Our Government!!"
+- Kids Attack President Obama
+- Lisa M. Harrison Interviews 1980-83 CIA Jumproom Experiencer William Brett Stillings
+- Los Hombres Detrás de Barack Obama
+- NASA-Kennedy-Obama Connection to 2012
+- National Security is A Myth - Patrick Wood Report
+- Obama - A Legacy of Ashes
+- Obama and The Agenda to Destroy America... - David Icke
+- Obama and The War Criminals
+- "Obama - El Gran Engaño" - de Alex Jones
+- Obama's H1N1 National Emergency Declaration
+- Obama - Things Are Not Always What They Seem - Adrian Salbuchi
+- President Obama, Do The Right Thing! - Appointing Pro-Israeli Hawks Isn't Change We Can Believe In
+- Putin Checkmates Obama on New World Order WWIII
+- Rothschild's Choice
+- Sen. Joe Biden - "I Am a Zionist"
+- The Hyperdimensional Election of Barack Obama and 2012
+- The Men Behind Barack Obama
+- The Most State Censored Citizen Film Ever
+- The NASA-Kennedy-Obama Connection to 2012
+- The Obama Deception
+- The Trilateral Commission - Analysis by Patrick Wood
+- Unintended Consequences - Hyperinflation
+- Unraveling The Soetoro-Obama Deception - Unicus Radio
+- War of The Rich
+- What Happened to Strauss-Kahn, Was No Accident - New Political Shift in Progress...
+- Who is Zbigniew Brzezinski? - Obama's Adviser
+- Zbigniew Brzezinski Endorse Obama Presidential Candidacy
+Related Reports
+- George Soros and The Rothschild - Main File
+- Psychopaths and Psychopathy - A Ponerological "Branch" - Main File
+- The Actual Syrian Case - Main File
+- The Protocols of The Learned Elders of Zion - Main File
+Return to EndGame
+Return to Global Militarism
+Return to "American Empire"
+Return to Temas / Main Files
+Return to The New World Order
+Return to Ponerology - The Science of Evil
+Return to CIA - The Central Intelligence Agency
+Return to Zbigniew Brzezinski and The Trilateral

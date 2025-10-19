@@ -1,0 +1,450 @@
+# The Middle East Exopolitical Saga - La Saga Exopolitica del Medio Oriente
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_middleeast.htm
+
+The story of Abraham going out from the city of Ur and coming to Canaan is really telling the story of the Reptilian hybrids leaving Sumerian territory and colonizing other parts of Central Asia and the Middle East... The Middle East became a focal point for the Sirians (from Sirius Star System) and their Reptilian allies. Together, they generated a new version of religion and culture for ease of global control and domination. reptiles17b.htm There will be power shifts to and from various countries to suit the aliens. Consciousnesses will be moving around. Many Reptilian consciousnesses currently in Europe, the Middle East (including Israel) and other parts of the world will be
+re-locating to China before the year is over.
+America and Israel will decline as the power shifts. anu_30.htm The Babylonian Brotherhood and its reptilian bloodlines expanded across the Middle and Near East, especially to Egypt, and eventually
+into Europe and the Americas. biggestsecret03.htm
+Contents
+- Afghanistan's Mineral Resources fueling War and Insurgency
+- America's Triumph & Europe's Angst - The Secret Race to Control Iraq's Extraterrestrial Heritage
+- Anunnaki, Iraq and Pearl Harbor
+- Así se Manipula a una Población - Las Oscuras Verdades que Oculta la Película "El Francotirador"
+- Así será 'The Line' - La nueva Ciudad Distópica en Arabia Saudita
+- "A War on Terror" when You Are the Terrorist - Iraq, Massacre of a Country
+- 'Chilcot Report' on Iraq Invasion Shows Threat of Lesser Evils
+- CIA Has Resumed Drug Smuggling Ops in Afghanistan - Evidence Mounts
+- Congressional Probe Reveals Cover-Up of "Auschwitz-Like" Conditions at U.S.-Funded Afghan Hospital
+- Così si Manipola una Popolazione - Le Oscure Verità che Nasconde il Film "American Sniper"
+- Damning Chilcot Report Confirms Iraq Invasion Was Bush/Blair's War of Choice
+- Declassified CIA Document Reveals Iraq War had Zero Justification
+- Did 9/11 Justify The War in Afghanistan? - Using The McChrystal Moment to Raise a Forbidden Question
+- Dismantling The Iraqi State, Destroying an Entire Country - "Ending States That Sponsor Terrorism"
+- Droga, Petróleo y Guerra - Afganistán
+Español
+- EE.UU. Utilizó el Cáncer Como Arma de Guerra - La Guerra Radiactiva en Irak y en Los Balcanes
+- El Caso Actual de Iran - ¿El Inicio de La Tercera Guerra Mundial? - Main File
+- El Caso Actual de Siria - Main File
+- El "Cementerio de Imperios" reclama otra Víctima
+- El Vídeo Capaz de Socavar el Apoyo Público a La Guerra en Afganistán
+- Expanding The Afghan War - The West's Insatiable Appetite for Global Military Domination
+- Exopolitical Perspective on the Preemptive War against Iraq
+- Fragmentar Irak - El Demencial Plan Estadounidense
+- George Bush and Tony Blair Secretly Plotted the Iraq War a Year before the Invasion
+- Horrifying US Secret Weapon Unleashed In Baghdad
+- "Hubris" - New Documentary Reexamines The Iraq War "Hoax"
+- Irak - Bush bajo la Lupa - por Alfredo Jalife Rahme
+- Iraq - 935 Lies - A Tyrant with "Weapons of Mass Destruction"
+- Iraq - Order 81 - Re-engineering the Country's Traditional Farming Systems
+- Iraq - Toppling a Country
+- Israel's Blitzkrieg on Middle East Oil - Operation Shekhinah a.k.a. Operation Iraqi Freedom
+- Is the Gaza-Israel Fighting "A False Flag"?
+- La Carrera Secreta Para Controlar La Herencia Extraterrestre De Irak
+- La Guerra Gaza-Israele è "Una Falsa Bandiera?"
+- Las Ruinas de una Ciudad Oculta de 3.400 Años de Antigüedad emergen al secarse una Presa Gigante en Irak
+- Law Suit Against 4 US Presidents and 4 UK Prime Ministers - For War Crimes, Crimes Against Humanity...
+Italiano
+- Le Rovine di una Città Nascosta Antica di 3.400 Anni emergono con la secca di una Diga Gigante in Iraq
+- Los Anunnaki, Irak y Pearl Harbor
+- Microwaving Iraq
+- More American Troops to Afghanistan to Keep the Chinese Out? - Lithium and the Battle for Afghanistan Mineral
+- Paralyzed Iraq War Veteran's Writes Last Words to Bush and Cheney
+- Querella de Irak en España Presentado Contra 4 Presidentes de EE.UU. y 4 Primeros Ministros del Reino...
+- Racism and U.S. War - Iraq Veteran
+- Reports Related to Saddam Hussein - Main File
+- Researchers Suggest Iraq War Was Centrally Motivated From an Extraterrestrial-Inspired Religion
+- Resistencia Iraquí, Guerra Sucia Estadounidense y La Remodelación de Oriente Medio - 2003-2013
+- Revealed - Bush Was Planning to Attack Iraq From The Start
+- Rise of Cancers and Birth Defects in Iraq - World Health Organization Refuses to Release Data
+- Rise of the Climate Oligarchs
+- Siete Mentiras sobre Afganistán
+- Star Wars In Iraq
+- The Actual Iran Case - The Beginning of World War III? - Main File
+- The Actual Syrian Case - Main File
+- The Afghanistan Protocol - Explosive Leaks Provide Image of War from Those Fighting It
+- The Hawks Were Wrong - Iraq Is Worse Off Now
+- The History of the Islamic State
+- The Iraq October 2002 NIE on WMDs
+- The Midas Disease - Corruption has Shaped History - Why do we still Ignore it?
+- The Nightmare - The Iraq Invasion's Atrocities, Unearthing the Unthinkable
+- The Secret Race to Control Iraq's Extraterrestrial Heritage
+- The U.S. Airstrikes in Northern Iraq are All About Oil
+- "The War is Worth Waging" - Afghanistan's Vast Reserves of Minerals and Natural Gas
+- Tony Blair and George Bush's Phone Conversation a Week Before Iraq Invasion 'Must Be Released'
+- Threatening and Killing of Scientists in Iraq
+- Two Births - A Gilded Arrival and a Poisoned Legacy
+- Una Perspectiva Exopolitica en La Guerra Preventiva Contra Irak - Puertas Estelares Están Directamente...
+- U.S. and Israel - Two Governments linked by Lies and Bloodshed
+- U.S. Military "Commemorates" Its Iraq Massacre
+- U.S. Officials Guilty of War Crimes for Using 9/11 as A False Justification for The Iraq War
+- "Vamos a Invadir 5 Países en 7 Años - Empezaremos Con Irak" - La Verdad Sobre Oriente Medio
+- War Comes to The Edin
+- When The U.S. Used Cancer as a Weapon - Radioactive Warfare in Iraq and The Balkans
+- White House, CIA Deny Faking Iraq-Al Qaeda Letter
+- WHO Refuses to Publish Report on Cancers and Birth Defects in Iraq Caused by Depleted Uranium...
+- Wikileaks Publishes 1000+ of Hillary Clintons Iraq War Emails - Read Them Here
+- Wikileaks Releases Massive Set of Afghan War Files
+- Bush's Hideous Legacy - Baghdad, 5 Years On - City of Walls
+- Bush Was Planning to Attack Iraq from The Start
+- Collateral Murder - Wikileaks - Iraq
+- Descubren Puerta Estelar en Irak Causa de la Invasión de USA
+- Military Secret Tesla Weapon in Irak?
+- Wikileaks Leaked Video of Civilians Killed in Baghdad
+Additional Information
+- "7 Countries in 5 Years" - Regime Change in Iran Coming Soon?
+- A Clean Break - A New Strategy for Securing The Realm
+- A 'Holy' War
+- Albert Einstein Institution Manual for A Colored Revolution in Egypt
+- Alejandro Magno y Gaza - Una región en Histórico Cambio y Conflicto
+- Alessandro Magno e Gaza - Una regione con un Cambiamento e Conflitto storico
+- Alex Jones on Arab Spring & Globalism - An Exopolitics Perspective
+- Algunas Revelaciones de Los Documentos de WikiLeaks
+- Alleged '9/11 Mastermind' could blow Saudi Role Wide Open in Lawsuit Testimony
+- Al-Qaeda, Eterno Auxiliar de La OTAN
+- Al Qaeda to ET's - The Search for Bogeymen
+- Al-Qa'ida, The Second Act - Why the Global 'War on Terror' Went Wrong
+- America - Death by Terminal Madness and Stupidity
+- America Is Falling Into An Illuminati Trap
+- Americans and Northern Alliance "Friends" - False Flag Terror, Drugs, Staged "Taliban" Attacks
+- America's Chemical Weapons - Hypocrisy, Conspiracy and a Forgotten History
+- America's Complicity in Evil
+- An Open Book... and The Pages Are Turning
+- Another War Crime Surfaces - Expulsion and Massacre of the Bedouins - Ariel Sharon
+- A "Nuclear-Free Zone" in The Middle East? - Why Israel will not Join the Non-Proliferation Treaty
+- Apocalyptical Cult Groups Seek the Destruction of New York City and Toronto
+- Arab Spring - Revolutions, Lies, and Intervention
+- Are Tunisia and Egypt Facing Real Unrest or A Manufactured Crisis?
+- A Return to Monarchy Could Solve the Afghan Conflict
+- Are We Witnessing The Start of A Global Revolution?
+- Automated Apartheid - Walking through Hebron 'Smart City'
+- Baalbek - A Colossal Enigma - Main File
+- Bahrain, a Brutal Ally
+- Bahrain - Is Washington Preparing For 'Regime Change' in PR Disaster Kingdom?
+- Bahrain - Nailing The Lie in Washington's Rhetoric on "The Arab Spring"
+- Bahrain - The Key to Saudi-Qatari Servitude
+- Blackwater Troopers Replacing Emirati Forces in Yemen
+- Blackwater - War Mercenaries Inc. - The Privatization of War - Main File
+- Britain's May Eyes the GCC as a Surer Bet for Trade Ties after Brexit
+- Brusco Cambio de La Situación Estratégica en El Medio Oriente
+- Building Your Own Enemies - from 'Order Out of Chaos' by Paul Joseph Watson
+- Cables Reveal Saudi Royals' Money Grabs - U.S. Messages Detail Royal Welfare Program and Royal...
+- Changing Course - A New Direction for U.S. Relations with The Muslim World
+- Clinton and al-Qaeda - The Propaganda Wars Continue
+- Clinton Sends Lackey to House Committee to Cover Her Involvement in Benghazi Attack
+- CNN Accused of Forcing Journalist to Censor Bahrain Brutality
+- Columbia a High Profile Victim of Proxy Clandestine Government War?
+- Comienza el Juicio contra Israel por Genocidio en el Tribunal Internacional de Justicia
+- Cómo los Houthis dieron Vuelta al Tablero de Ajedrez - Ataque a las Instalaciones Petroleras de Abqaiq
+- Connecting The Many Undersea Cut Cable Dots...
+- 'CST Global' Especializada en El Reclutamiento de Mercenarios
+- Declassified 28 Pages Reveal Evidence of Saudi Govt. Involvement in 9/11
+- "Democracy Now" and The "Progressive" Alternative Media - Valued Cheerleaders for Imperialism and War
+- "Democracy Uprising" in The U.S.A.?
+- Derrota Humillante de EE.UU. a manos de Palestina al frente del G77
+- Descubren 400 "Puertas" Misteriosas en un Campo de Volcanes de Arabia Saudita
+- Detalles del Escándalo de Corrupción que pone contra las cuerdas al Parlamento Europeo
+- Document on Saudi Involvement in 9/11 Released Finally
+- Eastern Mediterranean Gas Fields Discovery Leading to Battle for Wealth in Volatile Middle East
+- Egyptian President Mubarak Steals 40 Billion Dollars
+- El Advenimiento de Ahriman - Un Ensayo Sobre las Fuerzas Profundas Detrás de la Crisis Mundial
+- El Antiuniverso Está Compuesto de Energías en El Cubo Negro de La Meca...
+- El año 2024 - Gaza, Ucrania y Eurasia en la Crisis del Declive Occidental
+- El Documental "Fuego Sobre El Marmara" Evidencia Abusos del Ejército Israelí - Franja de Gaza
+- El Final de Los Días - de "El Fin De Los Días - Armagedon y Las Profecías Del Retorno"
+- El Medio Oriente se libera de Occidente
+- El Mito del Ejército Moral - Testimonios del 7 de Octubre revelan que el Ejército Israelí mató a muchos de sus...
+- El Mundo reacciona a la Orden de Arresto contra Netanyahu
+- El Mundo sin Qatar
+- El Posible Colapso Financiero del Megaproyecto faraónico de Arabia Saudí
+- El Profeta - Alberto Rivera
+- El Proyecto de "Nuevo Orden Mundial" Tropieza con Las Realidades Geopolíticas
+- El Trabajo Sucio siempre consiste en Provocar y Escalar la Guerra
+- Endless Wars Have Cost Americans $1.6 Trillion - Report Finds
+- En Exclusiva RT Obtiene Documentos que Explican cómo Funciona la 'Corporación' Petrolera del Estado...
+- Estado Islámico - Una Operación Globalista
+- Europe's Long War with Islam
+- Evil Only Comes where It's Invited - Tracking Ponerogenesis in History and Israel-Palestine
+- Expediting The Grand Jihad - The Muslim Brotherhood
+- Facebook Bans Pages Calling for Palestinian Uprising
+- Fall of the Arab Spring - From Revolution to Destruction
+- False Flag Operations, 9-11 and the Exopolitical Perspective
+- FDI, Mossad y Shin Bet sabían del Ataque de Hamas antes del 7 de Octubre - No Actuaron para Evitarlo
+- Five Arab Countries That The "Jasmine Revolution" May Spread to Next
+- Follow the Money - Senator John McCain's Ties to Saudis and Rothschilds Exposed
+- Fuera de Control - Cómo Occidente Creó, Financió y Desató el Terror del Estado Islámico sobre el Mundo
+- Gaddafi Was Killed by French Secret Serviceman on Orders of Nicolas Sarkozy - Sources Claim
+- Geert Wilders's "Fitna - The Movie" - A Review
+- "Greater Israel" - The Zionist Plan for the Middle East
+- Guess What? Lots Of Oil, Natural Gas In Gaza! - A Secret Behind Israel's Siege of Gaza: Palestinians...
+- Global Banks Embrace Islam
+- HAMAS - Islamic Resistance Movement
+- HAMAS History Tied to Israel - International Intelligence Analysis
+- Hidden Intelligence Operation Behind The Wikileaks Release of "Secret" Documents? - The Real Story of...
+- History of US-NATO Military Campaigns - 1991-2023
+- Holy Wars in Buddhism and Islam
+- Hoovid Branchings, Hebrew Roots and The Crescent - from 'The Only Planet of Choice'
+- How Islam Failed Me
+- How Palestine Became Colonized - The Empire Files
+- How the Houthis Overturned the Chessboard - Attack on Abqaiq Oil Installations
+- How the West made Israel-Iran War possible - The fantasy of Liberal Reform has given us the Ruins of War
+- How War Fuels the 'March toward a New World Order' - Is a New World War about to Begin?
+- Huge Geometric Shapes in Middle East May Be Prehistoric
+- IAEA to Investigate Gaza Uranium Ammunition Allegations
+- 'If Iran falls, we all Lose' - Why Tehran's allies see this War as Civilizational
+- Il Piano per Destabilizzare La Siria
+- Inside Iran's Sex Slave Industry
+- In Support of Arab Democracy - Why and How - Report of an Independent Task Force
+- Introducing The Gulf Despots Supported by The West - 10 Facts About Saudi Arabia
+- Iran - Nuclear Intentions and Capabilities
+- Irish Aid Vessel Plans to Pass Through Israel's Gaza Blockade - 'Most Serious Consequences' Promised If...
+- Is Global War their Goal?
+- ISIS - An American-CIA-Mossad-Saudi Intel Covert Operation
+- ISIS is America's New Terror Brand - Endless Propaganda Fuels "War on Terror"
+- Islamist Assault on The U.S. Constitution
+- Israel Attacks Gaza Aid Fleet
+- Israel, Hamas y Netanyahu - Un Coctel Explosivo
+- Israel quiere Extender la Guerra a todo Oriente Medio
+- Israel's 'Operation Protective Edge' - Barbaric Human Sacrifice Taking Place in Gaza's Real-Life 'Apocalypto'
+- Israel's Water Genocide
+- "Is this What We Destroy Lives for?" - Iraq, Afghanistan Veterans' Guilt, Unanswered Questions Spike Suicide...
+- "It's Going to Take Years" - US Air Force Calls for Ground Troops to "Occupy and Govern" Iraq and Syria
+- It's Over Chaps - It's Just A Matter of When
+- La Falsa Guerra de Obama contra El Estado Islámico (ISIS)
+- La Fuerza Bruta de Las Potencias Neocoloniales del Siglo XXI - Israel, el Miembro Número Veintinueve de...
+- La Guerra Está Materializando la Israelización del Mundo - Dividir, Conquistar, Colonizar
+- La Nuova Alleanza in Medio Oriente scuote i Poteri Mondiali
+- La Patagonia - ¿La Nueva Palestina? - ¿Qué Están Haciendo Equipos de Reconocimiento del Ejército...
+- La Plaga del Siglo XXI - Todo sobre el Estado Islámico
+- La Podredumbre Moral del Estado Sionista
+- La Primera Guerra de la "OTAN-MO" perturba el Orden Regional
+- Las Grandes Reservas de Gas en el Mundo
+- Las Raíces del Islam
+- ¿La Raíz de toda Maldad? - "El Engaño de Dios"
+- La Sorte di Mubarak è Segnata - Fidel Castro
+- La Suerte de Mubarak Está Echada - Fidel Castro
+- "Lavender" - Se Desenmascara la Aterradora Realidad de la Guerra Automatizada
+- La Verdadera Razón por la que los Propagandistas han estado Promoviendo la Histeria Anti-Rusa
+- Leaked 'Palestine Papers' Show Bad Faith Negotiating by Israel and U.S.
+- Le Grandi Riserve di Gas nel Mondo
+- Los Dönmeh - El Secreto Más Susurrado del Medio Oriente
+- Los Geoglifos Gigantes de Jordania - Más Antiguos que las famosas Líneas de Nazca Peruanas
+- Los Socios Mesiánicos de Netanyahu quieren una Guerra Regional Total - Gaza es sólo el Primer Paso
+- Mahoma - de "Los Dioses del Eden"
+- Mainstream Media Takes Money from Foreign Dictators to Run Flattering Propaganda - CNN Exposed!
+- Many Nations Recognize a Palestinian State - Only Obama Stands in the Way of Full Global Recognition
+- Matanza de La OTAN en Trípoli
+- Mercenarios de Las Monarquías Déspotas Contra La Democracia - Emiratos Árabes Unidos
+- Middle East Madness
+- Middle East Undersea - Cable Cutting A Zionist-NeoCon Covert Operation?
+- Mohammed - from "The Gods Of Eden"
+- Monotheism, Inc. - Chart
+- Morsi and The Muslim Brotherhood Challenged in Egypt
+- Mubarak's Fate is Sealed - Reflections by Fidel Castro
+- NATO Carnage in Tripoli
+- NATO's "Operation Gladio" - Sibel Edmonds on NATO, Terrorism, 9/11 and Drug Running
+- Neom - Is Saudi Arabia Constructing the future Babylon?
+- New Wineskins, Old Vinegar - Mankind Doomed to Repeat Mistakes
+- No Time For Jihads or Crusades
+- Nueva Alianza de Oriente Medio sacude a los Poderes Mundiales
+- ¿Nueva Guerra a la Vista? - Arabia Saudí cambia a EE.UU. por Rusia
+- Nuova Guerra in Vista? - L'Arabia Saudita passa da Stati Uniti a Russia
+- Obama Gives Israel All-Out Support
+- Obama Moves to Make The 'War on Terror' Permanent
+- Obama's "Fake War" Against the Islamic State (ISIS) - The Islamic State is Protected by the U.S. and its...
+- Obama's Gun-Running Operation - Weapons and Support for "Islamic Terrorists" in Syria and Iraq...
+- ¿Obama y Putin Van a Repartirse El Medio Oriente?
+- Oil, Peace and Palestine: Energy Key to Holy Land's Past, Future - World Energy Monthly Review
+- Old Religious Hegemony, NWO - Jesus to the Palestinians: "Love One Another" / God to the Jews: "Get...
+- Operación de Conquista de las Mentes
+- "Operation Justified Vengeance" - Israeli Strike on Freedom Flotilla to Gaza is Part of A Broader Military...
+- Operation Orchard
+- Osama Bin Laden and 9-11 - Main File
+- Own Nothing? - The Great Islamic Finance Convergence
+- Palestine and The Demise of Conscience
+- Political Ponerology - A Science on The Nature of Evil Adjusted for Political Purposes
+- 'Political Ponerology' by Andrew M. Lobaczewski - Commentaries and Additional Quoted Material
+- 'Ponerologia Politica' por Andrew M. Lobaczewski - Comentarios y Material Adicional Citados
+- Ponerología Política - Una Ciencia Sobre la Naturaleza del Mal Adaptada a Propósitos Políticos
+- Pope Calls Migrant Crisis 'Arab Invasion' - Says Europe Must 'Rediscover its Cultural Roots'
+- Putin Reveals 40 Countries that are Funding ISIS at The G20 Summit
+- Putin Revela en la Cumbre del G20 a 40 Países que Están Financiando a ISIS
+- Qatar 2022 - El Mundial Maldito
+- Qatar, la Hermandad Musulmana, el Hamas e Israel
+- ¿Que Hay de Esas Guerras en El Medio Oriente?
+- Quotes to "Illuminate" You - A "Gift of Love" from Three Mayor Religions
+- Rabino Judío Habla La Verdad Sobre El Genocidio Contra Los Palestinos y Gaza
+- Red Judía Anti-Sionista Internacional
+- Rothschild's Gaza Land Grab
+- Rusia, EE.UU. y Francia Formarán una Amplia Coalición que "Dará un Golpe Definitivo al EI" - Dice Hollande
+- Rusia está Derrotando a EE.UU. en el 'Juego del Petrolero en Oriente Medio'
+- Rusia Transporta el "Arca de Gabriel" que estaba Debajo de la Gran Mezquita de La Meca a la Antártida
+- Russia begins Transport of Saudi Arabia's Mysterious "Ark of Gabriel" to Antarctica
+- Russia is Defeating the U.S. in the 'Middle East Oil Game'
+- Saudi Arabia Declares Oil War on U.S. Fracking - Hits Railroads, Tank-Car Makers, Canada, Russia and...
+- Saudi Arabia is Building a $500-Billion New Territory Based on Tech and Liberal Values
+- Secretos Ocultos del Vaticano Acerca de la Creación del Profeta Mahoma - Alberto Rivera, Ex Sacerdote...
+- Secret Vatican Briefings on The Creation of Prophet Muhammad - Alberto Rivera, Former Jesuit Priest
+- Segreti Occulti del Vaticano su La Creazione del Profeta Maometto - Alberto Rivera, ex Sacerdote Gesuita
+- Sex, Sharia and Women In The History of Islam
+- Start Preparing for the Collapse of the Saudi Kingdom
+- State of Israel Charged for "Crime of Genocide and War Crimes" - Kuala Lumpur Tribunal
+- State Terrorism and The New World Order - "Man's Stupidity Has No Bounds"
+- Stopping ISIS - Follow the Money
+- Struggling With Pedophilia in Islam
+- Sumer and The Anunnaki - Main File
+- Supporting Genocide to Halt Multipolarity
+- Terrorismo de Estado - Israel Incendia Con Fósforo la Sede de La ONU, Bombardea Hospital, Dispara...
+- Terroristas Islamistas - ¿Títeres Controlados por Occidente?
+- The Advent of Ahriman - An Essay on the Deep Forces behind the World-Crisis
+- The American Empire Is Collapsing Before Our Eyes in The Mideast
+- The Benghazi Talking Points and How They Were Changed to Obscure The Truth
+- The CIA's Creation of "Islamic Terrorism" on American Soil
+- The Cost of Iraq, Afghanistan, and Other Global War on Terror Operations Since 9/11
+- The Covenant - from 'The Only Planet of Choice'
+- The "Demonization" of Muslims and The Battle for Oil
+- The Drug Catastrophe in Afghanistan
+- The Egypt 'Revolution' - The Manipulation of A Justified Rebellion
+- The Emergence of Wahhabism and its Historical Roots
+- The End of Days - from "The End of Days - Armageddon And Prophecies of The Return"
+- The Fallacy of 'Regime Change' Strategies
+- The Invisible Entity Behind The Global Uprising Taking Place
+- The Israel-Palestine Conflict - by Jeremy R. Hammond
+- The Jet Fuel of Tyranny Hypocrisy
+- The Late Neolithic Colonization of the Eastern Badia of Jordan
+- The Making of World Wars
+- The Master Race and The Family of Light - Conflict, Spiritual Purification and Bio-Political Agendas in "Book...
+- The Middle East and Then The World - Globalist Blitzkrieg Signals Largest Geopolitical Reordering Since...
+- The Middle East Policy Problem - US, UK And Israel
+- The Muslim Brotherhood - Main File
+- The Plans to Rebuild The Temple in Jerusalem Have Been Finalized - The Dome of The Rock Will Remain...
+- The Politics of An Israeli Extermination Campaign - Backers, Apologists and Arms Suppliers
+- The Prophet - Alberto Rivera
+- The Protocols of The Learned Elders of Zion - Main File
+- The Redirection - Is The Administration's New Policy Benefitting Our Enemies in The War on Terrorism?
+- The Religion of Peace - Myths of Islam
+- The Root of All Evil? - "The God Delusion"
+- The Roots of Islam
+- The "Secret Society" Behind Osama bin Laden and his al-Qaeda
+- The True Obstacle to Peace Between Israelis and Palestinians
+- The Untold Story of The Deal That Shocked The Middle East - Revealed
+- The U.S. Colored Revolution User Manual for Egypt
+- The U.S. is Supporting The Most Violent Muslim Terrorists in Order to Wage War for Oil
+- The U.S.-NATO Preemptive Nuclear Doctrine - Trigger A Middle East Nuclear Holocaust To Defend 'The...
+- The U.S. Policy Coup Explained by 4-Star General Wesley Clark
+- The Western Alliance is Falling Apart
+- Towards a Grand Strategy for an Uncertain World - Renewing Transatlantic Partnership
+- Trump cae en la Trampa de Aramco
+- Trump Falls Into the Aramco Trap
+- Trump reúne al Imperialismo, el Wahabismo y el Sionismo
+- Trump's Trip to Riyadh Offers Left and Right Common Ground
+- Tulsi Gabbard Slams Trump - Being "Saudi Arabia's Bitch is Not America First"
+- Turkey - A Criminal State, a NATO State
+- Una Idea Loca y Peligrosa Salta a la Luz Pública
+- Una Revelación Publica Impactante sobre EE.UU. y el "Terrorismo Islámico"
+- ¿Unión Árabe o Unión Islámica?
+- United Nations Listing of Terrorist Organizations
+- Uranio Empobrecido - Una Extraña Forma de Proteger a Los Civiles Libios
+- Uranium Weapons - Does Anyone Care About Our Planet?
+- U.S. Foreign Policy in Shambles - NATO and the Middle East - How do You Wage War without Allies?
+- U.S. Presidents Charged With Crimes Against Humanity as Universal Jurisdiction Dies in Spain
+- U.S. Says NO to United Nations' Anti-Free Speech Effort
+- ¿Va Israel a Provocar un Cataclismo?
+- Voy a la Guerra por Israel - Los Palestinos No Son mi Enemigo
+- War and Natural Gas - The Israeli Invasion and Gaza's Offshore Gas Fields
+- War in the Middle East and The Rothschilds - Confidential Pentagon Memo: "Take Out 7 Countries..."
+- War in the Middle East threatens Central Asia
+- Was The Obama Administration Involved in The Planning of The Israeli Attack on The Gaza Freedom Flotilla?
+- West Attempts to Trigger Clash of Civilizations
+- What About Those Wars in The Middle East?
+- What are Israeli Army Reconnaissance Teams Doing in Patagonia?
+- Which Path to Persia?
+- "...Who Masters those Technologies, in some way, will be the Master of The World" - Klaus Schwab
+- Why Are Right-Wingers So Crazy In Love With Israel?
+- Why Does the "War on Terror" Serve Western Policy?
+- Will Israel Fall in Five Years?
+- "Wiping Countries Off The Map" - Who's Failing The "Failed States"
+- ...Y 'Dios' creó a Hamas en el Séptimo Día
+- Yemen - The Covert Apparatus of The American Empire
+- ¿Yihad Global Contra los BRICS?
+- Zionism - The Real Enemy of the Jews? - Why the Truth of History Matters
+- Zionism vs. Islam - Which is More 'Dangerous'?
+Libya and North Africa
+- America's Planned Nuclear Attack on Libya
+- Come Al-Qaida è Riuscita a Governare Tripoli
+- Come Gli Uomini di Al Qaida Arrivarono al Potere in Libia
+- Cómo Llegó Al-Qaida a Gobernar en Trípoli
+- Cruise Missiles With Depleted Uranium on Libya
+- How Al Qaeda Men Came to Power in Libya
+- Impacto de Los Misiles Crucero de Uranio Empobrecido en Libia
+- La Guerra Contra Libia es Una Catástrofe Económica Para África y Para Europa - Entrevista al Mini. de...
+- La Guerra Contro la Libia è Una Catastrofe per l'Africa e per l'Europa - Intervista con il Ministro per la...
+- La NATO di Fronte 'L'Ingratitudine' Dei Libici - Il Neocolonialismo per il Petrolio
+- La OTAN Ante la 'Ingratitud' de los Libios - Neocolonialismo por el Petróleo
+- Las Verdaderas Razones por las que Gaddafi fue Asesinado - Si esto es "DICTADURA" ¿qué es la Democracia?
+- Libia - La Vera Guerra Comincia Adesso
+- Libia - La Verdadera Guerra Comienza Ahora
+- Libia - ¿Petróleo o Bancos Centrales?
+- Libya and The End of Western illusions
+- Libya - From Africa's Richest State under Gaddafi, to Failed State after NATO Intervention
+- Libya in Anarchy Two Years after NATO 'Humanitarian' Liberation
+- Libya R.I.P. - The Rothschilds Own You Now
+- Libya - The Real War Starts Now
+- Neoconservatives Planned Regime Change Throughout the Middle East and North Africa 20 Years Ago
+- "Operation Libya"
+- The Libyan War, American Power and The Decline of The Petrodollar System
+- The Truth About The Situation in Libya - Cutting Through Government Propaganda and Media Lies
+- Who are the Libyan Freedom Fighters and their Patrons?
+Multimedia
+- Al Jazeera Analyses Bush's Checkpoint Gaffe - 10 January 2008
+- Amazing Speech by War Veteran
+- Asombroso Discurso de Un Veterano de Guerra
+- Blood and Oil
+- Censored Images of War
+- Control Room
+- Dirty Wars
+- El Fin del Letargo
+- El Virus de La Fe - The Virus of Faith - Richard Dawkins for Channel 4
+- Erased - Eliminados - La Barbarie de Gaza
+- Gaddafi - Our Best Villain
+- Geert Wilders's "Fitna - The Movie"
+- Hubris - Selling The Iraq War
+- If Americans Knew What Israel Is Doing! - VIDEO WAS CENSORED!
+- Iran, Iraq, and Extraterrestrials
+- Israel - Desvelando un Misterio - Documental de David Sorensen
+- La Ilusión de Dios - The God Delusion - Richard Dawkins
+- Map with Iraq's Threatened Heritage
+- Meet Benjamin Netanyahu - Unconvicted War Criminal
+- Middle East History - Maps of War In Motion - 3000 B.C.E to 2006 C.E.
+- Obsession - Radical Islam's War Against the West
+- Origins of Israel and New Mono World Order - David Icke
+- Pathocracy = DISEASE
+- Sala de Control
+- The Dangers of Idealism - How America Destabilized the Middle East
+- The Fraud of "Humanitarian Wars"
+- The Isis Crisis - The Al-Sham Scam - David Icke
+- The Laughs of Hillary Clinton - Expressions of A Psychopath?
+- The Naked Truth - Documentary by Jordan Maxwell
+- The Other Israel
+- The Power of Nightmares - The Rise of The Politics of Fear
+- The Root of All Evil - Richard Dawkins
+- The Story of 'God'
+- This Could Have Been Done With The Money Spent on Iraq War!!
+- When War BackFires! - Delusions of A Maverick As President
+Related Reports
+- Atomic Power and the Use of Depleted Uranium (DU) Weapons - Main File
+- Comet 73 Deep Impact 2006 - by Eric Julien - Main File
+- Global Militarism - Main File
+- Gods and Religions on Planet Earth - Main File
+- La Verdadera Historia del Cristianismo - Main File
+- Libro del Conocimiento - Extractos
+- NATO - Powerful and Necessary, or Costly and Obsolete? - Main File
+- Oil Industry - Producers of Energy and Disasters - Main File
+- The 9-11 Events - Main File
+- The Divine and The Manipulative Extraterrestrials - Effects on Humanity's Religions, Beliefs... - Main File
+- The Robots' Rebellion - The Story of the Spiritual Renaissance - by David Icke
+- 'War on Terror' - Main File
+- Zecharia Sitchin, Sumeria, Los Anunnaki y Nibiru - Main File
+Return to Life in The Universe
+Return to Temas / Main Files
+Return to The Illuminati

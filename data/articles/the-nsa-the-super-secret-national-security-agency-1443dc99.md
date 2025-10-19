@@ -1,0 +1,310 @@
+# The NSA - The Super Secret National Security Agency
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_nsa.htm
+
+President Truman created the supersecret
+National Security Agency (NSA)
+by secret Executive order on November 4, 1952. Its primary purpose was to decipher the alien communications language, and establish a dialogue with the extraterrestrials.
+This most urgent task was a continuation of the earlier effort.
+The secondary purpose of the NSA was to monitor all communications and emissions from any and all electronic devices worldwide for the purpose of gathering intelligence, both human and alien, and to contain the secret of the alien presence.
+from The Secret Government - Origin, Identity and Purpose of MJ-12
+Contents
+- A Tale of Two Countries - New Zealand Apologizes for Illegal Domestic Spying, While U.S. Still Refuses to...
+- Attacking Tor - How the NSA Targets Users' Online Anonymity
+- Citizens Against Unidentified Flying Objects Secrecy v. National Security Agency
+- Clapper Reveals Bush-Era Docs Showing NSA Spying Dragnet Started 2001
+- Covert Operations of the U.S. National Security Agency
+- Creation of The NSA - from 'The Secret Government - Origin, Identity and Purpose of MJ-12'
+- DARPA - Defense Advanced Research Projects Agency - Main File
+- Did the NSA Kill Hugo Chavez?
+- Evidence Points to Bitcoin being an NSA-engineered Psyop to roll out One-World Digital Currency
+- Ex-empleado de la NSA Revela la Crisis de la Agencia y sus Polémicos Métodos
+- Exposed The Covert, Real-Time Spying on Youtube, Facebook and Blogs
+- Foiling Computer Hackers Top Priority With FBI, CIA, Pentagon, NSA
+- 'Follow the Money' - NSA Spies on International Payments
+- Foreign Officials in the Dark About their Own Spy Agencies' Cooperation with NSA
+- Google and The NSA Connection
+- Google and The NSA - Who's Holding The 'Shit-Bag' Now?
+- Google Asks NSA to Help Secure Its Network
+- Google, CIA and the NSA - Inside the Secret Network behind Mass Surveillance, Endless War and Skynet
+- Google's True Origin partly lies in CIA and NSA Research Grants for Mass Surveillance
+- Google to Enlist NSA to Help It Ward Off Cyber-Attacks
+- Hidden Government Scanners Will Instantly Know Everything About You from 164 Feet Away
+- High-Level U.S. Government Officials Have Warned for 40 Years that Mass Surveillance Would Lead to...
+- How Google, Facebook, Skype, Yahoo and AOL are All Blatantly Lying to Their Own Users in Denying NSA...
+- How International Treaties Gave NSA Back-Door Access for Surveillance
+- How Much did CIA and NSA have to do with the Founding of Google?
+- How NSA Access Was Built into Windows
+- How the NSA Plans to Infect 'Millions' of Computers with Malware
+- How the NSA Spies on Your Google and Yahoo Accounts
+- Inside TAO - Documents Reveal Top NSA Hacking Unit
+- Inside The NSA's Largest and Most Expansive Secret Domestic Spy Center in Bluffdale, Utah - Exposed
+- It's Not Just Spying - How the NSA Has Turned Into a Giant Profit Center for Corrupt Insiders
+- Key to The Extraterrestrial Messages - NSA Technical Journal Vol XIV No 1
+- La NSA Participó en El Desarrollo de Windows 7
+- La Red Echelon - Main File
+- Lawless NSA Global Spying
+- Los Secretos de Silicon Valley - Lo que el Big Tech No Quiere que Sepas
+- ¿Mató la NSA a Hugo Chávez?
+- NSA Able to Target Offline Computers Using Radio-Waves for Surveillance, Cyber-Attacks
+- NSA and State Surveillance - 5-Part Special
+- NSA Boss Wants More Control Over The Internet
+- NSA Built Back Door in All Windows Software by 1999
+- NSA Claims Massive New Surveillance Powers
+- NSA Director Defends Plan to Maintain 'Backdoors' Into Technology Companies
+- NSA Gathers Data on Social Connections of U.S. Citizens
+- NSA, GCHQ Using Data from 'Leaky' Smartphone Apps to Spy
+- NSA has Built its Own, Secret, Warrantless, Shadow Social Network, and You've Already Joined It
+- NSA Helped With Windows 7 Development - Privacy Expert Voices 'Backdoor' Concerns - Security...
+- NSA 'Helping' Microsoft With Windows 7 'Security'
+- NSA Infiltrates Links to Yahoo and Google Data Centers Worldwide - Snowden Documents Say
+- NSA - National Security Agency - Extrapolate Postmodum Prosum - Updated
+- NSA Offering 'Billions' for Skype Eavesdrop Solution - Business Model for P2P Firm at Last?
+- NSA Recent UFO Document Release More Interesting for What It "Could" Not Find
+- NSA Refuses to Declassify Obama's Cybersecurity Directive - Exceptionally Grave Damage
+- NSA's Computer and Mobile Spying - An Interview with Professor Tung Yin
+- NSA's Domestic Surveillance is Motivated by Fears that Environmental Disasters Could Fuel Anti-Gov...
+- NSA Secretly Exploited Devastating Heartbleed Bug for Years - Report
+- NSA Security Running Amok to Plug Leaks About 9/11
+- NSA Spying Did Not Result in a SINGLE Foiled Terrorist Plot
+- NSA's Top Hacking Unit
+- NSA Top-Secret Document from 2012 - FOXACID - SECONDDATE - WILLOWVIXEN
+- NSA Surveillance Goes Beyond Orwell's Imagination - Says Alan Rusbridger
+- NSA Took Part in The Development of Windows 7
+- NSA Wants EZ Pass Control for Internet
+- "Obese Intelligence" - The NSA Search Engine
+Español
+- ¿Porqué me Vigilan, si no soy Nadie?
+- Quantum Insert
+- Radio Mensajes Provenientes del Espacio Exterior - Documento Desclasificado de La NSA
+- Russian Researchers Expose Breakthrough U.S. Spying Program
+- Secret Archives - National Security & Privacy
+- Secrets of Silicon Valley - What Big Tech Doesn't Want You to Know
+- Shadowgate Banned Film - How We're Being Controlled
+- Skynet Rising - Google Acquires 512-qubit Quantum Computer - NSA Surveillance to Be Turned Over to...
+- Spying on Americans - Police Scanners Everywhere... - Government Will Soon Be Able To Know What...
+- Stellar Wind - The Secret NSA Domestic Spying Program
+- Stellar Wind' Whistleblower Reveals More About NSA Domestic Spying
+- Technology Companies Concede to Government Surveillance Program
+- The Echelon Network - Main File
+- The Google-NSA Alliance - Developing Cybersecurity Policy at Internet Speed
+- The National Security Agency - from "The Invisible Government"
+- The National Security Agency (NSA) is a Criminal Organization
+- The NSA has Dossiers on Nearly Every U.S. Citizen - Whistleblower William Binney says
+- The NSA is Building The Country's Biggest Spy Center - Watch What You Say - Big Brother Goes Live...
+- The NSA is Watching You
+- The NSA is Working on Powerful Quantum Computing Technology
+- The NSA's Global Spying Network
+- The Program - National Security Agency Top-Secret Program
+- The Rise of Global Digital Surveillance - Spying, Prying and Lying
+- The Secret War - General Keith Alexander and The Cyberwar Industrial Complex
+- The Surveillance Engine - How the NSA Built Its Own Secret Google
+- The Surveillance State - Knowing Every Bit About You
+- The 'Top Secret America' Created After September 11
+- The Very Strange Case of The NSA and Lake Vostok in Antarctica
+- They Know Much More Than You Think - The NSA
+- Top Secret America - A Hidden World Growing Beyond Control
+- Untangling The Web - A Guide to Internet Research - Large File
+- 'We Kill People Based on Metadata' - Former NSA-CIA Director Says
+- What does Palantir actually Do?
+- What is The NSA's Utah Data Center - Safety or Surveillance?
+- Why Big Business Profit is the Real Reason Behind NSA Surveillance
+- Why Care About the NSA? - A Short Film Explores Whether We Should Be Concerned About Online...
+- Why Google made the NSA
+- Why Your Encrypted Phone Doesn't Stop the NSA from Spying on You
+- Windows 7 'Security' Courtesy of The NSA
+- Windows-Microsoft-Bill Gates - Main File
+- World Depopulation is Top NSA Agenda - Club of Rome
+Additional Information
+- Agreements With Private Companies Protect U.S. Access to Cables' Data for Surveillance
+- A Look into Facebook's Potential to Recognize Anybody's Face
+- Apple Has Installed Security Backdoors on 600 Million iPhones and iPads - Claims Security Researcher
+- Are Black-Budget Ops Stealing Their Money from The Stock Market?
+- Bioeffects of Selected Nonlethal Weapons - Project Medusa
+- 'Black Budget' Revealed - A Detailed Look at US 'Espionage Empire'
+- Blue Planet Project - Alien Technical Research 25
+- Chilling Effects - Online Surveillance and Wikipedia Use
+- Communication With Extraterrestrial Intelligence - UNCLASSIFIED
+- Confessions of An Economic Hit Man - Concise Summary
+- Cosa Succederà se Facebook e Google si Impossessano del Mondo?
+- Creating The "Domestic Surveillance State" - How America's Wars Are Systematically Destroying Our...
+- Documents Show Undersea Cable Firms Provide Surveillance Access to U.S. Secret State
+- Esta Agencia del Gobierno en la Sombra es más Atemorizante que la NSA
+- EU Wants to Intercept Encrypted VOIP Communications
+- Exposing The Global Surveillance System
+- Forget the Tin Foil Hat - NSA-proof Wallpaper could keep Snoopers and 'Doomsday' Electromagnetic...
+- Global Intelligence-Gate - From Confessions of An Economic Hit Man to The Stratfor Corporation
+- Going for The Throat - 'Carnivore' in an Echelon World - Surveillance Systems
+- Google and Facebook - Alliances With Intelligence to Make Privacy Obsolete
+- Google Partners With NSA, CIA on Intelligence Database
+- Google - The Perfect Compliment to Big Brother
+- Government Agents Invent False Evidence to Destroy Reputations
+- Has Skype's VOIP Encryption Been Broken?
+- How Algorithms Rule The World
+- How Covert Agents Infiltrate the Internet to Manipulate, Deceive, and Destroy Reputations
+- IARPA developing Artificial Intelligence to Help 'Predict the Future'
+- Impeachment or NSA-Led Coup? - Alarming Efforts to Oust Brazil's Rousseff
+- Intelligence Community Massive Digital Data Systems Initiative
+- International Internet Standards-Setting Body Pulls Away from U.S. Control, Citing Surveillance Concerns
+- Interview to Former Economic Hitman John Perkins - 2012, Government Corruption and More...
+- Interview With Gods
+- Invasive Cyber Technologies and Internet Privacy - Big Brother is Only a "Ping" or Mouse Click Away
+- Leveraging Billions of Faces to Overcome Performance Barriers in Unconstrained Face Recognition
+- Lost in The Cloud - Google and The U.S. Government
+- Malware Aimed at Unmasking 'Tor' Users Sent Data to IP Address Belonging to NSA or FBI
+- Meet IARPA - Intelligence Advanced Research Projects Activity
+- Mind Control And Surveillance From Pine Gap - from "The Fake Second Coming"
+- More Hack Attacks Coming as Microsoft Slams Government Secrecy
+- NASA Moon Bombing Violates Space Law and May Cause Conflict With Lunar ET/UFO Civilizations
+- National Programs for Mass Surveillance of Personal Data in EU Members States and Their Compatibility...
+- Netflix, Facebook and the NSA - They're All in it Together
+- Project Mannequin and James Casbolt - Main File
+- Project Mannequin Interview
+- Project Mannequin, UK Cloning, Mind Control and Genetic Enhancement Program
+- Promis
+- Proyecto Mannequin y Clonación en UK, Control Mental y Programa de Realce Genético
+- Psychology - A New Kind of SIGDEV - NBC News Investigations
+- ¿Qué Pasará si Facebook y Google se Apoderan del Mundo?
+- Report on War on Terror Amid Crackdown on Whistleblowers - James Risen Prepared to "Pay Any Price"...
+- Seymour Hersh on Obama, NSA and The 'Pathetic' American Media
+- Study Shows Mass Government Surveillance Silences Unpopular Opinions
+- The Art of Deception - Training for Online Covert Operations
+- The End of Hypocrisy - American Foreign Policy in the Age of Leaks
+- The Fact that Mass Surveillance Doesn't Keep Us Safe Goes Mainstream
+- The Fake Second Coming - TechnoRealities / What Is Going On In The Skies - Are Some UFO's from...
+- The Five Criminals - In America, the Gestapo Has Replaced the Rule of Law
+- The NGA - The Billion Dollar Spy Agency You've Never Heard Of - They Can See a 'Stick of Butter from Space'
+- The REAL Reason U.S. Targets Whistleblowers
+- The Secret Government - Origin, Identity and Purpose of MJ-12
+- The Secret Shadow Government - A Structural Analysis
+- The Ultimate Secret - Majestic-12
+- This Shadow Government Agency is Scarier than the NSA
+- TIA Lives On
+- Unclassified Report On The President's Surveillance Program - Obama Administration
+- Under Surveillance - Examining Facebook's Spiral of Silence Effects in the Wake of NSA Internet Monitoring
+- Use These Secret NSA Google Search Tips to Become Your Own Spy Agency
+- U.S. Cyber Command - Documents Reveal Pentagon Launching Covert Cyber Attacks
+- U.S. Government Developing Ultimate Cyber Weapon - Prime-Factoring Quantum Computing Makes...
+- What Are We After with Our Third Party Relationships? - And What Do They Want from Us, Generally...
+- White Hats vs. Cabal Inside the U.S. Intelligence Community
+- Why Ex-Federal Government and Wall Street Executives are Going Into Hiding
+- Will NSA leak Bring Disclosure of Alien Life without Official Acknowledgement?
+PRISM-Main Core and The Snowden Case
+- After Six years in Exile, Edward Snowden explains Himself
+- Anti-NSA "Blackphone" - Encrypted Smartphone Designed to Liberate Users from Total Surveillance
+- Barack Obama 'Approved Tapping Angela Merkel's Phone 3 Years Ago
+- Big Tech 'Indenture entire Populations into Servitude' to Corporations and Governments - Snowden
+- Blackwater Digital Manda
+- British GCHQ uses Tavistock mass Mind Control Techniques in cyberspace
+- British Spies Used Sex and 'Dirty Tricks'
+- Compare the NSA's Facebook Malware Denial to its Own Secret Documents
+- CSEC used Airport Wi-Fi to Track Canadian Travelers - Edward Snowden Documents
+- Despite U.S. Opposition, U.N. Pushes Forward Surveillance Bill of Rights
+- Did Someone Help Ed Snowden Punch a Hole in The NSA?
+- Documents Reveal NSA Reads Your Internet Chats - Here's How to Avoid Being Spied On
+- Edward Snowden Departs Hong Kong on Flight to Moscow
+- Edward Snowden Divulges the 5 Easiest Ways to Protect Yourself Online
+- Edward Snowden explains Blockchain to his Lawyer and the Rest of Us
+- Edward Snowden exposes Unsettling Truth about What Facebook Really Is
+- Edward Snowden, Julian Assange and Chelsea Manning Nominated for 2020 'Nobel Peace Prize'
+- Edward Snowden Quotes About U.S. Government Spying that Should Send a Chill Up Your Spine
+- Edward Snowden's Revelations and Implications to VPN Use in The Internet
+- Edward Snowden -There Will Be More 'Libertarian Millennials' Like Him
+- Edward Snowden wants to Build an iPhone Case that will Tell You if the NSA is Listening
+- Embassy Espionage - NSA's Global Surveillance Unit - The 'Special Collection Service'
+- Espías Británicos Usaron Sexo y 'Trucos Sucios' - Documentos de Snowden
+- "Estados Unidos No Teme a Los Informantes - Teme a Una Sociedad Informada" - Dice Snowden
+- Europe Drops Charges against Edward Snowden - Offers Asylum and Protection
+- Flight to Cuba for Which Snowden Booked Departs
+- Free Snowden - EXTERNAL LINK
+- 'Future of Surveillance' After Snowden - Former NSA Director Upset
+- General Alexander Calling for NSA Reporting to Be Halted - U.S. and U.K. Credibility as 'Guardians of...
+- How to Be a Rogue Superpower - A Manual for The Twenty-First Century
+- Iceland Congress Puts Forward Bill to Grant Snowden Citizenship
+- Inner Workings of A Top-Secret Spy Program
+- Investigation Launched in Luxembourg over Skype's Links to NSA Surveillance Programs
+- Keith Alexander Says the US Govt' Needs to Figure Out a Way to Stop Journalists from Reporting on...
+- Latest Docs Show Financial Ties Between NSA and Internet Companies - Google, Yahoo, Microsoft and...
+- Main Core - A List of Millions of Americans that Will Be Subject to Detention During Martial Law
+- Main Core - The Last Roundup
+- Mercosur Denuncia Ante La ONU a EE.UU. por Espionaje
+- Microsoft Aiutava Prism a Spiare
+- Mission Accomplished, Says Snowden
+- Miles de Matemáticos piden Boicotear la IA de 'Crimen Predictivo' de la Policía
+- New Documents Shed Light on NSA's Dragnet Surveillance
+- Non Continuare a Permettere che Facebook Controlli le Tue Notizie - Dice Snowden al Mondo
+- No sigas Permitiendo que Facebook Controle tus Noticias - Dice Snowden al Mundo
+- NSA Malware Infected over 50,000 Computer Networks Worldwide
+- NSA Leaks Hint Microsoft May Have Lied about Skype Security
+- NSA Leaks - Now You Can View All of Snowden's Documents in One Place
+- NSA Monitored Calls of 35 World Leaders after U.S. Official Handed Over Contacts
+- NSA Prism Program Taps into User Data of Apple, Google and Others
+- NSA Slides Explain The PRISM Data-Collection Program
+- NSA Spy Grid Whistleblower Ed Snowden Steps Forward in Mind-Blowing Video Interview with G.Greenwald
+- Obama se Enfurruña con Putin
+- Obama's War on Whistleblowers Finds Another Target
+- Omidyar's PayPal Corporation Said to Be Implicated in Withheld NSA Documents
+- Perché Ecuador sarebbe un Rifugio ideale per Edward Snowden
+- PRISM Mining UFO Data - Targets False Flag ET Invasion as Pretext to Space Wars
+- PRISM's Breaking
+- Read Snowden's Comments on 9/11 that NBC Didn't Broadcast
+- Security-Enhanced Android - NSA Edition
+- Sin Cifrado Perderemos toda la Privacidad - Este es nuestro Nuevo Campo de Batalla
+- Skype Collaborated With NSA Long Before PRISM - The New York Times
+- Skype's Secret 'Project Chess' Reportedly Helped NSA Access Customers' Data
+- Snowden Documents Proving "US-Alien-Hitler" Link Stun Russia
+- Snowden Nominated for 'Freedom of Thought' Prize
+- Snowden Reveals First Ever Public Disclosure of Secret Black Budget Programs
+- Snowden Revela Primera Divulgación de Programas Secretos de Presupuestos Negros
+- Snowden Revelations Led to 'Chilling Effect' on Pursuit of Knowledge - Says Study
+- Snowden, Siria, Obama y Mas... - Versión Completa de La Entrevista a Vladimir Putin
+- Spy Agency Launched False Flag Attacks and Used Honey Traps - Snowden
+- Snowden 10-page Written Testimony to a European Union Committee
+- Stop Letting Facebook Control Your News - Says Snowden to the World
+- Student Group Files Complaint Against U.S. Firms Over NSA Data Snooping
+- The Last Roundup - Compilation of A Secret List of Citizens Who Could Face Detention under Martial Law
+- The Most Wanted Man in The World
+- The NSA Archive - EXTERNAL LINK
+- The NSA has Inserted its Code Into Android OS, or Three Quarters of All Smartphones
+- The Risks of Trusting the Snowden Story
+- The Sickening Snowden Backlash - Our Leaders and the NSA Betrayed Us, Not Snowden
+- The Snowden Effect - WikiLeaks now Open for Business With Payment Partner Mastercard
+- The Snowden Files - British Spies Used Sex and 'Dirty Tricks'
+- U.S.-British Intelligence Mining Data from Nine U.S. Internet Companies in Broad Secret Program
+- U.S. Officials say Snowden Disclosures Will 'Lead to Deaths' - Plead for An End to Leaks
+- Web's Reach Binds NSA and Silicon Valley Leaders
+- What we Need to Know about PRISM
+- Who is Edward Snowden? - Matrix
+- Why Ecuador Would Be an Ideal Refuge for Edward Snowden
+- Winners and Losers in Snowden Fiasco
+Multimedia:
+- Edward Snowden Spills the Disturbing Details of Digital Spying Technology - Speech on 'Moment of Truth'
+- La Verdad Sobre Snowden
+- Once your Phone is Hacked... - Edward Snowden
+Books-Treatises
+- Agent Buried Alive - A Survivor of NSA Genetic Enhancement and Occult Warfare Projects Speak Out
+- Body of Secrets - Anatomy of The Ultra-Secret National Security Agency - by James Banford
+- Confessions of An Economic Hit Man - by John Perkins
+- The Invisible Government - by David Wise and Thomas B. Ross
+Multimedia
+- Bush NSA Targeted Journalists
+- Counter-Intelligence - Shining a Light on Black Operations
+- Echelon - The Secret Power of The NSA
+- ¿Porqué me Vigilan, si Soy Nadie?
+- Top Secret America
+- Windows 7 Backdoor - Say Goodbye to Your Information!
+Related Reports
+- CIA - The Central Intelligence Agency - Main File
+- Disclosure - Life in The Universe - Main File
+- Facebook and The Internet - Main File
+- Google and The Internet - Main File
+- Life in Our Galaxy - Main File
+- The End of The Internet... As We Know It? - Main File
+- The Family - Main File
+- The Global Elite - Main File
+- The Majestic Project / MJ-12 - Main File
+- Vida en El Universo - Life in The Universe - Main File
+- 'War on Terror' - Main File
+Return to Temas / Main Files
+Return to Big Brother Loves You...
+Return to The Secret-Shadow Government

@@ -1,0 +1,36 @@
+# Eastern Mediterranean Gas Fields Discovery Leading to Battle for Wealth 
+in Volatile Middle East
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_middleeast74.htm
+
+by Brandon Turbeville
+September 17, 2012
+from ActivistPost Website
+Brandon Turbeville is an author out of Mullins, South Carolina. He has a Bachelor's Degree from Francis Marion University and is the author of three books, Codex Alimentarius - The End of Health Freedom, 7 Real Conspiracies, and Five Sense Solutions and Dispatches From a Dissident.
+Turbeville has published over one hundred articles dealing with a wide variety of subjects including health, economics, government corruption, and civil liberties.
+Brandon Turbeville is available for podcast, radio, and TV interviews. Please contact us at activistpost (at) gmail.com.
+As virtually the entire Muslim world erupts in violent protest over a very questionable anti-Islam propaganda video, the Syrian destabilization continues, the murder of the US ambassador to Libya is a world headline, and the impeding war with Iran looms heavier, one can easily see the build-up to a literal clash of civilizations of unprecedented proportions.
+Coupled with the worldwide economic depression and the constant edging closer of a confrontation between the West and Russia and China, one can only wonder when the world will plunge into an unfortunate and totally destructive third world war. However, with so much focus placed upon the issues mentioned above, it seems that we may add yet another potential tinderbox for the total disintegration of world civilization.
+This new tinderbox is the underreported Med gas fields - a grouping of natural gas fields that are claimed, at least in part, by,
+Israel Lebanon Palestine Cyprus,
+Israel
+Lebanon
+Palestine
+Cyprus,
+...with vested interests held by Turkey and Russia.
+Iran, Syria, and Egypt are also paying very close attention to developments made in this particular region, as any military conflicts resulting from controversy would affect these nations in a very personal fashion. The official announcement of the existence of the Med gas fields was announced as far back as 2000, when it was discovered that major gas fields were found off the Palestinian Gaza strip. Typically, Israel is blocking efforts to develop these fields out of fear that such natural resources will provide an injection of economic activity and funding to the embattled Palestinian people. In 2009-2010, Israel announced that yet more natural gas fields were found in the Eastern Mediterranean sea, which has become one of the largest natural gas finds in the region.
+Two of the largest fields, known as Tamar and Leviathan (quite interesting and foreboding names when one considers the Jewish and Christian religious texts and traditions), are largely accepted as belonging to Israel. However, in addition to the dispute surrounding the fields off the Palestinian Gaza Strip, the Lebanese also claim some rights to the natural gas under the Mediterranean sea. In fact, the Lebanese claim that some of the natural gas belonging to Israel encroaches upon Lebanese maritime waters. 260 miles west of Israel, Cyprus also sits atop a massive natural gas field. According to Cypriot figures, the fields hold enough natural gas to make the tiny nation energy independent for the next 200 hundred years even while Cyprus becomes a gas exporter. Yet, in what could become yet another facet to the controversy between natural gas field claims centering around Israel, the Israeli maritime waters directly adjoin those of Cyprus.
+Even more so, Israels biggest natural gas field, Leviathan, appears to extend all the way into Cyprus waters, presenting the world with yet another potentially explosive maritime claim confrontation. In anticipation of such a row, Israel announced early last year that the Israeli Navy was preparing plans to defend the fields.
+The plan is by no means miniscule as the mass of the gas fields is twice as big as the Israeli state itself - no short order for any military. With that in mind, the naval plan must carry with it the ability to defend offshore drilling vessels, undersea pipelines, production platforms, transportation ships, and other types of gas drilling equipment. As UPI reported in 2011,
+Israel's military command has been planning to expand the 7,000-person navy, the smallest of the country's armed services, for some time. Priority has gone primarily to acquiring three more Dolphin-class submarines from Germany to double the size of this strategic force capable of hitting Iran.
+Israel's military command has been planning to expand the 7,000-person navy, the smallest of the country's armed services, for some time.
+Priority has gone primarily to acquiring three more Dolphin-class submarines from Germany to double the size of this strategic force capable of hitting Iran.
+This announcement came as Iranian warships moved into the area on what the Iranians deemed a training and flag-showing operation.
+While there were no altercations in this particular circumstance, the tension between Israel and Iran has only grown sharper in the year since. As Israel moves to develop defensive plans for its natural gas find, Egypt has also stated that it will be watching the Mad Dog of the Middle East closely to ensure that it will not infringe upon sovereign Egyptian territory. Yet interest in the Med gas fields is by no means confined to a small circle of Middle Eastern nations plus Cyprus.
+Russia, too, is seriously concerned over the potential challenge these gas finds may pose to their virtual monopoly over the natural gas supply to Western Europe. If Cyprus, Israel, Lebanon, or Palestine become gas exporters, Russia would then see its control over the Western European customer base threatened. Thus, Moscow has been courting both Israel and Cyprus, in the form of massive energy company Gazprom who is now reportedly in talks with Israel regarding a possible deal involving a large injection of funds to encourage and facilitate further gas exploration in the region.
+Furthermore, Turkey also may have a vested interest in the decisions being made over the Med fields.
+Although Turkey seized the Northern part of Cyprus after an invasion in 1974, the southern part of Cyprus remains under Greek-Cypriot control. Given the level of imperialist behavior being exhibited by Turkey in recent months over the NATO-backed Syrian destabilization, one can only wonder just how long the divided nation will be able to resist the temptation to lay its own claim to the gas fields in some way or another. All in all, the Med gas fields discovery only add yet another dimension to an already volatile situation in the Middle Eastern region.
+With so many players having direct financial and energy-related interests in the fields, others with indirect interests, and others still who have the potential to be drawn in to any potential confrontations that might result, one thing is clear - the Med is a geopolitical time bomb just waiting to explode.
+Return to The Middle East Exopolitical Saga
+Return to Free Energy - Hi-Tech/Top Secret Projects
+Return to Oil Industry - Producers of Energy and Disasters
