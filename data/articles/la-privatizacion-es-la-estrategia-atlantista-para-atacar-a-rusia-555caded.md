@@ -1,0 +1,65 @@
+# La Privatización es la Estrategia Atlantista para Atacar a Rusia
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_russia70.htm
+
+por Paul Craig Roberts y Michael Hudson 08 Febrero 2016
+del Sitio Web PaulCraigRoberts
+traducción de Adela Kaufmann Versión original en ingles
+El Dr. Paul Craig Roberts fue secretario adjunto del Tesoro para Política Económica y editor asociado del Diario de Wall Street. Fue columnista de Business Week, Scripps Howard News Service, y Creators Syndicate. Ha tenido muchas citas universitarias. Sus columnas de Internet han atraído a un grupo de seguidores en todo el mundo.
+NOTA: Los lectores están pidiendo saber que, además de las ONG financiadas por el occidente, están los quintacolumnistas dentro de Rusia. Michael Hudson y yo dejamos la descripción general como atlanticistas integracionistas y economistas neoliberales. Algunos nombres específicos han sido proporcionados. Entre los quintacolumnistas están el primer ministro ruso, jefe del Banco Central, y los dos más importantes ministros de economía. Están surgiendo una trampa de privatización para Putin que podría deshacer todos sus logros y entregar a Rusia al control occidental. http://www.unz.com/tsaker/putins-biggest-failure/
+NOTA:
+Los lectores están pidiendo saber que, además de las ONG financiadas por el occidente, están los quintacolumnistas dentro de Rusia.
+Michael Hudson y yo dejamos la descripción general como atlanticistas integracionistas y economistas neoliberales.
+Algunos nombres específicos han sido proporcionados. Entre los quintacolumnistas están el primer ministro ruso, jefe del Banco Central, y los dos más importantes ministros de economía.
+Están surgiendo una trampa de privatización para Putin que podría deshacer todos sus logros y entregar a Rusia al control occidental.
+http://www.unz.com/tsaker/putins-biggest-failure/
+Hace dos años, las autoridades rusas discutían planes de privatización de un grupo de empresas nacionales encabezados por,
+el productor de petróleo Rosneft el Banco VTB Aeroflot Ferrocarriles de Rusia
+el productor de petróleo Rosneft
+el Banco VTB
+Aeroflot
+Ferrocarriles de Rusia
+El objetivo declarado era agilizar la gestión de estas empresas, y también inducir a los oligarcas a empezar a traer de vuelta sus dos décadas de fuga de capitales e invertirlos en la economía de Rusia.
+La participación extranjera fue buscada en los casos en que las técnicas de administración y transferencia de tecnología occidental fueran propensos a ayudar a la economía. Sin embargo, las perspectivas económicas de Rusia se deterioraron a medida que los Estados Unidos empujaron a los gobiernos occidentales a imponer sanciones económicas contra Rusia y los precios del petróleo se redujeron. Esto ha hecho que la economía rusa sea menos atractiva para los inversores extranjeros.
+Así que la venta de estas empresas traerá precios mucho más bajos hoy de lo que habría sido probable que en 2014
+Mientras tanto, los defensores rusos, están combinando un aumento del déficit del presupuesto nacional y el déficit de la balanza de pagos ha dado a la privatización un argumento para seguir adelante con las ventas. La falla en su lógica es su hipótesis neoliberal de que Rusia no puede limitarse a obtener beneficios económicos de su déficit, pero necesita sobrevivir mediante la venta de los activos más importantes.
+Advertimos contra Rusia siendo tan ingenuos como para aceptar este peligroso argumento neoliberal.
+La privatización no ayudará a re-industrializar la economía de Rusia, pero se va a agravar su vez una economía rentista a partir de la cual las ganancias son extraídas en beneficio de los propietarios extranjeros.
+Para estar seguro, el presidente Putin estableció una serie de condiciones el 1º de febrero, para evitar que las nuevas privatizaciones sean como las de la era de Yeltsin, que fueron desastrosas liquidaciones. Esta vez, los activos no serán vendidos a precios de liquidación, sino que tendrían que reflejar el valor real de prospectiva.
+Las empresas siendo vendidas permanecerían bajo jurisdicción rusa, y no serán operadas por los propietarios extranjeros.
+Los extranjeros fueron invitados a participar, pero las empresas quedarían sujetas a las leyes y regulaciones rusas, incluidas las restricciones para mantener su capital dentro de Rusia.
+Además, las empresas a ser privatizadas no pueden ser compradas con crédito estatal bancario interno. El objetivo es atraer el "dinero en efectivo" en las adquisiciones - idealmente de las tenencias de moneda extranjera por oligarcas en Londres y en otros lugares.
+Putin sabiamente descarta vender el banco más grande de Rusia, Sperbank, que posee la mayor parte de las cuentas de ahorro al por menor de la nación.
+La banca, evidentemente seguirá siendo en gran medida un servicio público, lo cual es correcto, debido a que la capacidad de crear crédito como dinero es un monopolio natural e inherentemente de carácter público.
+A pesar de estas protecciones que el presidente Putin añadió, existen serias razones para no seguir adelante con las recién anunciadas privatizaciones. Estas razones van más allá del hecho de que serán vendidas bajo condiciones de recesión económica como resultado de las sanciones económicas occidentales y la caída de los precios del petróleo. La excusa citada por las autoridades rusas para la venta de estas empresas en el momento presente es que son para financiar el déficit del presupuesto doméstico. Esta excusa muestra que Rusia todavía no se ha recuperado del desastroso mito atlantista occidental de que Rusia debe depender de los bancos y tenedores de bonos extranjeros para crear dinero, como si el banco central ruso no pudiera hacer esto mismo mediante la monetización del déficit público.
+La monetización de los déficit presupuestarios es, precisamente, lo que el gobierno de los Estados Unidos ha hecho, y lo que los bancos centrales occidentales han estado haciendo en la era post Segunda Guerra Mundial.
+La monetización de la deuda es una práctica común en Occidente. Los gobiernos pueden ayudar a reactivar la economía mediante la impresión de dinero en lugar de endeudar al país a acreedores privados que drenan el sector público de los fondos a través de los pagos de intereses a los acreedores privados.
+No hay ninguna razón válida para recaudar dinero de los bancos privados para proveer al gobierno con dinero, cuando un banco central puede crear el mismo dinero sin tener que pagar intereses de los préstamos. Sin embargo, los economistas rusos han inculcado la creencia occidental de que sólo los bancos comerciales deben crear dinero y que los gobiernos deben vender bonos devengando intereses, con el fin de recaudar fondos.
+La creencia errónea de que sólo los bancos privados deben "crear dinero" a través de préstamos está conduciendo al gobierno ruso por el mismo camino que ha llevado a la zona euro hacia una economía sin salida.
+Mediante la privatización de la creación de crédito, Europa ha desplazado la planificación económica de los gobiernos democráticamente electos al sector bancario.
+No hay necesidad de que Rusia acepte esta filosofía económica pro-rentista que sangra a un país de ingresos públicos. Los neoliberales la están promoviéndolo, no para ayudar a Rusia, sino para llevar a Rusia a sus rodillas.
+En esencia, esos rusos aliados de Occidente - los "atlantistas integracionistas" - que quieren que Rusia sacrifique su soberanía a la integración con el imperio occidental, están utilizando la economía neoliberal para atrapar a Putin y quebrantar el control de Rusia sobre su propia economía, que Putin restableció después de los años de Yeltsin, cuando Rusia fue saqueada por intereses extranjeros.
+A pesar de cierto éxito en reducir el poder de los oligarcas que surgieron de las privatizaciones de Yeltsin, el gobierno ruso necesita mantener las empresas nacionales como una potencia económica compensatoria.
+La razón por la que los gobiernos operan los ferrocarriles y otras obras de infraestructura básica es la de bajar el costo de la vida y hacer negocios.
+El objetivo de los propietarios privados, por el contrario, es elevar los precios tan altos como sea posible. Esto se conoce como "extracción de rentas". Los propietarios privados acondicionan cabinas de peaje para elevar el costo de los servicios de infraestructura que están en proceso de privatización.
+Esto es lo contrario de lo que los economistas clásicos entienden por "libre mercado." Se habla de un acuerdo hecho con los oligarcas. Los oligarcas compran propiedad en las empresas estatales rusas con dinero que han ocultado en el extranjero de las privatizaciones anteriores, y consiguen otro "negocio del siglo" cuando la economía de Rusia se recupere lo suficiente como para posibilitar más ganancias excesivas a hacerse.
+El problema es que cuanto más se traslada el poder económico del gobierno a manos privadas, menos poder compensatorio tiene el gobierno contra los intereses privados. Desde este punto de vista, no deberían permitirse privatizaciones en este momento.
+Mucho menos deberían permitir a los extranjeros adquirir propiedad de los bienes nacionales rusos. Con el fin de cobrar un pago único en moneda extranjera, el gobierno ruso le estará entregando a los extranjeros los futuros flujos de ingresos que pueden, y serán extraídos de Rusia y enviados al extranjero.
+Este "repatriación" de los dividendos podría ocurrir incluso si el manejo y el control sigue estando geográficamente en Rusia.
+La venta de activos públicos a cambio de un pago único es lo que el gobierno ciudadano de Chicago hizo cuando vendió el flujo de ingresos de 75 años de sus parquímetros por un pago único. El gobierno de Chicago obtuvo dinero Chicago por un año, renunciando a 75 años de ingresos.
+Al sacrificar los ingresos públicos, el gobierno de Chicago salvó los patrimonios inmobiliarios y de riqueza privada de ser gravados, y también permitió a los bancos de inversión de Wall Street hacer una fortuna.
+También creó una protesta pública contra la dación de bienes a terceros.
+Los nuevos compradores subieron fuertemente las tarifas de estacionamiento de la calle, y demandaron al gobierno de Chicago por daños y perjuicios cuando la ciudad cerró la calle para los desfiles públicos o días festivos, que "interferían" con el negocio de los parquímetros.
+En lugar de ayudar a Chicago, esto ayudó a empujar a la ciudad hacia la quiebra. No es de extrañar que a los atlantistas les gustaría ver a Rusia sufrir el mismo destino.
+El uso de la privatización para cubrir un problema de presupuesto a corto plazo crea un problema mayor a largo plazo. Las ganancias de las compañías rusas fluirían fuera del país, reduciendo la tasa de cambio del rublo. Si los beneficios son pagados en rublos, los rublos pueden ser objeto de ser vertidos en el mercado de divisas y canjeados por dólares.
+Esto bajará el tipo de cambio del rublo y elevará el valor de cambio del dólar. En efecto, permitir a los extranjeros adquirir activos nacionales de Rusia ayudará a que los extranjeros especulen contra el rublo ruso.
+Por supuesto, los nuevos propietarios rusos de los activos privatizados también podrían enviar sus ganancias al exterior. Pero, al menos, el gobierno ruso se da cuenta de que los propietarios sujetos a la jurisdicción de Rusia son más fácilmente regulados que los propietarios que son capaces de controlar las empresas del exterior y mantienen su capital de trabajo en Londres o en otros centros de banca extranjera (todos sujetos a la influencia diplomática de Estados Unidos y a las sanciones de la Nueva Guerra Fría).
+En la raíz de la discusión sobre la privatización debe estar la cuestión de qué es el dinero y por qué debe ser creado por los bancos privados en lugar de los bancos centrales.
+El gobierno ruso debe financiar su déficit presupuestario haciendo que el banco central cree el dinero es necesario, al igual que hacen los EE.UU. y el Reino Unido. No es necesario que el gobierno ruso regale futuras fuentes de ingresos a perpetuidad, simplemente con el fin de cubrir el déficit de un año.
+Esto es un camino hacia el empobrecimiento y la pérdida de la independencia económica y política.
+La globalización fue inventada como una herramienta del imperio estadounidense. Rusia debe protegerse a sí misma de la globalización, no abriéndose a ella. La privatización es el vehículo para socavar la soberanía y aumentar los beneficios económicos al aumentar los precios.
+Al igual que las ONG financiadas por occidentales que operan en Rusia, son una quinta columna que opera en contra de los intereses nacionales de Rusia, así son los economistas neoliberales de Rusias, se den cuenta o no.
+Rusia no va a estar a salvo de la manipulación occidental hasta que su economía está cerrada a los intentos occidentales para reformar la economía de Rusia, en interés de Washington y no en interés de Rusia...
+Regresar a Rusia y La Unión Europea
+Regresar a Temas / Las Traducciones de Adela Kaufmann
+Regresar a Globalización - El Pulpo del Nuevo Orden Mundial

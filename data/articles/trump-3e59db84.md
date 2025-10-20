@@ -1,0 +1,564 @@
+# Trump
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_trump.htm
+
+- A Body Language Expert watched the 'Trump-Biden Debate' - Here's what He Noticed...
+- "Acabaré con la horrible Guerra de Rusia y Ucrania creada por la Administración actual" - Trump
+- A Completely Different Perspective on Trump's Presidency - This Will Make You Think
+- American Militarism is Destroying the Future of Humanity
+- An Assessment and the Perspectives of Donald Trump
+- Anonymous' Controversial Message about Donald Trump - The Truth about War and Conflict
+- Anthony Fauci is Out "Sidelined" by Trump - Enter Dr. Scott Atlas to the 'Coronavirus Task Force'
+- A Perspective about Donald Trump and the FBI Director and North Korea that you'll Never See from Main...
+- Apocalipsis Romano - Esto deberíamos Aprender de la Caída del Imperio que dominó Medio Mundo...
+- Are Jair Messias Bolsonaro and Donald John Trump a Menace to the Planet?
+- A Transition from Madness to Reason...
+- ¿A un Tuit de Asumir la Presidencia de EE.UU.? - Todas las Miradas se Posan en Mike Pence
+- A un Twit l'Ipotesi della Presidenza degli USA? - Tutti gli Sguardi si Posano su Mike Pence
+- Balance y Perspectivas de Donald Trump
+- Biden vs. Trump has Profound Implications for the World Order
+- Bolton, Boris and 'Bibi' - The Three B's have Short Time but Great Wrath
+- Breve Reflexión sobre el Impeachment a Trump
+- Brzezinski's Warning to America
+- Burning Down the House
+- Cambridge Analytica used Data from Facebook and Politico to help Trump
+- ¿"Campeón Audaz" o "Aberración Histórica"? - Así valoran los Medios Occidentales la Victoria de Trump
+- CIA/FBI/DOJ Plot to Overthrow the President of the United States
+- Come i Rockefeller 'Trumpizzarono' il Mondo
+- Come Trump si è ribellato ai Generali
+- Cómo los Rockefellers 'Trumpearon' al Mundo
+- ¿Cómo se Posiciona Donald Trump?
+- Cómo Trump se rebeló contra los Generales
+- Contrato de Donald Trump con el Votante
+- Cosa Sa e quando lo ha Saputo?
+- Da Monroe a Trump - Gli USA hanno sponsorizzato Colpi di Stato Militari in Latino America
+- Davos Attendee admits to WEF Elites that 'Trump Won' and Globalists Lost
+- De cómo Putin y Trump están Poniendo Fin a la Guerra contra Siria
+- De-Dollarizing the American Financial Empire
+- Did Donald Trump Kill the Liberal-Globalist "New World Order" at the United Nations?
+- Divided Nation - President Trump "Declares War" on Ruling Elite as Media and Protesters Declare War...
+- Does Russia want Donald Trump to Win?
+- Donald J. Trump and the Deep State
+- Donald Trump - Alone Against All...
+- Donald Trump - An American Tragedy not only for the U.S. but also for the World
+- Donald Trump Disuelve la Organización del Imperialismo Estadounidense
+- Donald Trump's Main Reasons for Withdrawing from The Paris Climate Agreements
+- Donald Trump - Solo contra Todos...
+- Duplicitous - White House-Approved Report says Man-Made Global Warming is Real!
+- EE.UU./Rusia/China configuran la Nueva Tripolaridad del Siglo 21
+Español
+- El Discurso de Trump a la Asamblea General de las Naciones Unidas 2018
+- El Ex-presidente Trump revela Nueva Advertencia a China de '48 Horas'
+- El Golpe de Estado ha Comenzado - El Imperio Contraataca en Todas Partes
+- El Gran Paquete de Estímulo de Trump - Más Grande que la Economía de España
+- El Juicio Político contra Trump y el 'Factor Ucrania'
+- Elon Musk exposes 'Real Reason Twitter Censored' former President Donald Trump
+- El Post-Excepcionalismo Estadounidense - Trump Traiciona la Idea de la Élite que EE.UU. siempre es...
+- "El Títere de Putin" (Trump) impulsa Escalada de Misiles Nucleares en contra de Putin
+- El Trabajo de Putin y Trump por la Paz No es "Traición", sino el Regreso a la Realidad
+- Empieza la Era Trump...
+- Empire Destroying Wars are Coming to America Under Trump
+- ¿Es posible un 'Golpe de Estado' en Estados Unidos contra Donald Trump?
+- Estados Unidos al Borde de la Guerra Civil
+- Evidence DARPA-CIA Time Travel Pre-identified Trump as Future U.S. President
+- Expediente Trump - ¿Salvador o parte del 'Estado Profundo'...?
+- 'Fire and Fury - Great Fiction but it Won't Have Impact on Trump'
+- From Monroe to Trump - U.S. Sponsored Military Coups in Latin America
+- From Trump to Nixon - 'Watergate' film explains "How We Learned to Stop an Out of Control President"
+- Fundación Soros teme que Trump gane en 2024 e "Impida" el Globalismo
+- 'Fuoco e Furia' - Le 10 Rivelazioni del Libro che fa infuriare Trump
+- 'Fuego y Furia' - Las 10 Revelaciones del Libro que Enfurece a Trump
+- Global Elite taken to Guantanamo GITMO by U.S. Special Forces - Full Disclosure Implications
+- Good News - Fauci's Out and Common Sense Might be Returning
+- ¿Hay una Triple Alianza Mundial entre Trump, Putin y el Papa Francisco?
+- How a 'Top Secret SEAL Team 6 Mission' into North Korea fell apart
+- How the Rockefellers "Trumped" the World
+- How Trump Rebelled Against the Generals
+- Humanity's Fast-Approaching Rendezvous with Truth
+- If Trump Really Wanted to Fight the 'Deep State', he'd Pardon these 5 Heroes Instead of Criminals
+- If you Provoke the Entire World, something May Happen
+- ¿Impedirán que Trump Llegue a Ser Presidente?
+- 'Imperial Presidency' of Donald Trump - A Threat to American Democracy and an Agent of Chaos in the World?
+- Información Personal de Visitantes de Web Anti-Trump - Departamento de Justicia de EE.UU. exige...
+- International Criminal Court Tribunal declares Trump and Duterte Guilty of Crimes Against Humanity
+Italiano
+- I Nuovi Signori Feudali
+- Io, Trumpius
+- Is Someone Else making Trump's Decisions for Him? - It Certainly Seems that Way
+- Is Trump a 'Covert Ally' to the Multipolar Order?
+- Is Trump disrupting the Cabal's Plan for a New World Order? - Trump says "We're Not Going Into Syria"
+- I, Trumpius...
+- Kissinger, a Longtime Putin Confidant, Sidles Up to Trump
+- La Administración de Trump estudia Salir del Consejo de Derechos Humanos de la ONU
+- ¿La Agenda 'Woke' como Causa de la Decadencia de Occidente?
+- La Casa Blanca 'acusa' a Trump de Mantener Vínculos Financieros con Rusia y RT
+- La Cibercracia, el 'Deep State' y el Pentágono sujetan a Trump
+- La Confianza está a Prueba en Europa y en el Mundo
+- La Cumbre Putin-Trump y el Nuevo Protectorado de Estados Unidos-Rusia
+- La Cumbre Trump-Putin da a conocer las Amenazas del 'Gobierno en La Sombra' del Estado Profundo
+- La Derrota de Ucrania redefinió la "Bélica Agenda Verde" y la salida de Trump del Acuerdo de París
+- La Élite Financiera y la Realeza Europea que está Apoyando a Donald Trump
+- La Élite Global está siendo llevada al Centro de Detención de Guantánamo por Fuerzas Especiales USA
+- La Estrategia de Trump contra Rusia y China
+- La Incómoda Verdad sobre Goldman Sachs, Trump y los BRICS que No quieren que Veamos
+- L'Amministrazione Trump passa a Ritirare Formalmente gli Stati Uniti dall'OMS
+- L'Amministrazione Trump Studia il Modo di Uscire dal Consiglio dei Diritti Umani dell'ONU
+- La Post-Eccezionalità Statunitense - Trump Rinnega l'Idea dell'Elite che gli Stati Uniti spno sempre "Puri" e...
+- La Primera Guerra de la "OTAN-MO" perturba el Orden Regional
+- Las Semillas de la Próxima Guerra Civil en Estados Unidos
+- La Tragedia di Trump
+- 'La Trastienda de Trump' - Estamos a las Puertas de un Colapso Económico Mundial y del Desmantelamiento...
+- Le Cose che la Maggior parte della Gente non sa su Donald Trump - Sorprendente Rivelazione!
+- Lo que Donald Trump está Preparando
+- Los Dictadores deberían Temer a la IA
+- Los Nuevos Señores Feudales
+- L'Ovest è gestito da Barbari
+- Massive Coalition Backs Trump's Climate Science Committee
+- ¿Mató Donald Trump al Liberal-Globalista 'Nuevo Orden Mundial' en las Naciones Unidas?
+- Majority of Mexicans see the United States as Greatest Threat - New Poll Shows
+- Merkel Traccia la Linea contro Trump
+- Merkel Traza la Línea contra Trump
+- Nationalist Capitalism - An Alternative to Globalization?
+- New FBI Report definitively proves 'Russiagate' which dogged Trump's US presidency was 'Made Up' from the...
+- North Korea praises 'Fire and Fury' book for foretelling 'Trump's Political Demise'
+- "Nuevo Watergate" - Alertan de un "Terremoto Político" tras el Despido del Jefe del FBI
+- Orden Ejecutiva de Trump tiene como Objetivo al 'Estado Profundo' y Abre la Puerta a completa Revelación
+- Perché l'Unione Europea non vuole che la Pace arrivi presto in Ucraina
+- Plantón en La Cumbre - Trump deja solo a Macri justo antes de la Foto Oficial en el G20
+- ¿Por qué aceptó Trump que Estados Unidos renuncie a ser el Gendarme del Mundo?
+- ¿Por qué estás Votando por Trump? - Respuesta de Bernie Marcus
+- Por qué la Unión Europea no quiere que la Paz llegue pronto a Ucrania
+- President Trump deals 'Huge Blow to Bill Gates' - Withdraws support from 'China-Centric' COVAX
+- President Trump - The Anti-Globalist USA Champion or Just Another Con-Man Riding a Trojan Horse?
+- Primeras Interpretaciones al Ataque de EE.UU. a Siria... - ¿Todo es Puro Teatro?
+- Putin asegura que las Élites Europeas se pondrán a los pies de su Dueño y "Menearán la Cola" - ...Trump
+- Putin dice "I Ricchi Devono Pagare" per il Coronavirus
+- Putin says he's Confident Trump can navigate Ukraine Crisis - Repair US-Russia Ties
+- Putin says 'The Rich Must Pay' for the Coronavirus
+- Putin y Trump están ganando la Partida
+- Putin y Trump hablan Vía Telefónica sobre las Crisis en Siria y Corea del Norte
+- QAnon es la Inteligencia Militar de EE.UU. que reclutó a Trump para Presidente y Evitar un Golpe de Estado
+- QAnon is U.S. Military Intelligence that recruited Trump for President to prevent a Coup D'etat
+- QAnon on How Ending Iran Peace Deal thwarts Deep State Plans for Nuclear False Flag Attack
+- QAnon Reveals Effort to Frame Russia in False Flag Nuclear Attack on U.S. - The Fourth Reich Connection
+- QAnon Revela Intento de Etiquetar a Rusia en Ataque Nuclear de Falsa Bandera a EE.UU.
+- QAnon sobre cómo Finalizando el Acuerdo de Paz con Irán se frustran los Planes del Estado Profundo de...
+- Que Entre el Diablo y Escoja entre Trump y Biden
+- ¿Qué puede esperar América Latina de las elecciones 2024 en EE.UU.?
+- Report on the Investigation into Russian Interference in the 2016 Presidential Election - The Mueller Report
+- Rothschild's Gaza Land Grab
+- ¿Se Opondrá Trump a los Designios de Monsanto?
+- Se Provochi Tutti qualcosa Potrebbe Succedere
+- Si Provocas a Todo el Mundo, algo Podría Suceder
+- ¿Son Jair Messias Bolsonaro y Donald John Trump una Amenaza para el Planeta?
+- Stargate - Así es el Megaproyecto de I.A. de Trump que Deepseek pone contra las cuerdas
+- The American Empire has Fallen - Though Washington may Not Know it Yet...
+- The Conspiracy against Trump - The Deep State plot to Undermine the President
+- The Coup against Trump and his Military-Wall Street Defense
+- The Coup has Begun - The Empire Strikes Back Everywhere
+- The Deep State's Stealthy, Subversive, Silent Coup to ensure 'Nothing Changes'
+- The First Casualty of Trade War is Truth
+- The Not-Hillary President
+- There's no Great 'American Democracy' to be Restored after Trump - And Nothing will fundamentally Change...
+- The Stargate is Open - Enter the Sand Gods
+- The Swamp Swallowed Trump
+- The Threats of a Political Psychopath - John Bolton to an International Official: "We Know where Your Kids Live"
+- The Tragedy of Trump
+- The Trump-Putin Summit and the New US-Russia Protectorate
+- The Uncomfortable Truth - Are We Hating Donald Trump for the Wrong Reasons
+- The US' Main Allies abandon Trump over his Dangerous Military Escalation with Iran
+- The West is Run by Barbarians
+- Trump Adelanta sus Peones
+- Trump Administration Freezes-Out CNN from Interviews and Staff Appearances
+- Trump Administration moves to Formally Withdraw U.S. from WHO
+- Trump Against the Machine - How Political Elites Failed
+- Trump and Brexit are Retaliation for Neoliberalism and Corruption
+- Trump and the "Collapse of Capitalism" (COC) - Foibles, Fables and Failures, the Financial Press and...
+- Trump and the Illusion of Reform
+- Trump Avanza hacia la Casa Blanca - Confirmado por el Colegio Electoral
+- Trump cae en la Trampa de Aramco
+- Trump condena la 'Apertura de los JJ.OO. de París 2024' - "Fue Terrible, fue una Vergüenza"
+- Trump contra la Maquinaria Política - Cómo las Elites Políticas Fracasaron
+- Trump desmonta los Grandes Acuerdos Comerciales con EE.UU.
+- Trump dumps Pretense of Altruism from U.S. Foreign Policy
+- Trump e l'Illusione di Riforma
+- Trump está Aquí para Quedarse y Cambiar el Mundo
+- Trump Executive Order targets Deep State and Opens Door to Full Disclosure
+- Trump Falls Into the Aramco Trap
+- Trump Ganando por Dos Tercios en Encuestas REALES - Todo el Supuesto Apoyo a Hillary Es Fabricado...
+- Trump, la Russia e il Vero Nemico
+- Trump, la Tercera Guerra Mundial y el "Dilema del Prisionero"
+- Trump No Incluye a Rusia en la Lista de Prioridades de Defensa de EE.UU.
+- Trump = Obama = Bush = Clinton on 4 Core Issues
+- Trump, Orbàn, Putin - Why are all the 'Dictators' hellbent on Peace?
+- Trump Promises to reach Mars by 2028
+- Trump-Putin Summit brings out Deep State "Shadow Government" Threats
+- Trump quiere Tomar Control de la FED
+- Trump reúne al Imperialismo, el Wahabismo y el Sionismo
+- Trump, Rusia y el Verdadero Enemigo
+- Trump, Rusia y Novorrusia
+- Trump said We Should "Get Along with Russia" - He's Right...
+- Trump says Head of U.S. Intel admitted to him Russia Report is 'Made Up, Phony Facts'
+- Trump's call for Building 'Freedom Cities' - Globalists' Plan for 'Fourth Industrial Revolution' Control Grid
+- Trump's Hard Line on Cuba is a Bluff and Havana Knows It
+- Trump Signs Directive to Create a Military Space Force
+- Trump si Opporrà ai Disegni di Monsanto?
+- Trump's Space Force is now Officially the Sixth Military Branch
+- Trump's Speech on Paris Climate Agreement Withdrawal
+- Trump's Speech to the United Nations General Assembly 2018
+- Trump's Trip to Riyadh Offers Left and Right Common Ground
+- Trump Takes on the FED
+- Trump Taking U.S. to War in Syria to Avert Economic Disaster
+- Trump - Una Decadencia Anunciada
+- Trump - Un Declino Annunciato
+- Trump Wants to Break the EU - Will he Instead End Up Being its Savior
+- "Trump will 'Disappear' in 2020 or even Sooner" - Soros said in '2018'...
+- Trump y el Brexit son Represalias contra el Neoliberalismo y la Corrupción
+- Trump y la Burocracia de la OTAN
+- Trump y la Historia Estadounidense han Sido Asesinados
+- Tulsi Gabbard Slams Trump - Being "Saudi Arabia's Bitch is Not America First"
+- Ukrainegate - Lo que No te están Contando
+- Ultraconservadores de EE.UU. Advierten que si Destituyen a Trump Estallará una Guerra Civil
+- Un Cuarto de Siglo Descalabrado - Y la Sonrisa de Trump
+- Underneath the Trade War of Donald Trump and Xi Jinping
+- USA/Russia/Cina sono la Nuova Tripolarità del Secolo 21
+- U.S.-China Relations in the Years Ahead - The 'Trade War' is a Sideshow
+- U.S. Foreign Policy and the Campaign to Destabilize the Trump Presidency
+- Ustedes pidieron nuestro Punto de Vista sobre Trump - Aquí está...
+- Venezuela, Minneapolis, Iran, Europe - Trump's Last Gasps of 'Collapsing World Control'... Or is It?
+- War and More War - Trump's National Security Strategy (NSS)
+- Was Trump Missile Attack Part of a Secret Plan to End Syria Conflict and Prevent War with Iran?
+- WEF views Trump and Putin as 'Major Threat' to Globalist Agenda - Davos Insider Reveals
+- What and Who Gave Us Trump?
+- What did 'Cambridge Analytica' Really Do for Trump's Campaign?
+- What does He know and When did He know it?
+- What most People don't know about Donald J. Trump - Amazing Eye-Opener!
+- Who were the "Shadow Men"? - Conspiracy against Donald Trump
+- Why AI 'Misinformation' algorithms and research are mostly Expensive Garbage
+- Why a 'Moralizing' Trump Could Be More Dangerous than a Transactional One
+- Why Trump now Wants Talks with Iran
+- Will Trump Be the Disclosure President?
+- Y "Ahora Estados Unidos No va a Imponer su Estilo de Vida"
+- You Asked for Our Stance on Trump - So Here it Is...
+- Amenaza de Cisma - Fuerte División en la Iglesia Católica de Estados Unidos - León XIV
+- America as 'Republic', Not as 'Empire' - Europe's 'Sound and Fury' after jaw-dropping pivots in U.S. Policy
+- "America is Back" - 12 Takeaways from Trump 47's First Major Policy Speech to Congress
+- América Latina reacciona a los Primeros Pasos de la 'Era Trump'
+- A New American Empire - Trump, Russia, and the End of Globalism
+- A Whirlwind 48 Hours - How Trump's Israel-Iran Ceasefire Agreement came together...
+- A Wild, Conspiratorial, Fantastical view of World Politics - Might it be True?
+- Big Pharma's Secret War on RFK Jr.
+- Cañones para Construir Democracias
+- ¿Caos o Método? - El Acuerdo de Mar-a-Lago de Trump
+- China 'mueve ficha' en Sudamérica y busca un 'jaque' a Trump con Dos Alianzas
+- Cómo es el 'Agujero Negro' Financiero Mundial creado por Occidente en torno a Ucrania
+- Cómo Trump ataca a sus Propios Partidarios y pierde Apoyo rápidamente...
+- Congresistas Norteamericanos junto a Elon Musk piden la salida de EE.UU. de la OTAN - "Sáquennos"...
+- Could Trump end up Triggering the Globalist "Great Reset"?
+- De Escéptico a 'Criptoídolo' - El giro radical de Trump hacia los Activos Digitales
+- Detrás de la "Guerra de los 12 Días"
+- Dilemas Económicos de Trump - Desde el Off-Shore, pasando por el Near-Shore hasta el NoShore
+- Diplomacy by Disembowelment - Old Europe's Self-Destructive DC tour...
+- Discurso Completo de Donald Trump ante la ONU en 2025 - "¿Qué Sentido tienen las Naciones Unidas?"
+- Documentos olvidados por el Equipo de Trump en una Fotocopiadora confirman que la Cumbre con Putin...
+- Donald Trump desvincula a Estados Unidos de la Unión Europea
+- Donald Trump is a Pleiadian - The Galactic Federation of Worlds
+- Don't make the Mistake of thinking that what's 'Now Happening' is Mostly about Tariffs...
+- ¿EE.UU. perdió India? - "Cisne Negro" del Nuevo Orden Mundial que aceleró el grupo de Shangai
+- El "Alto el Fuego" más Loco del Mundo
+- El Cisne Naranja - La Subida y Caída de Imperios
+- El Imperio estadounidense frena la 'Revolución' de Trump contra USAID y NED
+- Elon Musk and Twitter-'X' - Main File
+- El Orden Global en Reconfiguración - Trump, China, Rusia y el Nuevo Equilibrio de Poder
+- El Síndrome del 'Trastorno por César'
+- El Triunfo de Trump en EE.UU. - ¿Tendrá un Control Absoluto?
+- El Vicepresidente de EE.UU. pidió un "Cambio de Régimen" en Europa - Discurso de J.D. Vance en Múnich
+- El Virus No Mató al Mundo - La respuesta Biodefensiva consistente en Confinar hasta la llegada de la Vacuna...
+- Entre "Embates y Chantajes" de Trump - Así avanza la relación de China con América Latina
+- E.U. Leaders went to Washington Begging to be Cucked
+- Gli Occidentali e il Conflitto in Ucraina
+- "Globalists Doomed" as Trump cuts U.S. Funding to WEF and UN Agenda
+- Goodbye Global Warming and Climate Change - Good Riddance...!
+- Guerra en la Sombra - Trump vs. el Estado Profundo
+- Has America Lost its Mind or will Trump Get it Right this time...?
+- How Europe must respond as Trump and Putin smash the Post-War Order
+- 'If Iran falls, we all Lose' - Why Tehran's allies see this War as Civilizational
+- Il Cigno Arancione - Il Sorgere e la Caduta degli Imperi
+- Is Trump pursuing Technocracys dream to create the Great American Technate?
+- "I Want the Answer" - Trump demands Pfizer prove mRNA Jabs Work
+- Kennedy llama a la OMS "moribunda" e insta a Otros Países a Renunciar
+- La Autodestrucción de Europa
+- La Campaña Antidroga de EE.UU. - "Una Excusa para hacerse con el Control del Petróleo Venezolano"
+- La Cara de Macron cuando Trump se niega a llamar "Dictador" a Putin
+- La Filtración en un Chat de la Casa Blanca revela su 'Desprecio' hacia Europa
+- La Guerra de Israel contra Irán resultó Contraproducente - Israel no logró sus Objetivos en su Ultima Guerra
+- La Guerra era la Parte Facile - Aspettate solo di arrivare alla Politica
+- La Guerra está Frente a Nuestros Ojos...
+- La Guerra fue la Parte Fácil - Sólo esperen hasta que lleguemos a la Política
+- La Reelección de Donald Trump modifica los Parámetros del Juego
+- La Relación Putin-Trump - Cuando la Firmeza Rusa supera las Ambiciones Estadounidenses
+- Las Órdenes Ejecutivas de Trump en 2025 que todos debemos Agradecer
+- Los Países Nórdicos se solidarizan con Groenlandia y Dinamarca ante las ambiciones de Anexión de Trump
+- Latinoamérica bajo el 'Arancelómetro' de Trump - Quién gana y quién pierde...
+- La U.E. cede ante Trump - Acepta un Arancel del 15%
+- Los BRICS Contraatacan - Los 'viejos trucos' de Trump chocan con la Nueva Realidad
+- Los días que 'Cambiaron la Mirada' entre EE.UU. y América Latina
+- Los Siete Días de Trump que Remecen el Tablero de América Latina
+- Los Straussianos al Mando en la ONU y la OTAN
+- Los "Trabajos" de Donald Trump
+- MSM melts down over 'Jaw-Dropping Pivot in U.S. Foreign Policy' after Trump ripped 'Dictator' Zelenskyy
+- Musk weighs abandoning the America Party in favor of Supporting Vance
+- Non esiste uno Stato Profondo - Esiste solo lo Stato
+- Occidente se ha Dividido en Tres Partes
+- Occidente y el Conflicto en Ucrania
+- ¿Porqué los Estados Unidos amenazan Venezuela y militarizan el Caribe?
+- Porqué Trump rompió el 'Relato Occidental' sobre el Conflicto en Ucrania
+- 'Post-Alaska Cronos' con Putin - Ilegitimidad de Starmer/Macron/Merz e ilegalidad de Zelensky
+- President Trump is Alive - The Internet was Convinced Otherwise...
+- President Trump to Withdraw the United States from the "Corrupt Globalist Scam" known as the W.H.O.
+- Putin's statement on Trump's Ukraine ceasefire Proposal
+- Putin the Architect - Russia's Vision for a post-Western World
+- Quello che i Sub-umani Politici U.E. non riescono a Capire su Trump e Putin
+- R.F.Kennedy Jr. launches Investigation into America's Chronic Disease Epidemic - "Nothing is going to be Off...
+- RFK Jr. unloads Disturbing Vaccine Secrets on Tucker - And Surprises everyone on Trump
+- Robert F. Kennedy Jr. announces Mass Terminations and Major Restructuring at HHS
+- Rusia abre la Puerta para que los Europeos participen en las Negociaciones de Paz
+- ¿Sabe Trump lo que está haciendo con China?
+- Secrets on 'Iran Nuclear Strike' spill into open as Pentagon defends Bombing
+- "Se pondrán a los Pies de su Amo y moverán la Cola suavemente" - Siete Frases de Febrero desde Rusia
+- Something Big is Brewing - Putin and Trump's Alaska Summit paves the way for US-Russia UAPs' talks
+- Sovereignty is Having a Moment...!
+- Technocracy and Algocracy - The Great Reset of The (New) World Order
+- Technocracy is the Beast System
+- The Clintons built a 'Global Trafficking Empire' through War Zones, Fake NGOs, and Epstein's Blackmail...
+- The 'Final Nail in the Coffin' of the Global Environmental Agenda...? - President Trump
+- The Forces that Rule the World and Humanity's Role in a New Era
+- The Future of The FED - Everything you need to Know about it
+- The Putin-Trump Alliance against the European Union
+- There is No Deep State - Only the State
+- The Trump Administration 'accidentally' texted me its War Plans
+- The War was the Easy Bit - Just wait until we get to the Politics
+- Trump Administration rejects WHO Pandemic Treaty Agreement - Citing threat to US Sovereignty
+- Trump and the Global Deep State - The Split of the West
+- Trump cierra dos Emisoras de Radio de los tiempos de la Guerra Fría - Guerra Psicológica
+- Trump es 'imprudente' con el Dilema Europeo y su Crisis Existencial...
+- Trump è 'temerario' con il Dilemma Europeo e le crisi Esistenziali che ha
+- Trump exige que Soros y su Hijo sean Juzgados bajo la Ley RICO - "No vamos a permitir que estos Lunáticos...
+- Trump Inherits Turd of an Economy - says Ed Dowd
+- Trump is dismantling 'Biden's Green New Scam' and restoring Energy Freedom
+- Trump is 'reckless' with the European Dilemma and its Existential Crisis...
+- Trump - Kennedy - Explosive Day One
+- Trump - Kennedy - Primer Día Explosivo
+- Trump mandó un "mensaje" a Zelenski pidiéndole que se prepare para un Alto el Fuego - Dice el periódico El Pais
+- Trump - Military Annexation of Canada 'Highly Unlikely' - But not ruled out for Greenland
+- Trump moves to End Biden's War on Coal that Devastated U.S. Energy
+- Trump-Musk 'Big Bro' bust-up - Ignore the Noise, focus on the Signal...
+- Trump nombra otro Escándalo más grande en la Historia de EE.UU. - El bulo de Rusia, Rusia, Rusia en 2016
+- Trump Orders U.S. exit from UNESCO - Reversing Biden-Era Reentry
+- Trump potrebbe finire per Innescare il "Grande Reset" Globalista?
+- "Trump puede parecer Loco, pero está pensando en un Mundo que Todavía No Existe" - Andrés Malamud
+- Trump quiere que los Europeos paguen las Facturas
+- Trump reshapes Foreign Policy with Tariff Diplomacy
+- Trump retira a EE.UU. de la UNESCO
+- Trump retira nuevamente en 2025 a EE.UU. de la OMS por "Falta de Independencia" y "Mala Gestión"
+- Trump revokes Security Clearances of Harris, Clinton and Biden family
+- Trump's America is No Friend - Russia must Stay the Course
+- Trump Team leaves behind an Alliance in Crisis
+- Trump tells Zelenskiy that Putin wants more of Ukraine - Urges Kyiv make a Deal
+- Trump: "The Real President during the Biden Years was "
+- Trump the Technocrat releases 'America's A.I. Action Plan' - Launches A.I..GOV Website
+- Trump vuole che gli Europei Paghino i Conti
+- Trump y el Estado Profundo Global - La División de Occidente
+- Trump y la Ruta de la Seda - La Batalla decisiva contra la Hegemonía de China
+- Trump y Putin sellan su relación en Alaska pero sin un Acuerdo para Ucrania - Reunión "productiva" pero no hay...
+- Tulsi Gabbard releases 'Overwhelming Evidence' of Obama coup plot against Trump in 2016 Presidential Elections
+- Ucrania - Ese 'Oscuro Objeto' del Deseo
+- Una Nueva Doctrina echa Raíces - Una Nueva Era de Dominio Coaccionado
+- Una Tormenta en Occidente - El Paradigma Intelectual Liberal se ha roto
+- Understanding the "Dark MAGA Gov-Corp Technate"
+- U.S. Defense Secretary Pete Hegseth's shocking message to NATO Allies reveals Major U.S. Policy Shift
+- U.S. Government papers found in an Alaskan hotel reveal New Details of Trump-Putin summit
+- U.S. State Department expands plans for Closing Embassies and Consulates
+- Vance says Trump in 'Incredibly Good Health' - But is prepared to Step Up if Needed
+- War or Peace?
+- Westerners and the Conflict in Ukraine
+- 'We will pursue our Manifest Destiny into the Stars' - President Trump wants Astronauts on Mars
+- What is the 'Dark MAGA Movement'...?
+- What's Happening is Breathtaking - Trump has Started a Revolution...!
+- White House unveils Massive Report on the True Origins of COVID-19
+- Why has Trump finally Pulled the Plug on Deep State Propaganda?
+- Zelensky frente a Trump - ¿Suicidio Europeo o Síndrome de Masada?
+- Zelenskyy 'regrets' what happened during 'Oval Office Meltdown' - Ukrainian Officials "Desperate" to get deal...
+- "EE.UU. se irá a la Quiebra" - Musk dice qué los gastos de la USAID llevarían el país a la Bancarrota
+- Fourth Circuit temporarily allows DOGE to continue Dismantling USAID
+- Portavoce della Cancelleria Russa spiega come l'USAID costruiva una Falsa Realtà con Mezzi Indubbi
+- Trump/Musk se encaminan a Liquidar al sector del 'Deep State' perdedor en la Guerra de Ucrania
+- Trump's 'USAID Purge' has revealed US scheming in Kiev - But wont stop it...
+- Vocera de la Cancillería Rusa explica cómo la USAID construía una Realidad Falsa con Medios Controlados
+Multimedia:
+- Acabo de Votar por Trump - La verdadera Razón por la que quieren que Odies a Trump
+- BRICS - Alternativa Confirmada - Río de Janeiro 2025
+- Did President Trump Stop the 'Gog and Magog End Times War'?
+- Earth's Liberation from the Deep State - Galactic Community and the Earth Alliance
+- Europa - ¿Economía Arrodillada...?
+- Europa - Garantías de Guerra
+- J.D. Vance's historic Full Speech at Munich 2025 - Slams European Leaders on Free Speech
+- Latinoamérica - Cuestión de Soberanía
+- Primeras Medidas desde el Norte al Mundo - Trump
+- Russia Collusion Hoax Exposed - Saving America from a Hostile ET Takeover
+- Trump - ¿Adiós, Ucrania...?
+- Trump Administration rejects WHO Pandemic Treaty Agreement - Health Secretary Robert F. Kennedy Jr.
+- Trump y las Razones de su Elección en 2024
+- Trump y lo que Vas a Ver en las Noticias...
+- 2016 - How Truth was Destroyed So You'd Buy the Government's Propaganda
+- 2016 - The Year Americans Found Out our Elections are Rigged
+- A Bizarre Online 'Conspiracy Theory' disturbingly Spreads to Real Life - QAnon
+- Actually 'Nobody' Won the 2016 Presidential Election - And it Was a Landslide...
+- Americans didn't Vote Against Trump - They Voted Against more 'Media Psychological Abuse'
+- Analista Expone el Posible Futuro de las Relaciones entre EE.UU., China y Rusia
+- Aparición del "Hombre del Sombrero Rojo" - Profecía Hopi
+- Archbishop warns of 'Collusion between Deep State and Deep Church' to overthrow Trump and bring in NWO
+- Banana Follies - The Mother of All Color Revolutions
+- Bill Gates unveils details of 'intriguing Dinner' with Trump
+- Bourgeois Democracy meets 'Global Governance' - U.S. Election 2020
+- Chi è "Q"? - I Media Mainstream si Scontrano con il Partito per la Versione della Storia
+- China dice Estar Dispuesta a Dirigir el Mundo si Fuera Necesario
+- CNN Pushes Effort to "Ban the Term 'Fake News'" - Blowback
+- Come Platone 'Predisse' l'Avvento di Trump
+- Cómo Empiezan las Guerras Civiles
+- Cómo Platón 'Predijo' el Surgimiento de Trump
+- Congrats USA - Oxford Scientists Declare BOTH Trump and Clinton Likely Psychopathic
+- Con la Censura Unilaterale di un Presidente in Carica Big Tech ha Dimostrato che è più Potente di qualsiasi Gov.
+- De la Impostura del 11 de Septiembre a Donald Trump
+- Detalles que Revelan que el Nivel de la Política Norteamericana está Bajo Mínimos
+- Did a 'Galactic Federation' ask Trump Not to Reveal Extraterrestrials?
+- Did the Bush-Obama Wars cost Hillary Clinton the White House? - Battlefield Casualties and Ballot Box...
+- EE.UU. - La Incertidumbre de la Era Post-liberal
+- El "Aparato Clinton" para Desacreditar a Donald Trump
+- El 'Ataque Químico' en Siria fue una Falsa Bandera y Habrá Más - Dice Putin
+- El Colapso Económico es Inminente y le Echarán la Culpa a Trump - Dice Ron Paul
+- El 'Colegio Electoral' de Estados Unidos - ¿Promesa de Representación Popular o Sistema Arcaico?
+- "El Gran Reinicio" y la Revolución Post-Capitalista
+- El Problema No Es Trump - Somos Nosotros
+- El "Trío Magnitsky" impulsa la Guerra contra Rusia - Insisten en Nuevas Sanciones "Aplastantes"
+- En Europa tildan la Reelección de Trump de la "Peor Pesadilla Económica" para el Continente
+- ¿Está Siendo Saboteada la Confirmación de Kavanaugh para retrasar los Juicios Militares del Estado Profundo?
+- "Gigantic Rat's Nest" - Matt Taibbi hints FBI Communications with COVID Scientists will be Exposed
+- "Goodbye, Liberal World Order" - Says Council on Foreign Relations President
+- Hay que Prepararse para el Caos sin importar Quién termine en la Casa Blanca
+- Historical and Structural Reasons for Skepticism of CIA Claims - Remaining Agnostic on Claims of Russ...
+- Humpty Trumpty and the Shear in the Matrix
+- Il Crollo Economico è Imminente e Daranno la Colpa a Trump dice Ron Paul
+- Il Dott. Scott Atlas della Casa Bianca - 'Il Lockdown più Dannoso del Virus'
+- Investigación Revela cómo el PCCh Interfirió en las Elecciones de EE.UU.
+- Is Kavanaugh Confirmation being Sabotaged to delay Military Trials of Deep State?
+- Is the Obama Administration... Fully Operational?
+- La Ascensión Planetaria No está en un Horario de Tiempo
+- La Democrazia Borghese incontra "La Global Governance" - Elezioni 2020 in USA
+- La Guerra Civil se hace Inevitable en Estados Unidos
+- La Guerra Temporal de "El Estado Profundo" de QAnon y sus Implicaciones Galácticas
+- La Matrix de Donald Trump - Despertando a la Noción de que Vivimos en una Simulación
+- La "República" se agotó Globalmente - ¿Podría surgir un Giro Monárquico en un Mundo Post-Liberal?
+- L'Attacco Chimico in Siria è Stata una Copertura Fuorviante e ce ne Saranno di Più - Afferma Putin
+- La Cuestión Alemana - ¿Qué pasa si Europa se Separa?
+- Lavrov explica a RT qué Tiene que Pasar en la Cumbre entre Putin y Trump para que sea Exitosa
+- L'Effetto Decapitazione
+- L'Elezione Presidenziale 2020 degli Stati Uniti un "Criminale" contro un "Truffatore"
+- Los Beneficios Chinos tras el Alivio de las Tensiones entre EE.UU. e Irán
+- "Los Estados Desunidos de América" - La Crítica de 'The Economist' a la Polarización de EE.UU.
+- Many Insiders believe Military Tribunals for 'Deep State' will Happen any time Now
+- 'Mars Mission' - James Mattis talks Russia, Military Space Exploration at Defense Secretary Confirmation...
+- Milei sigue los Pasos de Trump y la Argentina se Retira de la OMS
+- Molti Insider Ritengono che potrebbero Costituirsi dei Tribunali Militari contro il Deep State in Qualsiasi Momento
+- Most Millennials Despise Both Major Candidates 2016 and Both Parties - Poll
+- "No Somos Investigadores" - El jefe de CNN Defiende la Forma en que la Cadena cubrió el 'Russiagate' y...
+- 'Operation Warp Speed' is using a 'CIA-Linked Contractor' to keep Covid-19 Vaccine Contracts Secret
+- Planetary Ascension is Not on a Time Schedule
+- ¿Porqué los 'Chalecos Amarillos' estarían Cantando '¡Queremos a Trump!'?
+- Preventing a Disrupted Presidential Election and Transition
+- Putin Lashes Out at Obama - "Show Some Proof or Shut Up"
+- QAnon Unmasks Britain as State Actor that Interfered in U.S. 2016 Presidential Election
+- ¿Quién es "Q"? - Los Medios de Información chocan con el Partido para que tome el Control de la Narrativa
+- ¿Quién es Steve Bannon? - La Ideología y la Visión Detrás de Trump
+- Ron Paul just Destroyed Trump's Hypocritical Speech in an EPIC Tweet Storm
+- Sei Modi per Passare dal Quarto al Quinto Mondo
+- Seis Formas de Transición del Cuarto al Quinto Mundo
+- Shift in Military Alliances - America Declares War on Turkey? #NATOExit?
+- 'Silent Fear' - Party of Davos Founder Emergency DC Meeting to Discuss How to Handle Donald Trump
+- Six Ways to Transition from the Fourth into the Fifth World
+- The Bait and Switch - Trump and the "New Establishment"
+- The 'Decapitation Effect'
+- The 'Deep State' Goes Shallow - "Reality-TV Coup d'état in Prime Time"
+- The Disclosure Movement and Donald Trump
+- The Great American Eclipse - An Astrological Analysis
+- "The Great Reset" and the Post-Capitalist Revolution
+- The 'QAnon' Deep State Temporal War and its Galactic Implications
+- The Second Coming - The Disappearance of the Traditional Political "Left" and "Right" in the 21st Century
+- The Structure of Power in American Society
+- The U.S. 2016 President Must Restore the Original 1789 Constitution - Also Protect the Rights of Children...
+- The U.S. 2020 Presidential Election - A "Criminal" Versus a "Con Artist"
+- The U.S.' fury over the China-Europe Investment Deal shows how Rattled and Isolated they Are
+- Think Tank financiado por Soros/Koch se Opone a la "Guerra para Siempre" de EE.UU.
+- Time Magazine posts Shocking Admission that Biden Election was Orchestrated by a 'Well-Funded...
+- Trump and 'Q' on the Invisible Enemy - The Extraterrestrial Factor
+- "Trump es un Presidente que llega absolutamente Preparado y conoce bien a sus Enemigos"
+- Trump Foiled Soros' Master Plan TPP to Impose New World Order
+- Trump is Penetrated - Former CIA Spy Drops Bombshells in RT Interview
+- Trump's Trade War was Bad Enough for Brazil's Amazon - Then Came Bolsonaro...
+- Trump y 'Q' sobre el Enemigo Invisible - El Factor Extraterrestre
+- Una Extraña 'Teoría de Conspiración' en la Web se Extiende a la Vida Real - QAnon
+- Un Arcivescovo avvisa di una Collusione tra 'Lo Stato Oscuro e la Chiesa Oscura' per rovesciare Trump e...
+- ¿Un Autor del Siglo XIX realmente Predijo la Elección de Trump, el Russiagate y el Posible Colapso del País?
+- United States revives Space-Policy Council after 24-year Absence
+- Unraveling the QAnon Hoax
+- U.S. Politics isn't 'Polarized' - It's in almost 'Universal Agreement'
+- ¿Va EE.UU. camino de una Guerra Civil o de una Dictadura?
+- Victoria Legal para Trump - Anulan Certificación Votos en Pensilvania, Georgia, Nevada - "Evidencias de Fraude"
+- Weaponizing the U.S. Dollar is Accelerating Global De-Dollarization
+- What this 2018 Election in USA is About
+- Where Europeans See Catastrophe in Trump's Victory, Asians See Chance for Change
+- White House's Dr. Scott Atlas - 'Lockdown More Harmful the Virus'
+- Who is 'Q'? - Mainstream Media Crashes the Party to Take Control of the Narrative
+- Who Spreads Fake News? - Overwhelmingly, Old White Men
+- Will Deep State disclose Buried Antarctic Civilization to 'distract' from Looming Mass Arrests?
+- With Unilateral Censorship of a sitting US President, Big Tech has proven it's more Powerful than any Govern...
+- Atentado contra Trump - ¿Hubo Complicidad del Servicio Secreto del Gobierno de los EE.UU.?
+- Attempt to Assassinate ex-president Donald Trump - Pennsylvania July 2024
+- Cronología de un Antes y un Después del Intento de Asesinato al ex-presidente Trump
+- 'Eliminate Him' - A look at the Violent Rhetoric against Donald Trump
+- Perché non sapremo mai Cosa Realmente è Successo a Butler, PA - 2024 Attentato a Trump
+- Retrospectiva del Atentado contra Trump - ¿Beneficia a la Secta de la Dominación Mundial
+- Why we'll Never Know what Really Happened in Butler, Pennsylvania - 2024 Trump Assassination Attempt
+- 1900 or The Last President - by Ingersoll Lockwood
+- A Plague Upon Our House - by Scott Atlas
+- Baron Trump's Marvellous Underground Journey - by Ingersoll Lockwood
+- Common Sense - Addressed to the Inhabitants of America, on the following Interesting Subjects - by T. Paine
+- Destined for War - by Graham Allison
+- Esoteric Trumpism - by Constantin von Hoffmeister
+- Fire and Fury - Inside the Trump White House - by Michael Wolff
+- Julius Caesar and the Roman People - by Robert Morstein-Marx
+- La Trastienda de Trump - por Daniel Estulin
+- Los Neoconservadores y la Doctrina Bush - por Ramón Soriano y Juan Jesús Mora
+- Nephilim Crown 5G Apocalypse - by Dean Henderson
+- Nightmare Scenario - Inside the Trump Administration's Response to the Pandemic that Changed History
+- Our Country, Then and Now - by Richard C. Cook
+- The Defeat of the West - by Emmanuel Todd
+- The Strategy of Denial - by Elbridge A. Colby
+- The Trump Revolution - by Alexander Dugin
+- Travels and adventures of Little Baron Trump and his wonderful dog Bulger - by Ingersoll Lockwood
+- Trump: The Art of the Deal - by Donald J. Trump
+- Advertencia a Toda la Gente a Nivel Mundial sobre la Vacuna para el Coronavirus
+- Donald Trump reveals where he Stands on COVID - New Viral Video
+- El Gran Reseteo Mundial
+- Is the Agenda a New Civil War?
+- La Verdad sobre la Mentira
+- Putin e Trump - Una Fraterna Inimicizia
+- Putin said: Feel Free to Release my Transcripts with Trump - You will Find Nothing Compromising in it!
+- Putin y Trump - Una Fraternal Enemistad
+- Asia - The Reemerge of a Giant - Main File
+- Globalization and The European Union - Main File
+- Latin America and The Global Elite - Main File
+- Russia and The EU - Main File
+- The Global Elite - The Transnational Capitalist Class - Main File
+Return to Temas / Main Files
+Return to Big Brother Loves You...

@@ -1,0 +1,204 @@
+# The Actual Syrian Case - El Caso Actual de Siria
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_syria.htm
+
+- A "Humanitarian War" on Syria? - Military Escalation - Towards a Broader Middle East-Central Asian War?
+- A New Push for Peace in Syria?
+- Arabia Saudita Dispuesta a Negociar - Aceptaría que Bachar al-Assad se Mantenga en El Poder
+- BBC Caught in Syria Massacre Propaganda Hoax
+- Brookings Announces Next Move in Syria - War
+- Case Against Syria's Assad Falls Apart
+- Cazas Rusos Destruyen Base Militar Secreta de EE.UU. y el Reino Unido en Siria
+- Chemical Attack Accusations 'Fake' - Assad tells Kathimerini in Exclusive Interview
+- Cheney, Rothschild, and Fox News Murdoch to Drill for Oil in Syria, Violating International Law
+- Civil War Declared in Syria - Globalist's Formula for WW III Begins
+- Cómo Salir de la Guerra contra Siria
+- CONFIRMED: U.S. Claims Against Syria - There is No Evidence
+- Debunking the Western Media's Coverage in Peru of the War on Syria
+- Declassified CIA Documents reveals Plan to Destroy Syria for Oil Pipeline - Predicts Current Crisis
+- De cómo Putin y Trump están Poniendo Fin a la Guerra contra Siria
+- Defeated NATO Dangerously Desperate in Syria
+- De Militar a Militar - Rebelión de los Generales del Estado Mayor Conjunto de EE.UU.
+- Did Turkey Just Declare War on Syria?
+- Doing a 'Libya' in Syria - The Big Lie About a "Peoples' Revolution"
+- EE.UU. y Rusia podrían Entregar los Ricos Altos del Golán a Siria - Duro Golpe a Israel
+Español
+- El 'Ataque Químico' en Siria fue una Falsa Bandera y Habrá Más - Dice Putin
+- El Pentágono Está Dispuesto a Cooperar con Rusia en Siria
+- El Pueblo Sirio Apoya a Assad - Pero la BBC lo Acalla, dice Baronesa Británica
+- En Exclusiva RT Obtiene Documentos que Explican cómo Funciona la 'Corporación' Petrolera del Estado...
+- Experto Denuncia la Sucia Estrategia de EE.UU. para Destruir los Éxitos de Rusia en Siria
+- Father of Famous "Aleppo Boy" just Exposed how the U.S. and White Helmets Lied to the World
+- Fighting Al Qaeda by Supporting Al Qaeda in Syria - The Obama Administration is a "State Sponsor of...
+- François Hollande Visitará Moscú la Próxima Semana - Noviembre 2015
+- French Say Assad Must Go - Assad Responds "No Thanks, Get Serious"
+- Here is the Assad Interview "CNN" will Never Show You - "EU is Supporting Terrorists in Syria from the Very...
+- Hidden U.S.-Israeli Military Agenda - "Break Syria into Pieces"
+- Houla, Syria Stunt Proves - Old Tricks are The Best Tricks - NATO Learned From The Best
+- How Close Were We to a Third World War? - What Really Happened When Israel Attacked Syria on...
+- If Assad Defends Against U.S. Attack, U.S. Will Attack - says Obama
+- If The U.S. Loses Syria, The US Loses Its Empire - U.S. Threatens Russia, China for Not Supporting...
+- Il Popolo siriano Appoggia Assad - Pero la BBC lo Zittisce, lo dice la Baronessa Britannica
+- "It's Going to Take Years" - US Air Force Calls for Ground Troops to "Occupy and Govern" Iraq and Syria
+- It's Time to Start Getting Enraged at what Western Imperialists have done to Syria
+- Julian Assange Reveals Another 2006 Western Plan to Destroy Syria
+- La Alianza Occidental está Derrumbándose - La UE está Abandonando a Estados Unidos sobre Derrocar...
+- La Continuidad de La Agenda - La Catástrofe Siria, Diseñada bajo Bush y Ejecutada al Pie de la Letra...
+- La Crisis de Siria en Manos de Auténticos Locos
+- La Estrategia de La Hermandad Musulmana en Siria
+- La Estrategia tras las Sombras - Ucrania, Siria y los Conflictos del Mundo Multipolar
+- La Otra Cara de los "Cascos Blancos" en el Conflicto Sirio
+- La Resolución de la ONU sobre el Conflicto Sirio Demuestra que Rusia Tenía Razón
+- Las Falsas Acusaciones de Ataque Químico - Assad le cuenta a Kathimerini en Entrevista Exclusiva
+- Latest United Nations' Syria Report on War Crimes - Compiled by Washington Think-Tanker
+- La Tragedia de Siria y la Nueva Omniguerra
+- L'Attacco Chimico in Siria è Stata una Copertura Fuorviante e ce ne Saranno di Più - Afferma Putin
+- Leaked Memo Says U.S. Special Operation Forces in Syria Since December
+- Los Barones del Petróleo de la Siria Ocupada - Rupert Murdoch y Lord Rothschild
+- Los Planes que EE.UU. tenia en Siria... y que Rusia ha Roto en Pedazos
+- Media Blackout over Syria
+- Media Head Games Exposed! - CNN Caught Using Neuro-Linguistic Programming to Influence Syrian...
+- Mentiras Occidentales y Elecciones Sirias
+- Military to Military - On US Intelligence Sharing in the Syrian War
+- NATO Data - Assad Winning The War for Syrians' Hearts and Minds
+- New Syrian Opposition Leader Educated in Indianapolis
+- Obama Ordena "Limpiar la Casa" Borrando los Vínculos con al-Nusra en Siria
+- Obama Rechaza 'Cooperación' con Putin sobre Siria - La Guerra de Washington contra el Terrorismo...
+- Obama Rejects "Cooperation" with Putin on Syria - Washington's War on Terror is A Fabrication, Zero...
+Italiano
+- Obama Rifiuta di "Cooperare" con Putin per la Siria - La Guerra di Washington contro il Terrorismo è...
+- Obama's Bizarre Threats Indicate U.S. Desperation in Syria
+- Obama's Humanitarianism as Window-Dressing for the US "Deep State" Agenda - The Case of Syria
+- OTAN Reconoce que El 70% de Los Sirios Apoya a Bachar al-Assad
+- People Around the World Oppose Arming Syrian "Rebels"
+- People Here Don't Like The Regime, but They Hate The Rebels Even More - Aleppo Activist Edward Dark
+- Predictive Software "Validates" WikiLeaks Psy-Op Attack on Syria
+- Primeras Interpretaciones al Ataque de EE.UU. a Siria... - ¿Todo es Puro Teatro?
+- Putin Despeja Todas las Dudas Sobre la Retirada Rusa de Siria
+- Putin está Derrotando a Más que a ISIS en Siria
+- Putin is Defeating More than ISIS in Syria
+- ¡Putin Ordena la Retirada del Ejército Ruso de Siria!
+- Putin's Geopolitical Chess Game With Washington in Syria and Eurasia
+- Qatar - U.S. Proxy in America's Terror War in Syria
+- Saving Syria - Assessing Options for Regime Change
+- Searching for Solutions in Syria
+- Siria - Conversaciones de Paz y un Imperio Volviéndose Loco
+- Siria, Turquía, Israel y La Gran Guerra de Energía en Oriente Medio
+- Skull & Bones John Kerry 'Fails' to Provide Key Evidence in Syria
+- Snowden, Siria, Obama y Mas... - Versión Completa de La Entrevista a Vladimir Putin
+- Sunni Extremists Ravaging Syria Created by U.S. in 2007
+- Syria Could Become a Rallying Point Against the Banksters
+- Syria - Iraq 2.0 - Another False-Flag Invasion Rated XXX
+- Syria "Liberated" by its own Destroyers
+- Syria - NATO Genocide Approaches - U.N. Syria Report Co-Authored by Director of U.S. Corporate...
+- Syrian Muslim Brotherhood, Still a Crucial Actor
+- Syria - Peace Talks and an Empire Running Amok
+- Syria's Assad is Coming In from the Cold
+- Syria's 'Chemical Weapons' Turn Out to Be Sodium Fluoride Used in The U.S. Water Supply and Sold...
+- Syria - The Sting and The Sacrifice
+- Syria Under Attack by Globalist Death Squad Experts
+- Syria War Will Empower Future Global Government
+- Syria - Who is Behind The Protest Movement? - Fabricating a Pretext for a US-NATO "Humanitarian...
+- Syrien unter Beschuss von Todesschwadron-Experten der Globalisten
+- The Drums of War are Beating in Syria - Killing Civilians to Protect Civilians
+- The Forbidden Truth - The U.S. is Channeling Chemical Weapons to Al Qaeda in Syria, Obama is a Liar...
+- The Hidden Forces Behind Syria's President Bashar al-Assad
+- 'The Media Coverage on Syria is the Biggest Media Lie of our Time' - Interview with Flemish Priest in Syria
+- The Plan to Destabilize Syria
+- The Red Line and The Rat Line - Obama, Erdoğan and the Syrian Rebels
+- The Secret History of America's Defeat in Syria
+- The Subterfuge of Syrian Chemical Weapons
+- The Syrian Intelligence War - A Tale of Two Security Headquarters
+- The Syrian 'War Games' Military Theater of Operations in Two Charts
+- The Top 9 Real Reasons to Go to War in Syria
+- The U.S. and Israeli-Sponsored Destruction of Syria and Iran Continues
+- The War Against Syria was Planned Two Years Before "The Arab Spring" - Former French Foreign...
+- The Western Alliance is Crumbling - EU is Abandoning U.S. on Overthrowing Assad
+- The West's Greatest Fear is A Peaceful Resolution in Syria
+- The West's Propaganda War on Syria Exposed Once Again - Fake Video Footage
+- Time to End Western Support for Terrorists in Syria - "Opposition" is Entirely Run by Al Qaeda
+- Trump Taking U.S. to War in Syria to Avert Economic Disaster
+- Turkey is the Source, Not Solution to ISIS and the Syrian Crisis
+- Una Fuerza de Contraguerrilla Pero con Carácter Popular - Siria
+- United Nations Defends NATO's Premeditated Genocide in Syria
+- United Nations Shenanigans on Syria
+- URGENT - False Flag Involving Israel to Implicate Syria in The Works, Says RT
+- U.S. Admits No Imminent Threat from Syria - No Clear Evidence Assad Ordered Chemical Weapons Attack
+- U.S. Approved Israeli Bombing of Syria and May Join The War at Any Moment
+- U.S.-Led Western Scheme to Divide and Destroy Syria - Revealed in Leaked British Cable
+- 'U.S. Secret Services' Direct Major Offensive on Russian/Syrian Forces but Suffer Devastating Defeat
+- U.S. to Begin Invasion of Syria
+- U.S. vs. Russia in Syria - A Battle to Control the Truth
+- ¿Va Estados Unidos a Ir a La Guerra con Siria por Causa de un Gasoducto?
+- Was Trump Missile Attack Part of a Secret Plan to End Syria Conflict and Prevent War with Iran?
+- We Are Watching The US, Israel and The United Nations Destroy Syria
+- West Seeks to Perpetuate Syrian Bloodbath
+- When Washington Decides that 'Democracy is Dangerous' - Stoking Opposition in Venezuela and Syria
+- Whose Sarin?
+- Why Are Obama and Kerry So Desperate to Start a New War? - The Rule of Zombies
+- WikiLeaks "Syrian Files" Obtained by Flame to Set Up Assad
+- Will Russian and Chinese Military Forces on Syrian Soil Prevent Obama from Bombing Syria?
+- Wir sehen zu, wie Syrien Zerstört wird von USA, Israel und UN
+- Al Cooperar con Washington en Siria, Rusia ha Caído en una Trampa
+- Al-Qaeda, Eterno Auxiliar de La OTAN
+- America's Chemical Weapons - Hypocrisy, Conspiracy and a Forgotten History
+- Avaaz - The Online Pro-War Propagandist and Color Revolution NGO
+- Carta Abierta al Presidente Barack Hussein Obama
+- Choosing Hegemony - Turkey, NATO and The Path to War
+- Clinton Allowed Stevens to Die in Benghazi to Keep Saudi Government Involvement in Syria Secret
+- CNN Caught Staging News Segments on Syria With Actors
+- Cómo John McCain ha Paralizado la Guerra de Obama contra ISIS
+- Cómo son Llevadas a Cabo hoy en día las Operaciones de Falsa Bandera
+- Conozca al Hombre Que Financia ISIS - Bilal Erdogan el Hijo del Presidente de Turquía
+- Crisis de Refugiados Europeos - Anatomía de un Encubrimiento
+- De qué manera la Administración de la Organización de las Naciones Unidas (ONU) Organiza la Guerra en Siria
+- El Comodín de Putin en Siria
+- El Estado Mayor Conjunto Denuncia la Influencia de los Halcones Liberales sobre la Casa Blanca
+- Erdogan Blackmails NATO Allies
+- European Refugee Crisis - The Anatomy of a Cover-Up
+- False Flag Event in Syria - The Third Force and Exopolitics
+- Government and Media are doing Exact Same Thing they Did to Start Iraq War - And Americans are Buying It
+- Here We Go: NATO Plans to 'Defend' Turkey
+- Hillary Clinton Must Resign - Cites False Reports Regarding Syria "Massacre"
+- Hillary's "Cowboy Diplomacy" - There Will Be Hell to Pay for NATO's Holy War
+- How False Flag Operations are Carried Out Today
+- How John McCain Crippled Obama's War on ISIS
+- Interlocking Agencies that Conspire to "Create Terror" - We Do Not Need the Police to "Create More...
+- Is Trump Disrupting the Cabal's Plan for a New World Order? - Trump says "We're Not Going Into Syria"
+- It Was a NATO Mortar that Killed 5 Turkish Civilians Last Week - REPORT
+- La Alianza Secreta de EE.UU. con Al-Qaida y Los Fundamentalistas Islámicos
+- La "Hermandad" China-EE.UU.
+- La Jugada Maestra de Putin sobre Israel
+- La Nuova Alleanza in Medio Oriente scuote i Poteri Mondiali
+- Leaked Sec. Kerry Audio that CNN and NY Times Tried to Hide - Confirms U.S. Role in Rise of ISIS
+- Los Emails Explosivos de Hillary Clinton
+- Meet the Man Who Funds ISIS - Bilal Erdogan, the Son of Turkey's President
+- Nueva Alianza de Oriente Medio sacude a los Poderes Mundiales
+- Obama's Gun-Running Operation - Weapons and Support for "Islamic Terrorists" in Syria and Iraq...
+- Opciones Rusas contra un Ataque Estadounidense en Siria
+- Perché Conosciate lUomo che Finanzia ISIS Bilal Edogan, il Figlio del Presidente di Turchia
+- Poetic Justice Finds U.S. Enablers of Terror
+- Putin's Wild Card in Syria
+- Putin y Trump hablan Vía Telefónica sobre las Crisis en Siria y Corea del Norte
+- Rusia Destruye el Sueño del 'Gran Israel'
+- Satanic Cabal Threatens to Make San Francisco and Damascus "Uninhabitable"
+- The Third Force Begins its Take-Down of Mystery Babylon - Secret Space War X
+- The United Nations and The Houla Massacre - The Information Battlefield
+- The U.S. Government Stands Revealed to The World as a Collection of War Criminals and Liars
+- Turkey - A Criminal State, a NATO State
+- Una Periodista Muerta y Tres más Arrestados Después de Exponer que Turquía Arma a Extremistas Sirios
+- Una Revelación Publica Impactante sobre EE.UU. y el "Terrorismo Islámico"
+- U.S. 'Elects' New Syrian Leader... A Guy From Dallas!
+- Washington Funded Houla-Style Massacres - Analyst Said
+- What Happened to the "Global War on Terrorism"? - The U.S. is "Fighting for Al Qaeda" in Syria
+- Full Interview with Syrian President Bashar al-Assad that You are Not Seeing on TV
+- La Historia de Todo lo qué Está Pasando...
+- Washington Funded Houla-Style Massacres
+- What's Really Going On In Syria? - Ground Being Prepared for Syria Intervention' - by Ex-U.S. Chief of Staff
+- Obama - A "New" Sociopolitical Era or The Greatest Deception? - Main File
+- The Actual Iran Case - The Beginning of World War III? - Main File
+- The New World Order - Main File
+Return to The Middle East Exopolitical Saga
+Return to Temas / Main Files
+Return to Global Militarism
+Return to Endgame

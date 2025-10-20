@@ -1,0 +1,1063 @@
+# Russia and The EU - Rusia y La Unión Europea
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_russia.htm
+
+- A Decisive Shift in the Power Balance has Occurred
+- A Favor de Putin
+- Al Cooperar con Washington en Siria, Rusia ha Caído en una Trampa
+- Alexander Dugin y Tucker Carlson - "El Individualismo es una Comprensión Errónea de la Naturaleza Humana"
+- Alta Tensión Rusia-USA - Rusia Responde con Fuerza a las Amenazas de EE.UU.
+- América Latina tendrá un Papel Protagónico en la Política Mundial - Putin
+- A Multipolar World is Emerging
+- A New American Empire - Trump, Russia, and the End of Globalism
+- A New Global System or a 'Global Catastrophe'?
+- A Polyphonic World Order
+- A Polyphonic World System - Vladimir Putin offers a Higher Hypothesis for Global Diplomacy
+- Ártico en el Punto de Mira - ¿Por qué son tan Atractivas las Regiones Polares?
+- Artículo de Vladimir Putin publicado en el Periódico Alemán de Negocios 'Handelsblatt'
+- Así reacciona Occidente a la decisión de Putin de reconocer las Repúblicas de Donbás
+- A very Popular German writer Predicted Russia would Inherit the Earth - Oswald Spengler
+- Bolivia y Rusia firman Seis Acuerdos Gasíferos
+- BRICS in the Wall of Global Greed
+- BRICS nel Muro dell'Avidità Globale
+- Brzezinski's Ghost shapes Washington Eurasia Geopolitics
+- Brzezinski's Warning to America
+- Calentamiento Climático - El Enfrentamiento de Occidente contra el Mundo
+- ¿Cambio Drástico de Planes? - EE.UU. efectúa la Compra del Primer Cargamento de Gas Ruso
+- Can China and Russia Squeeze Washington Out of Eurasia? - The Future of a Beijing-Moscow-Berlin...
+- Challenging the Dollar - China and Russia's Plan from Petroyuan to Gold
+- China and Russia - The Bilateral Relationship that Matters
+- China, Rusia, India, el Sur - La Era de la Revancha
+- China's Xi, Russia's Putin challenge 'World Order' at Regional Summit
+- China y Rusia derrotan al Tío Sam en su Propio Juego
+- China y Rusia se Unen y Cambian el Orden Mundial
+- Come lavoreranno Israele e Iran con l'Unione Economica Euroasiatica (UEEA) capitanata dalla Russia
+- ¿Comienza Finalmente a funcionar la Estrategia de Putin?
+- ¿Cómo Rusia y China pueden Contrarrestar el Impacto de las Sanciones de Occidente?
+- Cómo trabajará Israel e Irán con la Unión Económica Euroasiática (UEEA) liderada por Rusia
+- Cosa rende la "Politica Macroeconomica della Russia la Migliore del Mondo"
+- Dark Suits Rule the U.S. and its Puppet Presidents - Reveals Putin, stating the Obvious
+- De cómo Putin y Trump están Poniendo Fin a la Guerra contra Siria
+- DHS just Admitted Mainstream Media has 'Misrepresented Facts' on Russia
+- Discurso Completo de Donald Trump ante la ONU en 2025 - "¿Qué Sentido tienen las Naciones Unidas?"
+Español
+- Discurso de Lavrov en la ONU - Una "Rotunda Defensa del Nuevo Orden Multipolar"
+- Discurso de Vladimir Putin en el SPIEF 2023 - 'Foro Económico Internacional de San Petersburgo'
+- Does Russia want Donald Trump to Win?
+- "Donde Rusia y China tienen Buena Presencia y Cooperan, hay Tranquilidad"
+- Dos Ejemplos que Muestran que Rusia y China "No son la Alternativa"
+- Ecco il "Nuovo Boss" - Putin reindirizza gli Idrocarburi importanti verso Est lasciando l'Europa "Senza Risorse"
+- ¿Economía Destruida? ¿País de Espías y Borrachos? - Desmontando los Mitos sobre Rusia
+- EE.UU. admite su Derrota en la Guerra contra Rusia y China
+- EE.UU./Rusia/China configuran la Nueva Tripolaridad del Siglo 21
+- EE.UU. se Equivocó en su Intento de Evaluar las Capacidades de Rusia
+- EE.UU. y la UE tienen "Verdadera Ansia" por Enfrentarse a Rusia
+- EE.UU. y Rusia - De la Guerra Fría a la Guerra Cibernética
+- Eighty Years ago Edgar Cayce predicted Putin's Role in Stopping World War 3
+- El Águila, el Oso y el Dragón
+- El 'Ataque Químico' en Siria fue una Falsa Bandera y Habrá Más - Dice Putin
+- El Banco Central de Rusia ahora está Probando Monedas Estables vinculadas a Activos Reales
+- El Declive de Europa y Ucrania
+- El Enigma de Putin
+- El Enorme Impacto Futuro de la Agresión Turca a Rusia
+- "El Estado perdurable de Putin" - Ensayo del asistente del Kremlin Vladislav Surkov
+- El Fin de la Dominación Occidental
+- El Inicio del Cambio de Rumbo Mundial - La Estrategia Rusa ante el Imperialismo Anglosajón
+- El Kremlin aclara Cambios a la Doctrina Nuclear Rusa - Señal a Occidente
+- El Kremlin desvela el texto del 'Acuerdo Estratégico con Venezuela' - ¿Qué Contempla?
+- El llamado de Biden a crear un 'Nuevo Orden Mundial' refleja el Miedo de EE.UU. a la Multipolaridad
+- El Mapa de las Exportaciones de Rusia
+- El Medio Oriente se libera de Occidente
+- El Momento Unipolar ha Terminado
+- El Orden Global en Reconfiguración - Trump, China, Rusia y el Nuevo Equilibrio de Poder
+- El Orden Mundial ya Cambió en 2022
+- El Pacto Rusia-China y la Conspiración Marx-Rothschild
+- El Pacto Secreto entre Rusia y Alemania
+- El Parlamento Europeo Aprueba la Resolución Contra los Medios Rusos
+- El Pentágono Está Dispuesto a Cooperar con Rusia en Siria
+- El Phoenix Ruso, Esperanza o Ilusión - Una Perspectiva Exopolítica
+- "El Proceso de la Construcción de un Mundo Multipolar es Inevitable" - Vladímir Putin
+- El Síndrome del 'Trastorno por César'
+- El Sistema Neocolonial Mundial "ha Dejado de Existir" - "El Mundo Multipolar se está Consolidando" - Putin
+- El Trabajo de Putin y Trump por la Paz No es "Traición", sino el Regreso a la Realidad
+- Encuentro Biden-Putin - Más parecido a un 'Yalta II' que a la 'Capitulación de Berlín'
+- Enlightened World Leadership Does Not Exist
+- En Moscú, Xi y Putin entierran la 'Pax Americana'
+- 'Es Imposible Seguir Adelante sin Auto-Determinación Espiritual, Cultural y Nacional' - Vladimir V. Putin
+- ¡Es Oficial! - El Banco Central de Rusia anuncia la vinculación del ¡Rublo al Oro!
+- Estados Unidos tiene por Objetivo Impedir una Alianza entre Rusia y Alemania - dice STRATFOR
+- Están haciendo Todo lo Posible para Provocar una Guerra Nuclear con Rusia
+- Este escritor Alemán súper popular Predijo que Rusia Heredaría la Tierra - Spengler
+- E.U. and Russia Extend Sanctions Against Each Other
+- È Ufficiale! La Banca Centrale Russa annuncia il Rublo legato all'Oro!
+- E.U. Foreign Policy Chief calls for Rapprochement with Russia and End of "American-led System
+- Europa debe Decidir Sobre el Conflicto contra Rusia
+- Europa, Desesperadamente Desorientada - Cese del Fuego y "Sanciones" contra Rusia
+- European Empire Now in Danger of Crumbling
+- EU, Russia, Iran, and China unveil New Global Payment System Independent of U.S.
+- Everyone's Paying for America's War on Russia, Including America
+- Experto Denuncia la Sucia Estrategia de EE.UU. para Destruir los Éxitos de Rusia en Siria
+- Fabricated Putin Link to Leaked Panama Papers - Secret Offshore Money
+- "Financial Independence" from American Empire say EU, China, Russia...
+- ¿Fin de la Globalización? - El Futuro que le espera al Comercio Mundial
+- Former White House Official Says U.S. Already at War with Russia and China
+- François Hollande Visitará Moscú la Próxima Semana - Noviembre 2015
+- Get Ready for a Major Geopolitical Chessboard Rumble
+- 'Globalist Terrorist' Klaus Schwab his 'Days are Numbered' - Putin warns...
+- Gloomy Putin World View Comments
+- Goodbye Democracy and Capitalism
+- Goodbye G20 - Hello BRICS+
+- Government papers found in an Alaskan hotel reveal New Details of Trump-Putin summit
+- Gran Reseat? - Putin ha detto: "Non così in Fretta" - Il Presidente Russo ha rilasciato un'Intervista al WEF
+- Great Reset? Putin Says, 'Not So Fast' - Russian President delivers Speech at 'Virtual WEF'
+- Hace Ochenta Años Edgar Cayce predijo el papel de Putin en Detener la III Guerra Mundial
+- Hacia un Nuevo Sistema de Gobernanza Global - La Inauguración de la Cumbre de la OCS, en puntos clave
+- Ha Ocurrido un Cambio Decisivo en el Equilibrio del Poder Mundial
+- ¿Hay una Triple Alianza Mundial entre Trump, Putin y el Papa Francisco?
+- Heading for War with Russia?
+- 'Histeria' en EE.UU. y sus Satélites por Avance Geopolítico de Rusia y China
+- History is Being Made in the East this Week - While War is Being Made in the West...!
+- Hot Mic picks up Putin and Xi discussing 'Organ Transplants and Immortality'
+- How Europe must respond as Trump and Putin smash the Post-War Order
+- How Russia's President Putin explains the End of The 'Liberal' Order - Interview with The Financial Times
+- 'Human Rights' and Soft Power in Russia
+Italiano
+- Il Cinema ha Superato la Realtà? - Putin parla con Oliver Stone della Minaccia Nucleare della Guerra Fredda
+- Il Debito Pubblico Netto della Russia scende a Zero
+- Il discorso di Biden per creare un Nuovo Ordine Mondiale riflette la Paura degli Stati Uniti al Multipolarismo
+- Imágenes de Dos Mundos - El 6 de Mayo en Londres y el 9 de Mayo en Moscú
+- Implicaciones Internacionales del 'Nuevo Concepto de Política Exterior Rusa'
+- Implicazioni Internazionali per il 'Nuovo Concetto di Politica Estera Russa'
+- Incontriamo i Russi...!
+- Independent American and Russian Women Call for Peace
+- In Favore di Putin
+- Is Asia Ready for an Indo-Russian Order?
+- Is Putin's Strategy finally Beginning to Work?
+- Is Russia Anti-Illuminati?
+- 'It All Looks as if the World is Preparing for War' - Mikhail Gorbachev
+- 'It is Impossible to Move Forward without Spiritual, Cultural and National Self-Determination' - Putin
+- It's Official! - Russia Central Bank announces Ruble bound to Gold
+- Jim Rogers on Opportunities in Russia and Other 'Hated' Markets
+- Joint Statement of Russia and China on the International Relations entering a New Era and the Global...
+- Kennedy's U.S.-Russia Joint Space Vision must be Revived
+- Kissinger, a Longtime Putin Confidant, Sidles Up to Trump
+- Kissinger Nails It... For Once...
+- La Alarmante Amenaza "Nuclear" del Presentador de Noticias favorito del Gobierno de Vladimir Putin
+- La Alianza del Millenium entre Estados Unidos de América y la Federación Rusa
+- La Bolsa de Moscú Suspende Oficialmente todas las Transacciones en Dólares y Euros
+- La Borsa di Mosca Sospende Ufficialmente tutte le Transazioni in Dollari e Euro
+- La Cara de Macron cuando Trump se niega a llamar "Dictador" a Putin
+- La Cumbre Putin-Trump y el Nuevo Protectorado de Estados Unidos-Rusia
+- La Cumbre Trump-Putin da a conocer las Amenazas del 'Gobierno en La Sombra' del Estado Profundo
+- La desgastante Diplomacia de Putin deja al Occidente Permanentemente Fuera de Balance
+- La decisión de Rusia sobre el Tratado START fue una "Primera Llamada" para Occidente
+- La 'Dottrina di Guerra Nucleare' Russa - Un Punto di Ritorno alla Pace?
+- La Era de la Confrontación
+- "La Era de la Revancha" - Rusia, China y la India encabezan un Cambio del Orden Mundial
+- La Estabilidad Política de Rusia Garantizada mientras Occidente se Hunde
+- La Estenuante Diplomazia di Putin lascia l'Occidente sempre Senza Vigore
+- La Guerra contra Rusia y China ya ha Empezado - Declara Ex-funcionaria de la Casa Blanca
+- La Guerra contro Russia e Cina è Già Iniziata - Così Dichiara ex-Funzionaria della Casa Bianca
+- La Guerra está Frente a Nuestros Ojos...
+- La Independencia por Encima de Todo - Rusia Corta las Amarras Energéticas de Washington
+- La Jugada Maestra de Putin sobre Israel
+- L'Alleanza del Millennio tra Stati Uniti d'America e la Federazione Russa
+- La Mappa delle Esportazioni della Russia
+- La Oscura Verdad tras el Asesinato en Moscu de Líder Opositor
+- La Privatización es la Estrategia Atlantista para Atacar a Rusia
+- L'Aquila, l'Orso e il Drago
+- La Rebelión de Evgueni Prigozhin en Rusia
+- La Relación Putin-Trump - Cuando la Firmeza Rusa supera las Ambiciones Estadounidenses
+- La Resolución de la ONU sobre el Conflicto Sirio Demuestra que Rusia Tenía Razón
+- La Revolución Agrícola de Rusia que Puede Salvar al Mundo
+- La Rivoluzione Agricola della Russia che Può Salvare il Mondo
+- La Russia Emerge - La Caduta del Nuovo Ordine Mondiale
+- La Russia Sostituisce Wikipedia con la Grande Enciclopedia Russa
+- Las Dos Superpotencias - ¿Quién Controla Realmente los Dos Países?
+- Las "Fantasías Histéricas" de EE.UU. acerca de Vladímir Putin
+- Las Fuerzas Multipolares día a día se Consolidan Más en sus Posiciones
+- Las Nuevas Sanciones Antirrusas provocan Discordia en la UE y EE.UU.
+- La Sorprendente Proposta della Russia all'Europa che Potrebbe Cambiare il Volto del Mondo
+- La Sorprendente Propuesta de Rusia a Europa que Podría Cambiar la Faz del Mundo
+- "Las Sanciones contra Rusia conducirán a Europa a una Recesión Histórica"
+- La Stabilità Politica della Russia è Garantita mentre l'Occidente Affonda
+- La Storia si sta facendo all'Est questa Settimana mentre a Ovest si sta facendo la Guerra...!
+- L'Attacco Chimico in Siria è Stata una Copertura Fuorviante e ce ne Saranno di Più - Afferma Putin
+- La Ultima Arma de "Destrucción Masiva Económica" de Rusia contra el Sistema Occidental
+- La Ultima "Maniobra Agresiva" de Rusia es Una Proposición de Paz
+- La Unión al BRICS de Argentina y Otros Países fortalecerá la Organización - Dice el Kremlin
+- La Verdadera Razón por la que los Propagandistas han estado Promoviendo la Histeria Anti-Rusa
+- Lavrov explica a RT qué Tiene que Pasar en la Cumbre entre Putin y Trump para que sea Exitosa
+- Le Due Superpotenze - Chi controlla veramente i due Paesi?
+- Le "Fantasie Isteriche" degli USA su Vladimir Putin
+- L'Era del Confronto
+- L'inesperato Alleato Europeo per la costruzione del "Nord Sream 2"
+- Living with Russia - The Alternative is what, Exactly...?
+- Locura Total - Crece la Sombra de una Posible Guerra Nuclear
+- Lo que la Ciencia dice sobre la Política
+- Lo que piensa Putin sobre un 'Posible Fin del Mundo' por una IA Fuera de Control
+- Los Bancos Chinos y Rusos ya No Dependen del Sistema Occidental
+- Los BRICS desempeñarán un Papel cada vez Mas Importante en los Asuntos Mundiales - Serguéi Lavrov
+- Los BRICS y la Estructura de un Mundo Heptapolar - Contra la Unipolaridad Anglosajona
+- Los Dictadores deberían Temer a la IA
+- Los Diez Éxitos de Putin que reconoce Occidente
+- Los EE.UU. Planearon Borrar del Mapa a la USSR con un Masivo Ataque Nuclear - Orden Post Segunda...
+- Los Ferrocarriles Rusos ya solo miran hacia Oriente
+- "Los Intentos de Crear un Mundo Unipolar han tomado Formas Monstruosas" - Putin
+- Los Intentos de EE.UU. de aislar a Rusia reforzaron un Mundo Multipolar
+- Los Líderes Mundiales acuerdan 'Etiquetar al Ganado' del Planeta
+- Los Planes que EE.UU. tenia en Siria... y que Rusia ha Roto en Pedazos
+- Lula y el BRICS - El veto a Venezuela y las Contradicciones de un Brasil dividido
+- Major Geopolitical Changes Now Underway
+- Meeting of the Valdai International Discussion Club
+- Meet the 'New Boss' - Putin reroutes Critical Hydrocarbons Eastward leaving Europe 'High-and-Dry'
+- Meet the Russians...!
+- Mientras Rusia Crecerá más de lo previsto, la Economía de EE.UU. se Hunde - Lo dice el FMI
+- "Movimento Pro-Putin" si espande in tutto l'Ex Blocco Sovietico della UE - Ecco Perchè
+- "Nadie ha Podido ni Podrá Intimidar o Ejercer Presión sobre Nuestro País" - Declara Putin
+- New FBI Report definitively proves 'Russiagate' which dogged Trump's US presidency was 'Made Up' from the...
+- 'New World Order' vs. 'Empire of Lies' - Key takeaways from Lavrov's UN Speech
+- No 5th Column in the Kremlin? - Think Again...!
+- "No Somos Investigadores" - El jefe de CNN Defiende la Forma en que la Cadena cubrió el 'Russiagate' y...
+- No 'Unfriendly Nations' for Russia, Only 'Unfriendly Elites' - Putin
+- Now Russia Makes an Organic Revolution
+- ¿Nueva Guerra a la Vista? - Arabia Saudí cambia a EE.UU. por Rusia
+- Numerosas Noticias Alarmantes que Silencian los Grandes Medios de Comunicación
+- Nuova Guerra in Vista? - L'Arabia Saudita passa da Stati Uniti a Russia
+- Occidente No Logró organizar una 'Guerra Económica Relámpago' contra Rusia - Vladimir Putin
+- Opciones Rusas contra un Ataque Estadounidense en Siria
+- Open Skies Treaty Vital for Confidence Building - Russian Tu-154 Flies over Washington
+- Oswald Spengler y el Alma de Rusia
+- "Pardon Us for Our Country's Existence in the Middle of Your Military Bases" - Russian Foreign Minister...
+- "People are the Power in Russia" - Putin Won Re-election
+- Perché l'Occidente Non Può Tollerare i Russi
+- Perú y México - A la Vanguardia del Comercio entre América Latina y Eurasia
+- Por qué el Occidente odia a Putin - Lo que No le están Diciendo
+- ¿Por qué el Castigo Económico de Occidente no ha llevado a la Muerte de la Economía Rusa?
+- ¿Por qué Fracasaron las Sanciones Occidentales contra Rusia?
+- ¿Por qué Rusia ha Construido enormes Refugios Subterráneos?
+- Principles, Not Bitterness will Determine History
+- Privatization is the Atlanticist Strategy to Attack Russia
+- "Pro-Putin Movement" Expands across the Former Soviet bloc of the EU - Here's Why...
+- Putin actualiza su 'Estrategia de Seguridad Nacional'
+- Putin administra los Tiempos para que la Caída Anglosajona no arrastre al Mundo a una Guerra Nuclear
+- Putin announced the Doctrine of Global Confrontation with the United States
+- Putin anuncia la Doctrina de la Confrontación Global con los Estados Unidos
+- Putin asegura que las Élites Europeas se pondrán a los pies de su Dueño y "Menearán la Cola" - ...Trump
+- Putin blasts World Economic Forum (W.E.F.) Big Shots at Davos Backchat
+- Putin Calls Out "The Powers That Be" and the "Imaginary and Mythical" Threats they Use to Control Us
+- Putin, cansado de 'Mentiras sobre Hackeos Rusos', envía un Mensaje Directamente al Pueblo Americano
+- Putin concluye que "El Futuro Orden Mundial está siendo creado ante Nuestros Ojos"
+- Putin Consolida su Poder gracias a la "Locura Prighozhin" según el icónico Seymour Hersh
+- Putin despeja Todas las Dudas Sobre la Retirada Rusa de Siria
+- Putin dice "I Ricchi Devono Pagare" per il Coronavirus
+- Putin Did NOT Assassinate Opposition Leader - Says Russian Opposition
+- Putin, el Presidente Ruso, Dice algo Acerca de ISIS que los Medios de Comunicación Occidentales No...
+- Putin espelle a "Le Famiglie"
+- Putin es Reelecto hasta 2030 con el 87% de los Votos - "La Fuente de Poder de Rusia es el Pueblo"
+- Putin está Derrotando a Más que a ISIS en Siria
+- Putin expels the 'Families'...
+- Putin explica en qué Consiste el Poder de Rusia
+- Putin explicó 'hace un Año' lo que está pasando en Europa ¡ahora...!
+- Putin exposes Obama's Lame Duck Attempt to Start a New Cold War by Refusing to Retaliate
+- Putin interviene en foro 'La Franja y la Ruta' en China
+- Putin is Defeating More than ISIS in Syria
+- Putin Lashes Out at Obama - "Show Some Proof or Shut Up"
+- Putin - La Tríada Nuclear Rusa proporciona una Disuasión Eficaz y un Equilibrio de Fuerzas
+- Putin llamó a Liberarse de la "Dictadura del Modelo Financiero" cuyo objetivo es "Endeudar y Colonizar"
+- Putin marca el Fin del Mundo Unipolar y Avecina un Cambio de Élites a nivel Global
+- Putin on Russia's U.S. Election Interference: "I Do Not Care"
+- Putin Ordena Finalizar el Comercio en Dólares USA en Puertos Rusos
+- ¡Putin Ordena la Retirada del Ejército Ruso de Siria!
+- Putin Orders End to U.S. Dollar Trade at Russian Seaports
+- Putin reminds the West - Those who Ignore History are Doomed to Repeat It...!
+- Putin responde si el Mundo ya está en una Tercera Guerra Mundial
+- Putin reveals 40 Countries that are Funding ISIS at The G20 Summit
+- Putin revela en la Cumbre del G20 a 40 Países que Están Financiando a ISIS
+- Putin's Attritional Diplomacy Leaves the West Permanently Off Balance
+- Putin says 'The Rich Must Pay' for the Coronavirus
+- Putin's Conundrum
+- Putin segna la Fine del Mondo Unipolare e rende prossimo un Cambiamento delle Elites a Livello Globale
+- Putin signs Law Ratifying Treaty on Eurasian Economic Union
+- Putin's Now Purged the West from the Kremlin
+- Putin, sobre los que quieren "Arrancarle" algo a Rusia - "Deben saber que les Sacaremos los Dientes para..."
+- Putin spiega in Cosa Consiste il Potere della Russia
+- Putin spiegò "Un Anno Fa" ciò che sta accadendo in Europa adesso...!
+- Putin's Valdai speech - The Russian president spoke about the Emerging Multipolar World Order
+- Putin Targets U.S. Monetary System - "Aims to Eliminate the U.S. Dollar and the Euro from Trade"
+- Putin the Architect - Russia's Vision for a post-Western World
+- Putin, the Russian President, says Something about ISIS that Western Media Won't Air
+- Putin Tired of 'Russian Hack Lies' Sends a Message Directly to the American People
+- Putin to Western Elites: Play-Time is Over
+- Putin versus Putin - Vladimir Putin visto por la Derecha
+- Putin vs. Obama - Mundo Real vs. Ilusa Fantasía
+- Putin vs. Obama - Real World vs. Deluded Fantasy
+- "Putin vs. Putin - Vladimir Putin Viewed from the Right" - Book Review
+- Putin y el Giro de Rusia
+- Putin y Rousseff - Personajes del Año para la Prensa de América Latina
+- Putin y Trump están ganando la Partida
+- Putin y Trump hablan Vía Telefónica sobre las Crisis en Siria y Corea del Norte
+- QAnon on How Ending Iran Peace Deal thwarts Deep State Plans for Nuclear False Flag Attack
+- QAnon Reveals Effort to Frame Russia in False Flag Nuclear Attack on U.S. - The Fourth Reich Connection
+- QAnon Revela Intento de Etiquetar a Rusia en Ataque Nuclear de Falsa Bandera a EE.UU.
+- QAnon sobre cómo Finalizando el Acuerdo de Paz con Irán se frustran los Planes del Estado Profundo de...
+- Qué hace de la "Política Macroeconómica de Rusia la Mejor en el Mundo"
+- ¿Qué significa el Acercamiento entre Rusia y China para Occidente?
+- ¿Quién Pierde Más con las Sanciones a Rusia que incluyen la "Opción Petrolera"?
+- ¿Quién se Beneficia con el Acto de Terrorismo en los Oleoductos?
+- Reflections on Putin as a Leader and on the World Situation in Which He Works
+- Report on the Investigation into Russian Interference in the 2016 Presidential Election - The Mueller Report
+- Respuesta al TPP - Rusia Propone un Nuevo Bloque Económico Euroasiático
+- Raíces Espirituales del Conflicto Ruso-Estadounidense
+- Rusia, China y Arabia Saudita ponen en Jaque a la Hegemonía del Dólar
+- Rusia Desarrolla una Internet Propia para Propósitos Militares Aislado de la Red Global
+- Rusia Desbarata Golpe Sigiloso de los Estados Unidos
+- Rusia Destruye el Sueño del 'Gran Israel'
+- Rusia, EE.UU. y Francia Formarán una Amplia Coalición que "Dará un Golpe Definitivo al EI" - Dice Hollande
+- Rusia Emerge - La Caída del Nuevo Orden Mundial
+- Rusia en la Mira
+- Rusia ensaya Tecnologías sin parangón para Aumentar el Rendimiento de los Cultivos
+- Rusia en Una Guerra Invisible
+- "Rusia está Aquí para Seguir siendo Potencia" - El Aviso que envía la Investidura de Putin
+- Rusia está Derrotando a EE.UU. en el 'Juego del Petrolero en Oriente Medio'
+- Rusia Frente a su Destino
+- Rusia - La Oportunidad Perdida
+- Rusia Noquea a Europa...
+- Rusia quiere obligar Estados Unidos a Respetar la 'Carta de la ONU'
+- Rusia reconoce de "Forma Inmediata" la Independencia de las Repúblicas Autoproclamadas de Donetsk y Lugansk
+- Rusia responde a Nuevas Sanciones de EE.UU. desechando el Dólar
+- Rusia reveló cómo los Experimentos Biológico-Militares de EE.UU. prepararon el Covid-19
+- Rusia se ha Preparado durante Años para esta Confrontación que Occidente Subestimó
+- Rusia Ya ha Ganado la Guerra contra Occidente... ¿Quieres saber Porqué?
+- Rusia y China en Equilibrio - El G7 Desquiciado
+- Rusia y China invierten en Infraestructuras - Estados Unidos en cambio gasta en Elementos Militares
+- Rusia y China ya tuvieron Suficiente
+- Rusia y Rusofobia...
+- Russia aiming to realize the 'Greater Eurasia Dream'
+- Russia and China are Containing the U.S. to Reshape the World Order
+- Russia and China Build Up a New Economic Geography
+- Russia and China Declare All-Out War on U.S. Petrodollar - Prepare for Exclusive Trade in Gold
+- Russia and China Have Had Enough - The Road to 2025 Part 2
+- Russia and China Invest in Infrastructure - U.S. instead Spends on Military
+- Russia and China unveil Plan for New World Order
+- Russia, China planning for Joint Nuclear Power Plant on the Moon by 2035
+- Russia-China - The Summit which the Media Ignored
+- Russia, Cina e Arabia Saudita mettono a Repentaglio l'Egemonia del Dollaro
+- Russia Completes Ratification of Eurasian Economic Union, as Putin Signs Law
+- Russia, Cuba and the Truth about Putin the U.S. Media Doesn't Want You to Know
+- Russia e Cina svelano il Piano per il Nuovo Ordine Mondiale
+- Russia has Constructed Massive Underground Shelters in Anticipation of Nuclear War
+- Russia in an Invisible War
+- Russia in the Crosshairs
+- Russia is Defeating the U.S. in the 'Middle East Oil Game'
+- Russia is Key to Asia Future Development
+- Russia joins 'Center for the Fourth Industrial Revolution Network'
+- Russia - L'Opportunità Persa
+- Russia nel Mirino
+- Russian Philosopher Dugin rails against Western Liberalism - Tucker Carlson Interview
+- Russia, OPEC and the New World Order Emerging
+- Russia Overtakes Saudi Arabia as World's Top Crude Producer
+- Russia Preparing for Epic Split with Global Banking Cartel by Dumping U.S. Dollar for Gold
+- Russia Readies Back-up System for Potentially Explosive "Split with International Banking System"
+- Russia Responds to New U.S. Sanctions by Dumping the Dollar
+- Russia's European Journey is Over - Sergey Karaganov
+- Russia Shoots Down U.S. Stealth Coup
+- Russia's Net Public Debt falls to Zero
+- Russia's Political Stability Ensured while the West Sinks
+- Russia's Relationship with Israel and the S-300 Controversy
+- Russia's "Startling" Proposal to Europe - Dump the U.S., Join the Eurasian Economic Union
+- Russia - The Lost Opportunity
+- Russia Through the Looking Glass
+- Russia to launch 'Independent Internet' for BRICS Nations - Report
+- Russia to Replace Wikipedia with the 'Great Russian Encyclopedia'
+- Se Acabaron los Juegos - El Mensaje de Putin a las Élites Occidentales
+- Se Dinamiza el Mundo Multipolar - Modi en Moscú y Orban en Pekín...
+- Señales de que Rusia se está Preparando para Ganar una Guerra Atómica con EE.UU.
+- "Se pondrán a los Pies de su Amo y moverán la Cola suavemente" - Siete Frases de Febrero desde Rusia
+- Siga el Dinero - Cómo Rusia sorteará la Guerra Económica de Occidente
+- Signs that Russia is Preparing to Fight (and Win) a Nuclear War with The United States
+- "Si la Inteligencia Artificial (IA) se Sale de Control podría causar Daños Irreparables" - Putin
+- Situación Explosiva en Europa
+- Starting from Zero at the E.U. - Finlandization 2,0?
+- ¿Superó el Cine a la Realidad? - Putin habla con Oliver Stone de la Amenaza Nuclear de la Guerra Fría
+- ¿También Vladimir Putin declarará Muerto el Capitalismo?
+- Tensions Grow as China, Russia and Iran Lead the Way Towards a New Multipolar World Order
+- The Battle for the 'Global South' - An Ancient Evil rears its Head...
+- The Choice Before Europe about a Conflict with Russia
+- The CIA is directing Sabotage Attacks inside Russia
+- The Eagle, the Bear and the Dragon
+- The Global Majority Speaks - A Billion more People just Joined the BRICS...!
+- The Kremlin's "America-Gate"? - "An Eye for an Eye"
+- The Kremlin's Playbook - Understanding the Russian Influence in Eastern and Central Europe
+- "The Kremlin's Playbook" - Washington Views Russia-EU Cooperation a Threat to U.S. National Security
+- The Left's Descent to Fascism
+- The New International Order takes Hold - What can we Expect from China and the rest of Asia in 2024?
+- The Old World is Over - Key takeaways from Putin's first Major Speech since Russia's military offensive in...
+- The Old World Order was Buried in China - Here's why It Matters
+- The President of the Russian Federation - National Security Strategy of the Russian Federation - Russian version
+- The Putin-Trump Alliance against the European Union
+- The Return of Holy Russia
+- The Russian Phoenix - Hope or Illusion?
+- The Russian Phoenix - Hope or Illusion - An Exopolitical Perspective
+- The Trump-Putin Summit and the New US-Russia Protectorate
+- The Two Superpowers - Who Really Controls the Two Countries?
+- The Unshakeable 'Putin-Erdogan Nexus'
+- The Vladimir Putin Interview - February 2024
+- The World needs fundamentally a 'New Development Model' - Putin
+- Think You Know Vladimir Putin? - Look Again!
+- Todos los Caminos conducen a... Eurasia
+- Totale Pazzia - Cresce l'Ombra di una Possibile Guerra Nucleare
+- Transcripción del Discurso de Vladimir Putin ante la Asamblea General de la ONU 2015
+- Trump, la Russia e il Vero Nemico
+- Trump-Putin Summit brings out Deep State "Shadow Government" Threats
+- Trump, Rusia y el Verdadero Enemigo
+- Trump, Rusia y Novorrusia
+- Trump's America is No Friend - Russia must Stay the Course
+- Trump y Putin sellan su relación en Alaska pero sin un Acuerdo para Ucrania - Reunión "productiva" pero no hay...
+- Una Historia de Humillación...
+- Una Idea Loca y Peligrosa Salta a la Luz Pública
+- Una Inquietante Propuesta del Gobierno Ruso que Habla sobre Nuestro Futuro
+- Un Analista Ruso Revela como Rusia Podría Destruir a los EE.UU. de forma Sorprendente
+- Un escritor Alemán muy popular Predijo que Rusia Heredaría la Tierra - Oswald Spengler
+- Un famoso Scrittore Tedesco Predisse che la Russia avrebbe Ereditato il Mondo - Oswald Spengler
+- USA/Russia/Cina sono la Nuova Tripolarità del Secolo 21
+- U.S.-Backed Opposition Leader Gunned Down in Moscow
+- U.S. Opposes Russia's "Theft of Crimea" but Supports Israel's "Theft of Palestine"
+- U.S. Routinely Meddles in Russian and Other Nations' Elections - Says Putin
+- ¿Usted Cree Conocer a Vladimir Putin? ¡Mire Otra Vez...!
+- U.S. vs. Russia in Syria - A Battle to Control the Truth
+- Vivere con la Russia - Qual è esattamente l'Alternativa...?
+- Vladimir Putin - ¿Agente del Despertar?
+- Vladimir Putin - Agent of the Awakening?
+- Vladímir Putin asume la Presidencia de Rusia en 2024
+- Vladimir Putin avverte sul Dominio "Big Tech" degli USA - Davos
+- Vladimir Putin - Directamente de la Boca de la Verdad
+- Vladimir Putin en Guerra contra los "Straussianos"
+- Vladimir Putin isn't a Supervillain - Foreign Policy Magazine
+- Vladimir Putin - La Restauración de la Fe en la Humanidad
+- Vladimir Putin no es un Supervillano - Revista Foreign Policy
+- Vladimir Putin non è una Supercanaglia - Rivista Foreign Policy
+- Vladimir Putin Says the U.S. Elections are Rigged - It's Not a Democracy
+- Vladimir Putin's Interview to American TV channel NBC
+- Vladimir Putin - Straight from the Horse's Mouth
+- Vladimir Putin warns of US 'Big Tech' Dominance - Davos
+- Vladimir V. Putin and Eastern Wisdom
+- Vladimir V. Putin y la Sabiduría de Oriente
+- Vulnerabilidades de Rusia ante las Sanciones de Estados Unidos, la Unión Europea y la Rapiña Militar de...
+- War in the Middle East threatens Central Asia
+- Washington Fears Losing Greece to Moscow
+- Washington Post just Admitted 'Russian Propaganda' was Actually U.S. Mainstream Media and Was 'Factual'
+- Washington se Niega a escuchar a Rusia y a China
+- Watch Putin's full Censored speech to the West warning of 'Corrupt Globalist Elites' pushing for World War
+- WEF views Trump and Putin as 'Major Threat' to Globalist Agenda - Davos Insider Reveals
+- Welcome to the 'Indo-Russia Maritime Silk Road'
+- What Does Putin Really Want?
+- What if Putin is Telling the Truth?
+- What to Make of China's Rejection of the Dollar? - Washington is Destroying American Power
+- What You Need to Know About Russia, Putin, and Gold
+- Why is 'The West' so Weak and Russia so Strong?
+- Why the West Cannot Stomach Russians
+- Why the West Hates Putin - What You're Not being Told...
+- Will Russian 'Nuclear War Doctrine' be a Turning Point for Peace?
+- Will Vladimir Putin declare Capitalism Dead Too?
+- "Wipe the Soviet Union Off the Map" - U.S. Nuclear Attack against USSR Planned During World War II
+- Xi Jinping, Putin y el Colapso de EE.UU. como Imperio
+- You Have Been Fooled into Believing WWIII is Real - Here is the Proof
+- ¿Y Si Putin Está Diciendo la Verdad?
+- 34 Years Ago a KGB Defector chillingly Predicted Modern USA
+- "800 Bases en 70 Países" - Caracas ve "Cínica" la reacción de EE.UU. por su Cooperación con Moscú
+- 1,300-Year-Old Fortress - Ruins on Siberian Lake Mystifies Experts
+- Acerca de las Raíces Euroasiáticas de las Tradiciones Espirituales Indias - Shivaísmo de Kashmir y...
+- A Chihuahua that thinks it's a Lion - The Decline of Britain
+- A History of the KGB and its Legendary Methods
+- Alexander Dugin invoca "Cambi di Regime" in Francia, Regno Unito e Germania
+- Alien Partners tell Putin, "Don't Worry, We've Got Your Back" - Secret Space War - Part XIII
+- America is on a "Hot War Footing" - House Legislation Paves the Way for War with Russia?
+- América Latina gira a un Mundo Multipolar - Mientras la UE sigue a la "Potencia en Decadencia, EE.UU."
+- America's Imperial Empire - The Sun Never Sets but the Mote remains in the Emperor's Eye
+- Análisis Inquietante - ¿Porque los Países Aumentan sus Reservas Estratégicas de Petróleo?
+- Analista Expone el Posible Futuro de las Relaciones entre EE.UU., China y Rusia
+- Anatomy of False-Flag Events
+- ¿A qué se debe la Decisión de Macron de Crear un Ejército Europeo?
+- Arkaim - Antigua Ciudad Rusa y el Origen Ártico de la Civilización
+- Arkaim - Protociudad del Sol
+- Arkaim - Russia's Ancient City and the Arctic Origin of Civilization
+- A Secret Babylonian Cult - The Jesuits - Independent Scientist Leuren Moret
+- Así es como la Aristocracia de EE.UU. Extiende su Control Mundial - La Verdad sobre Obama
+- Así es Como Luce la Tercera Guerra Mundial
+- Así Manipulan a la Población de EE.UU. para que Odie a Rusia
+- Back to The USSR - With a Vengeance!
+- "Berlín ha Decidido Seguir los Pasos de la Administración Saliente de EE.UU." - María Zajárova
+- Biden vs. Trump has Profound Implications for the World Order
+- Bilderberg está Enfadado con el Mundo - ¿Nos espera 'La Guillotina'?
+- 'Breaking Russia has Become Objective for U.S.' - Kissinger
+- Brilliant! - How Russians Crushed Moscow's 'Vaccine Passports' in Just 3 Weeks
+- Britain's Inexorable Slide into Fascism - The Denial of the Right to an Opinion
+- Building Bridges of Peace Instead of Fear - Citizen Diplomacy with Russia
+- Can Russia's Garden Plot Model Feed the World, Organically?
+- Cazas Rusos Destruyen Base Militar Secreta de EE.UU. y el Reino Unido en Siria
+- China No fue el 'Villano' Original en un libro 'Prediciendo' el Brote del Coronavirus - Fue 'Rusia'...
+- China Warns the U.S. to Stop its Ukrainian Proxy War Against Russia
+- China was Not the Original Villain in book 'Predicting' Coronavirus Outbreak - It was 'Russia'...
+- China y Rusia, junto con los BRICS, llevarán a EE.UU. a la Quiebra
+- Colapso del Imperio - La tecnología de Misiles Rusa deja Obsoleta a la Marina Estadounidense de un Billón...
+- Come i Rockefeller 'Trumpizzarono' il Mondo
+- Cómo Encaja Teherán en la Estrategia Rusia-China
+- Cómo la "Escasez de Alimentos" y el Colapso Económico protegen el Status Quo
+- ¿Cómo Llegaron a ese Punto? - Francia, Alemania y Reino Unido podrían estar al borde del Colapso Económico
+- Cómo los Rockefellers 'Trumpearon' al Mundo
+- Cómo son Llevadas a Cabo hoy en día las Operaciones de Falsa Bandera
+- Conozca al Hombre Que Financia ISIS - Bilal Erdogan el Hijo del Presidente de Turquía
+- Coronavirus y Geopolítica
+- Crisi Globale del Cibo - Fingere ha delle Conseguenze
+- Cuando Stalin Propuso la Reunificación de Alemania
+- Dangerous Crossroads - "This is Not a New Cold War... Nobody Will Win World War III" - M.Chossuodovsky
+- Declassified Files Reveal Gov't Plot to Carry Out Soviet False Flag Attacks in U.S. to Start War
+- De Militar a Militar - Rebelión de los Generales del Estado Mayor Conjunto de EE.UU.
+- "Demonizar a Putin" - Una Excusa Para un Conflicto con Rusia
+- Diplomacy by Disembowelment - Old Europe's Self-Destructive DC tour...
+- Donald Trump desvincula a Estados Unidos de la Unión Europea
+- Do We Face a Global Food Disaster?
+- Ecco come Appare la Terza Guerra Mondiale
+- Edward Snowden Departs Hong Kong on Flight to Moscow
+- ¿EE.UU. perdió India? - "Cisne Negro" del Nuevo Orden Mundial que aceleró el grupo de Shangai
+- EE.UU. y Rusia podrían Entregar los Ricos Altos del Golán a Siria - Duro Golpe a Israel
+- El Comodín de Putin en Siria
+- El Dólar es una Herramienta para Castigar a los Países del Tercer Mundo
+- El Fin del Capitalismo Ha Comenzado
+- El Futuro es Asiático... y Rusia es 80% Asiática
+- El Mayor Truco de Todos
+- El Mega Año Electoral 2024 en el que la Mitad de la Población Mundial irá a las Urnas
+- El Misterio de Kitezh - La Atlántida Perdida de Rusia
+- El Nuevo Mundo Surge ante Nosotros
+- "El Títere de Putin" (Trump) impulsa Escalada de Misiles Nucleares en contra de Putin
+- El "Trío Magnitsky" impulsa la Guerra contra Rusia - Insisten en Nuevas Sanciones "Aplastantes"
+- "Está surgiendo una Nueva Astronomía" - ¿Qué buscan los Científicos bajo el hielo del Lago Baikal?
+- Estos son los Países Percibidos como con Mejor Influencia en el Mundo
+- E.U. Leaders went to Washington Begging to be Cucked
+- E.U. Parliament Moves to Counter Russian Media 'Propaganda' - Claims RT News 'Distorts Truth'
+- Europe Embraces China's 'Belt and Road Initiative'
+- Europe's 'Energy Armageddon' from Berlin and Brussels, Not Moscow
+- Evo Morales le quita la Máscara a EE.UU. en América Latina
+- Fenomenale! Come i Russi hanno ridotto in frantumi "i Passaporti Vaccinali" di Mosca in sole 3 Settimane
+- Financial Warfare Against Russia, Multibillion Dollar Bonanza for Wall Street - The Malaysian Airlines MH17...
+- G7 - An Obsolete, Useless Talking Shop
+- G7 en Biarritz - Sólo un Circo Mediático
+- Gazprom Prevé Cerrar el Tránsito de Gas Ruso a Europa a través de Ucrania
+- George Soros - A Psychopath's Psychopath
+- George Soros es un Verdadero Reptiliano - Dice Jefe de una Agencia Federal de Rusia
+- Gli Stati Uniti sono la Maggiore Causa della Instabilità Globale - Ma Pretendono di essere la Soluzione
+- Global Food Crisis - Pretending has Consequences
+- Guerra No Convencional entre el Este y el Oeste - El Control de los Medios de Comunicación
+- Guerre - La Storia Cancellata - Pangea Grandangolo
+- Guía para Desenmascarar a las Falsas 'Izquierdas'
+- Hace 34 años un Desertor de la KGB Predijo un Escalofriante Moderno Estados Unidos
+- Half of the West is Doomed - Here's Why...
+- Hillary acusada de Vender Uranio a Rusia y Enriquecerse a Costa de Debilitar a EE.UU.
+- How Americas Aristocracy Extends Its Global Control - The Truth about Obama
+- How False Flag Operations are Carried Out Today
+- How the Rockefellers "Trumped" the World
+- How to Destroy Russia - The Rand Corporation
+- In the Foreign Policy Shadow of Dr. Brzezinski - Obama, Islamic Fundamentalism and Russia
+- Is Europe Too Brainwashed to Normalize Relations with Russia?
+- Is the EU's United Front on Russia Finally Starting to Crack?
+- Italia a las Órdenes de Estados Unidos contra Rusia
+- Jázaros - La Treceava Tribu - Main File
+- Journey to Transnistria - A Country that Doesn't Officially Exist
+- Khazar - The Thirteenth Tribe - Main File
+- Klaus Schwab's 'World Economic Forum' cuts off "All Relations" with Russia, scrubs Putin from WEF Website
+- La Casa Blanca 'acusa' a Trump de Mantener Vínculos Financieros con Rusia y RT
+- La Cina non è stato 'il Cattivo' all'origine nel libro 'Che prediceva' l'Epidemia di Coronavirus - E' stata la 'Russia'
+- La Crisis de Siria en Manos de Auténticos Locos
+- La Cultura de la Muerte se ha Apoderado de Europa
+- La Dinastía Rurikida - Los Vikingos Varegos que Fundaron la Rus de Kiev
+- La Estrategia de Trump contra Rusia y China
+- La Gran Bretagna Scivola Inesorabilmente verso il Fascismo - La Negazione del Diritto di Opinione
+- La Historia Oculta Sobre la Interminable Guerra Fría de Estadounidenses y Británicos con Rusia
+- La Impudicia de la Indulgencia
+- La Nueva Cortina de Hierro - "La Amenaza Rusa"
+- La Nuova Alleanza in Medio Oriente scuote i Poteri Mondiali
+- La Nuova Cortina di Ferro - "La Minaccia Russa"
+- La Organización de Cooperación de Shanghái Encabeza la Gran Transformación de Eurasia
+- La Política de lo Obvio - ¡Vaya!, porqué el Mundo de Habla Inglesa es la Nueva Unión Soviética
+- La "República" se agotó Globalmente - ¿Podría surgir un Giro Monárquico en un Mundo Post-Liberal?
+- La Revista de los Rothschild y el Pulpo-Putin - ¿Proyección o Envidia?
+- La Rivista dei Rothschild e l'Octoputin - Proiezione o Invidia?
+- Las Grandes Reservas de Gas en el Mundo
+- Las propuestas de Putin en la Cumbre de los BRICS - Inversiones, IA, Bolsa Conjunta
+- La UE considera un Nuevo Enfoque para Hacer Frente a la Desinformación en Línea
+- La UE se Prepara para un "Invierno sin Gas Ruso"
+- La UE si Prepara a un "Inverno senza Gas Russo"
+- La Verdad sobre la "Influencia Rusa" es simplemente que Rusia dice la Verdad
+- La WADA es un Instrumento de Poder Político
+- Le Grandi Riserve di Gas nel Mondo
+- L'Europa si dirige verso la Discarica della Storia nel mezzo della Tempesta?
+- ¿Liderará Rusia el Camino del Rechazo de los OGM? - Viceprimer Ministro dice que los OGM...
+- Líderes Europeos "Se Rebelan" Contra las Sanciones Antirrusas de EE.UU.
+- L'Indecenza dell'Indulgenza
+- L'Irreveribile Successo delle Sanzioni UE
+- "Lo Necesitamos" - Firman petición para que Putin Intervenga en México y Acabe con su "Mal Gobierno"
+- Los Neoconservadores quieren la Guerra con China
+- Malaysian Airlines MH17 - Who Stands to Gain?
+- 'Malos' Augurios para la Economía Global 2016 - 100 Dólares el Barril de Crudo, el Dólar Cae, la Pobreza...
+- Medvédev da sus 10 Predicciones para el Nuevo Año 2023 - Musk las Califica de "Hilo Épico"
+- Meet the Man Who Funds ISIS - Bilal Erdogan, the Son of Turkey's President
+- Merkel Traccia la Linea contro Trump
+- Merkel Traza la Línea contra Trump
+- Military to Military - On US Intelligence Sharing in the Syrian War
+- Misteriosi Megaliti in Russia possono essere Prova di una "Antica Civiltà Perduta"
+- Mysterious Megaliths of Russia may offer Evidence of an 'Ancient Advanced Lost Civilization'
+- NATOstan Robots versus the Heavenly Horses of Multipolarity
+- Navalny - Trayectoria Política de un Hombre de Paja
+- Newly Found Megalithic Ruins in Russia Contain the Largest Blocks of Stone Ever Discovered
+- Nonsense at the G7 Summit - Russia, Greece and Convenient Threats
+- "No Podemos Seguir" Luchando contra Rusia - Junker Tira la Toalla
+- Nueva Alianza de Oriente Medio sacude a los Poderes Mundiales
+- Obama Rechaza 'Cooperación' con Putin sobre Siria - La Guerra de Washington contra el Terrorismo...
+- Obama Rejects "Cooperation" with Putin on Syria - Washington's War on Terror is A Fabrication, Zero...
+- Obama Rifiuta di "Cooperare" con Putin per la Siria - La Guerra di Washington contro il Terrorismo è...
+- Obama Says He Is 'Improving' the World
+- Obama se Enfurruña con Putin
+- Occidente se ha Dividido en Tres Partes
+- ONU - Nacimiento del Mundo Post-Occidental
+- Overextending and Unbalancing Russia - Assessing the Impact of Cost-Imposing Options
+- Países Latinoamericanos hacen "Entreguismo Desesperado" de sus Recursos Naturales a China y Rusia
+- Perché Conosciate lUomo che Finanzia ISIS Bilal Edogan, il Figlio del Presidente di Turchia
+- Porqué la Tercera Guerra Mundial se Vislumbra en el Horizonte
+- ¿Porqué los Rusos Prohibieron la Venta de Hornos Microondas que se Encuentran en 90% de Hogares...
+- Portavoce della Cancelleria Russa spiega come l'USAID costruiva una Falsa Realtà con Mezzi Indubbi
+- Primeras Interpretaciones al Ataque de EE.UU. a Siria... - ¿Todo es Puro Teatro?
+- Putin podría Destruir a Hillary Clinton este Octubre (2016)
+- Putin potrebbe Distruggere Hillary Clinton questo Ottobre (2016)
+- Putin reta a Biden a un 'Concurso de Subir Escaleras'
+- Putin's Wild Card in Syria
+- Putin y Medvedev de Rusia mencionan a 'Los Hombres de Negro' - ¿Quiénes son estas 'Personas'?
+- Quantum Leaping from Tula to the World? - Continent-hopping Monoliths are result of Russian Teleportation Test
+- ¿Qué Interés hay Detrás del Boicot al Mundial de Futbol Rusia 2018?
+- Rothschild Hereda una Patente de Semiconductores al Desaparecer el MH370
+- Ruinas Megalíticas Recién Encontradas en Rusia Contienen los Bloques de Piedra más Grandes Jamás...
+- Rusia Prohibió el Uso de los Hornos de Microondas - 1976-1992
+- Rusia provee la Tecnología de Espionaje necesaria a EE.UU... ¡para que Espíe a la propia Rusia!
+- Rusia se Prepara para Posible Catástrofe Sísmica - Advierte que América está en Peor Peligro
+- Rusia sobre el Envío de Tu-160 a Venezuela
+- Rusia Transporta el "Arca de Gabriel" que estaba Debajo de la Gran Mezquita de La Meca a la Antártida
+- Rusia y China Liderarán el Regreso a las Divisas Respaldadas por el Oro
+- Russia Banned the Use of Microwave Ovens - 1976-1992
+- Russia Begins Transport of Saudi Arabia's Mysterious "Ark of Gabriel" to Antarctica
+- Russia Blamed for Italian Election Outcome
+- Russian Researchers Expose Breakthrough U.S. Spying Program
+- Russia Shoves Antitrust Probe into Microsoft after Kaspersky Gripes about Windows-10
+- Russia's Putin and Medvedev both mention "The Men in Black" - Who are these "People"?
+- Russia to Pass Fake News Law that would Fine Social Networks $793,000
+- "Sanctions" - Economic Aggression-Revisited
+- Saudi Arabia Declares Oil War on U.S. Fracking - Hits Railroads, Tank-Car Makers, Canada, Russia and...
+- ¿Se dirige Europa hacia el Basurero de la Historia en Medio de la Tormenta?
+- 'Shocking' 2016 Predictions - $100 Crude, Strong Ruble
+- Siete Poderes y un Destino - Convivir con el Éxito de la Civilización China
+- Single shot of 'Sputnik V' effective against Covid Hospitalization and Deaths among Elderly - The Lancet Study
+- Siria - Conversaciones de Paz y un Imperio Volviéndose Loco
+- Snowden, Siria, Obama y Mas... - Versión Completa de La Entrevista a Vladimir Putin
+- Sobre el 'Accidente' del coche de Putin - ¡El Ex-Director de la CIA 'lo Insinuó' semanas Antes!
+- Sobre la Invasión Inmigratoria en Europa
+- Socios Alienígenas le dicen a Putin, "No Te Preocupes, Te Cubriremos las Espaldas" - Guerra Secreta...
+- Some Reasons Why We do Not Need a President
+- Something Big is Brewing - Putin and Trump's Alaska Summit paves the way for US-Russia UAPs' talks
+- Syria - Peace Talks and an Empire Running Amok
+- The BRICS - Main File
+- The End of Capitalism has Begun
+- The EU Considers a New Approach to Confront Disinformation Online
+- The 'Fake News' and 'Russian Propaganda' Psyops - Censorship and Information Control in the NWO
+- The G20 Fractures - Tensions in Hamburg
+- The Grand Irony of RussiaGate - The U.S. Becomes more like the USSR every Day
+- The New Iron Curtain - "The Russian Menace"
+- The Politics of the Obvious - (Why) the English-Speaking World is the New Soviet Union
+- The Rothschild Organ and Octoputin - Projection or Envy?
+- The Times of Tyranny
+- The U.S. Exploits its Allies...
+- The U.S. is the Biggest Cause of Global Instability - But it Pretends to be the Solution
+- The Weaponization of Information - The Need for Cognitive Security
+- This is what World War III Looks Like
+- This Outlaw Power - America's Intent is to Dominate China, Russia and the World
+- Trump No Incluye a Rusia en la Lista de Prioridades de Defensa de EE.UU.
+- Trump nombra otro Escándalo más grande en la Historia de EE.UU. - El bulo de Rusia, Rusia, Rusia en 2016
+- Trump quiere que los Europeos paguen las Facturas
+- Trump says Head of U.S. Intel admitted to him Russia Report is 'Made Up, Phony Facts'
+- Trump vuole che gli Europei Paghino i Conti
+- Tulsi Gabbard releases 'Overwhelming Evidence' of Obama coup plot against Trump in 2016 Presidential Elections
+- Ukraine's Top Spy Chief says Navalny died from Blood Clot - Rejects 'Murder' Narrative
+- Una Presentadora de Fox News 'Destroza' a Obama en Vivo...
+- Una Singola iniezione di "Sputnik V" efficace contro lOspedalizzazione e le Morti degli Anziani da Covid
+- Un G7 sin China es solo un Grupo de Consulta con "Buenas Intenciones"
+- United Nations approves 'New Internet Convention' backed by Russia and China
+- ¿Ustedes Quieren Ser la Ramera del Tío Sam? - ¡Paguen el Precio!
+- 'Venezuela y Rusia en la Mira' - RT y Telesur Estrenan un Programa Conjunto
+- Venta Masiva - Rusia, China y Arabia Saudí se Deshacen de los Bonos Estadounidenses
+- Visión Remota - "Rusia recibió alguna vez Inteligencia Cósmica de Extraterrestres"
+- Vocera de la Cancillería Rusa explica cómo la USAID construía una Realidad Falsa con Medios Controlados
+- War and Petroleum Reserves
+- Washington Blows Itself Up With its Own Bomb
+- "We Can't Go On" Fighting Russia - Junker Throws-In the Towel
+- West's Moral Bankruptcy Exposed
+- What Nobody Told You about Julian Assange
+- White House 'Hysterical' over Putin interview - Moscow
+- Who is Behind the Oil War, and How Low Will the Price of Crude Go in 2015?
+- Who's Trying to Change Russia?
+- Why did Russians Ban Microwave Appliances Found in 90% of American Homes
+- Why Do We Love Violence? - The Tainted Glory of the Gladiator
+- World could face Disastrous Financial Crisis in 2023 same scale as Devastating '2008-2009 Economic Crash'
+- You want to Be Uncle Sam's Bitch? - Pay the Price!
+- You will be Tagged and You will Love it...
+- Zbigniew Brzezinski Consejero del Imperio - La Monstruosa Estrategia para Destruir Rusia
+- Berlin Alarmed by Aggressive NATO Stance on Ukraine - Breedlove's Bellicosity
+- Cinco Razones por las la OTAN No Puede Vencer a Rusia
+- Crece la Tensión - Rusia es Capaz de Ocupar el Báltico en Dos Días... y la OTAN Podría Responder con...
+- Cumbre de la OTAN 2024 en Washington
+- El Conflicto Ucraniano es una Guerra por Delegación de EE.UU. y la OTAN - Rusia está dispuesta a Ganar...
+- Gran Error Político - Rusia había Alertado a la OTAN ya en los Años 2000
+- Grecia se Convierte en el Caballo de Troya de Rusia dentro de la OTAN
+- History of US-NATO Military Campaigns - 1991-2023
+- Intel Agent Reveals how NATO Planned to Tear Russia Apart
+- Is Neutering NATO the next Russia-China Project?
+- It's the 'End of the World As We Know It' - The American-NATO rush toward Nuclear War with Russia
+- La Globalización de la OTAN como Proyecto de Contención Euroasiática
+- La Grecia Diventa il Cavallo di Troia della Russia all'Interno della NATO
+- La Guerra más Estúpida y Peligrosa del Mundo
+- La OTAN le Declara la Guerra de la Información a Rusia
+- La OTAN Pretende Prohibirles a Rusia y China que Se Desarrollen
+- Las Tácticas de Putin en Ucrania Confunden a Occidente y Preocupan a la OTAN
+- La Ultima Maniobra de Putin para Destruir a La Unión Europea y a La OTAN
+- Los Países de la OTAN dan muestras de Descomposición Interna
+- Los Preparativos de la OTAN para una Guerra Global caminan a Paso Acelerado
+- L'Ultima Manovra di Putin per Distruggere l'Unione Europea e la NATO
+- Macron tells NATO Russia Must Come in from the Cold War
+- Obama is a Liar - Fake NATO Evidence - OSCE Confirms that No Russian Troops, No Tanks, have...
+- ¿OTAN Global o Paz Global...?
+- Perché gli Stati Uniti, la NATO e i Mezzi di Comunicazioni cercano di "Demonizzare" Putin e la Russia?
+- ¿Por qué EE.UU., la OTAN y los Medios de Comunicación buscan "Demonizar" a Putin y a Rusia?
+- Putin's Full Speech - BRICS, NATO Expansion and Ukraine Peace Talk Conditions
+- Putin's Ultimate Move to Crush the EU and NATO
+- ¿Qué le espera al Mundo si EE.UU. decide Retirarse de la OTAN? - "La Primera Víctima será Ucrania"
+- Rusia es el 'Agresor Táctico' que se defiende del 'Agresor Estratégico' que es la OTAN
+- Rusia y la OTAN 'Tocan Fondo' en sus Relaciones
+- "¿Será el Momento para EE.UU. de Salir de la OTAN?"
+- Shift in Military Alliances - America Declares War on Turkey? #NATOExit?
+- Stoltenberg resume los Puntos Clave de la Cumbre de la OTAN - Londres 2019
+- Stoltenberg riassume i Punti Chiave del Vertice della NATO - Londra 2019
+- Un "Muerto Viviente" en Busca de Sangre que deambula por Europa y que se llama OTAN
+- Why is Slovakia, a Proud EU and NATO Member, Drifting toward Russia?
+- Biden's Nord Stream Attack back fires as Putin demands UN Meeting - This is War...!
+- Cómo Estados Unidos eliminó el Oleoducto Nord Stream
+- Dinamarca Autoriza la Construcción deL Nord Stream 2 en sus Aguas Territoriales
+- El Gobierno Británico está detrás del Ataque Terrorista contra el Nord Stream
+- El Inesperado Aliado Europeo de Rusia en la Construcción del "Nord Stream 2"
+- El 'Nord Stream 2' ofrece a Alemania una Cita con el Destino
+- How America Took Out the Nord Stream Pipeline
+- La Guerra de Terror de una Superpotencia Canalla - ¿Cui Bono?
+- L'Attacco al Nord Stream di Biden si riaccende mentre Putin chiede un Incontro della ONU - Questa è Guerra...!
+- 'Se trata de un Acto de Terrorismo Internacional' - Putin sobre las Explosiones en el Nord Stream
+- GMO Crops Totally Banned in Russia
+- La Russia Rimpiazza gli 'Alimenti Frankenstein' dell'Occidente
+- Rusia Reemplaza a los 'Alimentos Frankenstein' de Occidente
+- Russia Bans All Genetic Modified Corn Imports - EU May Also Ban Monsanto GMO in Wake of Shocking...
+- Russia has Decided to BAN the Use of Genetically Modified Ingredients in All Food Production
+- Russian Government to Ban all GMO Food Products to Protect Citizens
+- Russian Scientists Warn of Genetically Modified Fast Food Link to Pandemic Flu
+- Russia Reports Over 2 Million Dead in U.S. as Mysterious Die-Off Accelerates - Genetically Modified...
+- The Russians Prove Small Scale Organic CAN Feed The World
+- Total GMO Ban to Be Considered by Russia Within Weeks
+- Why Is Russia Banning GMOs While the US Keeps Approving Them?
+- Will Russia Lead the Way in GMO-Refusal? - Russian Deputy Prime Minister says GMOs Will Not Be...
+- "Acabaré con la horrible Guerra de Rusia y Ucrania creada por la Administración actual" - Trump
+- Además de la Guerra, la Unión Europea financia la Corrupción en Ucrania
+- Alemania Advierte de una Hambruna Global
+- A Message from the Galactic Federation of Worlds on the Israel-Iran Conflict
+- A Panicked Empire tries to make Russia an "Offer it can't Refuse"
+- Approfondiamo - Perché l'Alternativa è Peggiore...
+- A Transition from Madness to Reason...
+- Biden provoca la Tercera Guerra Mundial al permitir que Ucrania ataque a Rusia con Misiles ATACMS
+- Buried Ukraine Space Ark in Kherson activates so Russia takes Over
+- Carta al Pueblo Estadounidense Acerca de Ucrania
+- Chabad Seeks to Re-Build Khazaria in Ukraine
+- Chi ha davvero Sabotato la Pace in Ucraina? - La Verità dell'ex Osservatore OSCE
+- China insta a EE.UU. a revelar Detalles sobre Laboratorios Biológicos en Ucrania - Los virus que Almacenan...
+- 'CIA Fingerprints' All Over Kiev Massacre - Oliver Stone
+- Collapse of Ukraine Government - Prime Minister Yatsenyuk Resigns amidst Pressures Exerted by the IMF
+- Cómo es el 'Agujero Negro' Financiero Mundial creado por Occidente en torno a Ucrania
+- Cómo Occidente está Rompiendo Ucrania
+- Cómo Parar la Marcha hacia la Guerra
+- Cortando la Niebla que Enmascara 'Una nueva página en el Arte de la Guerra' - Ucrania
+- ¿Cuál es el 'rejuego' entre Estados Unidos y Alemania?
+- Declaración de Mons. Carlo Maria Viganò sobre la 'Crisis Rusia-Ucrania'
+- De Comediante a Presidente - ¿Cambia algo la Situación Política en Ucrania con la Elección de V. Zelensky?
+- Desde tropas Europeas a el Ingreso en la OTAN - Las Garantías que Zelenski espera de los 'Aliados'
+- Digging Deeper - Because the Alternative is Worse...
+- Discurso Íntegro del Anuncio de Putin de la Operación Militar en Ucrania
+- Documentos olvidados por el Equipo de Trump en una Fotocopiadora confirman que la Cumbre con Putin...
+- Dossier Volodymyr Zelensky - Un Attore sul Grande Palcoscenico Mondiale
+- EE.UU. desarrolla un Arma Biológica de Ingeniería Genética 'Universal'
+- EE.UU. "Entrenó y Financió" a los Terroristas del 11-S - ¿Una Lección para Ucrania?
+- EE.UU. trabaja en un Arma Biológica 'Universal' Modificada Genéticamente - Investigación Parlamentaria Rusa
+- "EE.UU. está Perdiendo su Hegemonía y Lucharán de la Manera más Sucia para Evitarlo"
+- EE.UU. intimida a los Países de América Latina por su Negativa a Unirse a la Campaña Antirrusa
+- EE.UU. No Cree que el Conflicto de Ucrania acabe en una Guerra Nuclear
+- EE.UU. pierde Poder en la OEA - México, Brasil y Argentina se Rebelan por el Conflicto en Ucrania
+- EE.UU. se Prepara para una Ofensiva Terrestre en Ucrania
+- El año 2024 - Gaza, Ucrania y Eurasia en la Crisis del Declive Occidental
+- El Comediante Presidente de Ucrania en Grandes Aprietos - Volodomyr Zelensky
+- El Expediente Volodímir Zelenski - Un Presidente Títere Expuesto
+- El Final de Ucrania - ¿Qué hará y qué dirá Europa...?
+- El Golpe de Estado ha Comenzado - El Imperio Contraataca en Todas Partes
+- El Juicio Político contra Trump y el 'Factor Ucrania'
+- El Nuevo Orden Mundial que nos preparan con el 'Pretexto de la Guerra en Ucrania'
+- El Peligroso Nacionalismo Ucraniano
+- El Predecible Fin de Ucrania
+- El Presidente Putin no trató de provocar la Tercera Guerra Mundial - Sólo la Evitó
+- El Trabajo Sucio siempre consiste en Provocar y Escalar la Guerra
+- En esta Guerra solo hay Agresores
+- Envío de Armas a Ucrania - El Mejor Negocio Militar de la Historia para Estados Unidos
+- Es la Guerra - La verdadera Moledora de Carne empieza Ahora
+- ¿Es Real la Posibilidad de una Guerra Mundial?
+- Estrategia y Táctica de la Guerra de Ucrania
+- ¿Es Ucrania un 'Estado Clave' en el Nuevo Orden Mundial?
+- Europa y EE.UU. estarían "Al Borde de la Desvinculación" por el Conflicto Ucraniano
+- Excavando mas Profundo - Porque la Alternativa es Peor...
+- Fase 2 del Gran Reset: Guerra
+- Fine dell'Ucraina - Cosa farà e dirà l'Europa...?
+- Flight MH17 - "The Plane Was In the Wrong Place at the Wrong Time" - Says Vladislav Voloshin
+- General to General - A Potential Peace is being Negotiated in Ukraine by Military Leaders
+- George Soros' Giant Globalist Footprint in Ukraine's Turmoil
+- Gli Occidentali e il Conflitto in Ucraina
+- Gli USA non credono che la Guerra di Ucraina finisca in una Guerra Nucleare
+- Gold Standard - Ukraine and Inflation
+- Guerra ai Tempi Nostri? - Abbiamo bisogno degli 'Uomini in Camice Bianco'...
+- Guerra en Ucrania para mantener a la Unión Europea Bajo Tutela
+- Guerra Rusia-Ucrania - La Verdad se Encuentra a 180 grados de Distancia
+- Has America Lost its Mind or will Trump Get it Right this time...?
+- Hunter Biden 'Bio Firm' partnered with Ukrainian Researchers 'Isolating Deadly Pathogens' using Funds from...
+- ICC to Probe War Crimes in Ukraine - Eurojust
+- Il Pericoloso Nazionalismo Ucraino
+- Imagen de Pareja portando las Banderas de Rusia y Ucrania se hace Viral
+- IMF Plan to Loot Ukraine Revealed
+- "Imperio del Caos" - Europa prefiere Gastar Millones en Ucrania que Resolver sus Problemas
+- Indicios de Guerra en el Este de Europa
+- In questa Guerra ci sono solo Aggressori
+- Investigadores aseguran que "Objetos Extraños" observan los enfrentamientos entre Ucrania y Rusia
+- Israel's occupation of Syria is Security,' Russia's moves in Ukraine are Aggression' - US Hypocrisy reaches a...
+- JFK Exposes the Truth about the Ukraine War
+- JFK ha esposto la Verità sulla Guerra di Ucraina
+- Kiev tiene una Cantidad Excesiva de Ovnis en el Cielo - Informe Gubernamental
+- Kissinger and the War in Ukraine - The Messenger and the Master
+- Kissinger nombra la Única Vía por la que podría Resolverse el Conflicto en torno a Ucrania
+- Kissinger Speaks - Ukraine must give Russia Territory
+- La "Bomba Financiera" de las Sanciones que EE.UU. preparó para Rusia tuvo un Efecto Contrario
+- La "Bomba Finanziaria" delle Sanzioni che gli Stati Uniti prepararono per la Russia ha avuto un Effetto Contrario
+- "La CIA - 70 Años en Ucrania" - Los Hechos, con Douglas Valentine
+- La Derrota de Ucrania no significa el Fin de la Guerra
+- La Derrota de Ucrania redefinió la "Bélica Agenda Verde" y la salida de Trump del Acuerdo de París
+- La Derrota en Ucrania ha convertido a Europa en un Campamento Militar
+- La Difícil Encrucijada de Petro y el Comercio Internacional de Armas a Ucrania
+- La Disfatta in Ucraina ha trasformato l'Europa in un Accampamento Militare
+- La Economía de Guerra ha Fortalecido a Rusia y Hundido a las Potencias Occidentales
+- La Empresa de Biden financió los Atentados Terroristas en Ucrania
+- La "Estrategia Geopolítica" de Putin que Obligará a Occidente a Dialogar
+- La Estrategia tras las Sombras - Ucrania, Siria y los Conflictos del Mundo Multipolar
+- La Fantasía del Mundo 'Libre' - ¿Están realmente Unidas las Democracias contra Rusia?
+- La Guerra de Ucrania - ¿Terminará alguna Vez?
+- La Guerra era la Parte Facile - Aspettate solo di arrivare alla Politica
+- La Guerra fue la Parte Fácil - Sólo esperen hasta que lleguemos a la Política
+- La Guerra in Ucraina - Finirà Mai?
+- La Histeria Nuclear en Occidente tras el discurso de Putin - ¿Quién realmente Amenaza a Quién?
+- La Increíble Sordera de Washington y Londres - Ucrania
+- La Invasión de Rusia a Ucrania ¿hace parte de 'El Plan'...?
+- La Mentira - La Principal Arma de Guerra en Ucrania
+- La Nueva Geopolítica Mundial y la U.E. - La Historia está Discurriendo ante Nuestros Ojos
+- La Nueva UE es aún Más Demente que la Antigua UE
+- La OTAN y la Amenaza Existencial para Rusia
+- La Prevedibile Fine dell'Ucraina
+- La Retirada de Rusia del Pacto de Grano "complicaría drásticamente" el envío de Armas a Ucrania
+- Las Armas procedentes de Ucrania inundarán Europa y más allá - Según un informe
+- La Segunda Fase del Gran Reset - La Guerra
+- Las Repúblicas de Donetsk y Lugansk, y las Regiones de Jersón y Zaporiyia deciden unirse a Rusia
+- La Storia del "Nazismo in Ucraina" - Chi è Stepan Bandera?
+- La Toma del Poder en Ucrania por Monsanto y Cargill podría Abrir las Compuertas de los OGMs en...
+- La UE Apuesta a que el Conflicto en Ucrania "No Tenga Solución en el Corto Plazo"
+- La Valoración Estratégica de la Política Exterior Rusa en Ucrania
+- L'invasione della Russia in Ucraina fa Parte del 'Piano'...?
+- Los Instigadores Ocultos de la UE - Por qué todos los Ciudadanos de la UE están hoy en Guerra
+- Los Intereses de Estados Unidos en el Conflicto de Ucrania
+- Los Rothschild han tenido una "Relación Fantástica" con miembros del Gobierno Ucraniano - Una Broma...
+- Making Sense of the 2019 Paris Summit on Ukraine Conflict - A Quick Analysis
+- Making Sense of Ukraine Through a History of Extraterrestrial Intervention
+- Malone sobre la Investigación de Armas Biológicas en Estados Unidos - ¿Somos los Buenos o los Malos?
+- Monsanto e Altre Multinazionali Comprano Terreni Agricoli in Tutto il Mondo - Neo Feudalesimo
+- Monsanto y Otras Multinacionales Compran Tierras Agrícolas por Todo el Mundo - Neo-Feudalismo
+- MSM melts down over 'Jaw-Dropping Pivot in U.S. Foreign Policy' after Trump ripped 'Dictator' Zelenskyy
+- New Video Evidence of America's Coup in Ukraine - And What it Means
+- "No hay Ninguna Posibilidad de que Ucrania recupere sus Tierras" - Dice fundador de Blackwater
+- "No, Putin Did Not start the War in Ukraine" - Towards a U.S. War against Russia?
+- Nos Toman por Idiotas...
+- Nuclear War? - No, We Were Born for Something Better
+- Obama and Froman Use Ukraine to Push U.S.-EU Merger
+- "Occidente nos Engañó" - Putin revela por qué No se pudo Resolver la cuestión de Donbás Pacíficamente
+- Occidente y el Conflicto en Ucrania
+- Order Out of Chaos - How the Ukraine Conflict is Designed to Benefit Globalists
+- Overextending and Unbalancing Russia - Assessing the Impact of Cost-Imposing Options - The Rand Corporation
+- Parole di Kissinger - L'Ucraina deve cedere il territorio alla Russia
+- Perché l'Unione Europea non vuole che la Pace arrivi presto in Ucraina
+- Perché Vladimir Putin (probabilmente) salva la Vita di Volodymyr Zelensky?
+- Phase 2 of The Great Reset - War
+- Por qué la Unión Europea no quiere que la Paz llegue pronto a Ucrania
+- Por qué Trump rompió el 'Relato Occidental' sobre el Conflicto en Ucrania
+- 'Post-Alaska Cronos' con Putin - Ilegitimidad de Starmer/Macron/Merz e ilegalidad de Zelensky
+- Project Alchemy - How the UK works to Keep the Ukraine War going with Deception, Manipulation and Sabotage
+- Propaganda de Guerra bajo una Nueva Forma - Ucrania
+- "Proyecto Alquimia" - Cómo se Construye una Realidad por Ingeniería Social
+- Putin atribuye a "la Política Miope" de la U.E. y EE.UU. la Crisis Energética y Alimentaria
+- Putin explains why he Ordered Military Operation in Ukraine
+- Putin says he's Confident Trump can navigate Ukraine Crisis - Repair US-Russia Ties
+- Putin's statement on Trump's Ukraine ceasefire Proposal
+- ¿Qué le está pasando a Europa? - De la Promesa a la Preocupación
+- Quello che i Sub-umani Politici U.E. non riescono a Capire su Trump e Putin
+- ¿Quién Sufrirá Más del "Impago Artificial" de Rusia?
+- RAND Corp - Overextending and Unbalancing Russia
+- Referendos en los Territorios Liberados del Régimen de Kiev - "La Vía más Apropiada" para la Paz
+- Reino Unido creó un Equipo Militar para mantener a Ucrania siempre en Guerra
+- Remote Viewing ET Manipulation in Russia Ukraine War
+- Rusia abre la Puerta para que los Europeos participen en las Negociaciones de Paz
+- Resignados a una Larga Guerra...
+- Russia is Being Hacked at an Unprecedented Scale
+- Russian Military Intervention in Ukraine and Exopolitics
+- Russia Not to Blame for Global 'Food Crisis' - Putin
+- Russia-Putin and the West
+- Russia vs. Ucraina... e gli Anglo-Americani - La Dimensione Esoterica
+- Russia vs. Ukraine... and the Anglo-Americans - The Esoteric Dimension
+- Se Activa el Arca Espacial enterrada en Kherson Ucrania por lo que Rusia se hace Cargo
+- Seis Meses después del Colapso de Ucrania - El Mundo ha Cambiado para Siempre
+- "Si sancionas a Rusia, sancionas al Mundo" - El Peligro de la Inflación en América Latina
+- Switch Off Putin
+- Tambores de Guerra en Ucrania
+- Tambores de Guerra - Europa habla de Guerra y Prepara a su Población
+- The Actual Ukrainian Case - Putin 'Like Hitler? How did Prince Charles Get it So Wrong?
+- The Coup has Begun - The Empire Strikes Back Everywhere
+- The Deep State has used The NY Times to announce its withdrawal from 'Washington's Conflict with Russia'
+- The Future of Organized Crime beyond the Russo Ukrainian War
+- The History of 'Nazism in Ukraine' - Who is Stepan Bandera?
+- The Mystery of the Ukrainian Crisis - Two Views of Russia
+- The Poetry of "Diplomacy" - What do Zelenskyy, Putin, Xi Jinping, Orbán and Trump have in Common?
+- The Secret History of the War in Ukraine - The untold story of America's hidden role in Ukrainian military op...
+- The Ukraine Crisis and Vladimir Putin - A New Financial System Free from Wall Street and the City of...
+- The Ukraine Crisis - Sponsored by U.S. Hegemony and War Profiteers
+- The Ukrainian and Colombian Road to Empire Building - Violence and Terror
+- The Volodymyr Zelensky File - Puppet President Exposed
+- This War wasn't Just Provoked - It was Provoked Deliberately!
+- The War was the Easy Bit - Just wait until we get to the Politics
+- Time to Ditch DuckDuckGo? - Popular Alternative Internet Search Site censoring "Russian Disinformation"
+- Trump es 'imprudente' con el Dilema Europeo y su Crisis Existencial...
+- Trump è temerario con il Dilemma Europeo e le crisi Esistenziali che ha
+- Trump is 'reckless' with the European Dilemma and its Existential Crisis...
+- Trump mandó un "mensaje" a Zelenski pidiéndole que se prepare para un Alto el Fuego - Dice el periódico El Pais
+- Trump, Orbàn, Putin - Why are all the 'Dictators' hellbent on Peace?
+- Trump said We Should "Get Along with Russia" - He's Right...
+- Trump's 'USAID Purge' has revealed US scheming in Kiev - But wont stop it...
+- Trump Team leaves behind an Alliance in Crisis
+- Trump tells Zelenskiy that Putin wants more of Ukraine - Urges Kyiv make a Deal
+- Ucrania - Ese 'Oscuro Objeto' del Deseo
+- Ucrania fue el Mayor Receptor de las Subvenciones de la USAID - Gobierno Biden
+- Ucrania - Mercado Negro de Armas
+- ¿Ucrania Nuclear? - Con 'Preocupaciones' por la supuesta Amenaza Rusa, el Mundo pasa por alto Peligro Real
+- Ucrania - ¿Nuevo Estado Satélite de Estados Unidos?
+- Ucrania - Otra Gran Manipulación
+- Ucrania - Pierdan Esta Guerra, ¡antes que Monsanto Arruine Vuestras Granjas!
+- Ucrania - ¿Una Nación al Borde de la Banca Rota?
+- Ukraine - A Geopolitical Choke Point
+- Ukraine, "Colored Revolutions", Swastikas and the Threat of World War III
+- Ukraine Crisis Goes Nuclear
+- Ukrainegate - Lo que No te están Contando
+- Ukraine on Fire - 2016 Documentary by Oliver Stone
+- Ukraine, Russia and the Future of War...
+- Ukraine-Russia and the World Economic Forum - A Planned Milestone towards "The Great Reset"?
+- Ukraine's Gold Reserves Secretly Flown Out and Confiscated by the New York Federal Reserve?
+- Ukraine - The Corporate Annexation
+- Ukraine - Unraveling the Planned Chaos
+- "Ukrainian Fighter Jet Shot Down MHI7" - Donetsk Eyewitnesses - Deleted BBC Report
+- Una Nueva Doctrina echa Raíces - Una Nueva Era de Dominio Coaccionado
+- U.S. Confirms existence of Bioweapons Labs in Ukraine - Says Russian Attack may Target them
+- U.S. Defense Secretary Pete Hegseth's shocking message to NATO Allies reveals Major U.S. Policy Shift
+- U.S. Government papers found in an Alaskan hotel reveal New Details of Trump-Putin summit
+- U.S. Imperialism and The Ukraine Coup - The EU-IMF Economic Agenda for Ukraine
+- Vuelo MH17 - Testigo Revela Identidad del Piloto que Derribó el Avión de Pasajeros
+- War in Our Time? - We need the 'Men in White Coats'...
+- War in Ukraine is the WEF's Doorway to Global Technocracy
+- Warmonger Henry Kissinger worried about Thermonuclear War
+- War or Peace?
+- Welcome to Nulandistan - A Multimedia Look at What the U.S. and E.U. have Unleashed on Ukraine
+- Westerners and the Conflict in Ukraine
+- Western Looting of Ukraine has Begun
+- White House Lies to E.U. about U.S. Gas Supply
+- Who Really Profits from the Ukraine War?
+- Why did Biden want the War in Ukraine to Continue? - Germany's ex-leader Gerhard Schroeder's Revelations
+- Why did Russia REALLY invade Ukraine?
+- Why did Vladimir Putin (probably) save Volodymyr Zelensky's Life?
+- Why EU Voters are Rebelling against the Establishment
+- Why is the UK so invested in Fighting a Proxy War against Russia?
+- Why the Globalists Engineered the Ukraine War
+- Zelensky frente a Trump - ¿Suicidio Europeo o Síndrome de Masada?
+- Zelenskyy 'regrets' what happened during 'Oval Office Meltdown' - Ukrainian Officials "Desperate" to get deal...
+- El Veneno de la Guerra en Ucrania
+- Europa - Garantías de Guerra
+- Italy, NATO and Ukraine
+- Misiles en el "Porche" de Rusia
+- Missiles in the "Porch" of Russia
+- Trump - ¿Adiós, Ucrania...?
+- Ucrania y Occidente - Una Fábrica de Mentiras
+- Ukraine Bioweapons Funded by U.S.? - Russia's Accusation Explained
+- Ukraine, NATO provoked Russia in Donbas War - French Monitor...
+Books-Treatises
+- Anastasia - The Ringing Cedars Series - Book 1 - by Vladimir Megré
+- Book of Veles
+- Julius Caesar and the Roman People - by Robert Morstein-Marx
+- Occult Russia - Pagan, Esoteric, and Mystical Traditions - by Christopher McIntosh
+- Pawns in the Game - by William Guy Carr
+- Russian Conservatism - by Glenn Diesen
+- Sandworm - A New Era of Cyberwar and the Hunt for the Kremlin's Most Dangerous Hackers - by Andy Greenberg
+- Socialism Betrayed - Behind the Collapse of the Soviet Union - by Roger Keeran and Thomas Kenny
+- Super-Imperialism - The Economic Strategy of American Empire - by Michael Hudson
+- Taras Bulba - by Nikolai Vasilievich Gogol
+- The Clash of Civilizations and The Remaking of World Order - by Samuel Huntington
+- The Defeat of the West - by Emmanuel Todd
+- The Return of Holy Russia - Apocalyptic History, Mystical Awakening and the Struggle for... - by Gary Lachman
+- The Ringing Cedars of Russia - The Ringing Cedars Series - Book 2 - by Vladimir Megré
+- Wall Street and The Bolshevik Revolution - by Antony C. Sutton
+- Western Hostility to Russia - The hidden Background to War in Ukraine - by Terry M. Boardman
+- Another War? - Russia, China and the American "Empire"
+- Earth's Liberation from the Deep State - Galactic Community and the Earth Alliance
+- Flight #MH17 - What Youre Not Being Told
+- George Soros llama a "Derrotar a Putin o No Sobreviviremos" - ¿Qué prepara la Elite Global en Davos?
+- Kiev Censors MH17 Air Traffic Control Recordings
+- Kissinger Message to WEF Meeting at Davos - 2022
+- Le Sanzioni Russe per l'Europa
+- Pepe Mujica - Montesquieu, los Oligarcas Rusos, la Elite Global y Conciencia
+- Putin Addresses United Nations General Assembly - 2015
+- Putin Checkmates Obama on New World Order WWIII
+- Putin crushes CNN smartass Fareed Zakaria on Donald Trump and US elections
+- Putin documentary 'President' - Fantastic Russian Primetime
+- Putin e Trump - Una Fraterna Inimicizia
+- Putin on Greta Thunberg's United Nations Rant - It's Deplorable that the Girl is Being Used by Some Groups
+- Putin said: Feel Free to Release my Transcripts with Trump - You will Find Nothing Compromising in it!
+- Putin y Trump - Una Fraternal Enemistad
+- Russia and the Neocon March to World War 3 - Paul Craig Roberts
+- Russia Collusion Hoax Exposed - Saving America from a Hostile ET Takeover
+- Russian Sanctions on Europe
+- Russia's Hidden Paradises - Nature Documentary
+- Russia's Massive Tesla Tower Revealed in Drone Footage
+- The Putin Interviews - Oliver Stone Interviews Vladimir Putin
+- Una Alianza en Ascenso...
+- U.S. Admits its MH17 'Evidence' is Based on YouTube Clips and Social Media Posts
+- Vladimir Putin Address on Socioeconomic Strategy for Russia - 16 March 2022
+- Vladimir Putin humiliates BBC Reporter John Simpson
+- Vladimir Putin interviewed by the Financial Times
+- Vladimir Putin Traitor to the New World Order
+- American "Empire" - Main File
+- Latin America vs. The Global Elite - Main File
+- Trump - Main File
+Return to Globalization and The European Union

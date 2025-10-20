@@ -1,0 +1,395 @@
+# 'War on Terror' - 'Guerra Contra El Terror'
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_waronterror.htm
+
+Contents
+- After Me, the Jihad - Gaddafi's Unheeded Warning to the West
+- Al-Qa'ida, The Second Act - Why the Global 'War on Terror' Went Wrong
+- A Matter of 'Principle' - The True Aims of The Terror War
+- America's Holy Crusade Against The Muslim World
+- An Overview of The War on Terrorism
+- Así se Manipula a una Población - Las Oscuras Verdades que Oculta la Película "El Francotirador"
+- Atentados de Madrid - ¿Fue Realmente Un Atentado Islamista? - 11 de Marzo de 2004
+- "A War on Terror" when You Are the Terrorist - Iraq, Massacre of a Country
+- Blackwater - War Mercenaries Inc. - The Privatization of War - Main File
+- Brussels Bombing Psyop a Victory for the Ruling Elite and Global Police State
+- Calm Down... You are Much More Likely to Be Killed by Boring, Mundane Things than Terrorism
+- CIA Commander - U.S. Let Bin Laden Slip Away
+- Clinton and al-Qaeda - The Propaganda Wars Continue
+- Come Al-Qaida è Riuscita a Governare Tripoli
+- Come Gli Uomini di Al Qaida Arrivarono al Potere in Libia
+- Cómo John McCain ha Paralizado la Guerra de Obama contra ISIS
+- Cómo Llegó Al-Qaida a Gobernar en Trípoli
+- Conozca al Hombre Que Financia ISIS - Bilal Erdogan el Hijo del Presidente de Turquía
+- Così si Manipola una Popolazione - Le Oscure Verità che Nasconde il Film "American Sniper"
+- Court Rules Bush Administration Can Be Sued for Its "War on Terror" Conduct
+- Did The Dimona Dozen Murder The Fukushima 50? - 3/11 Was Japan's 9/11
+- Dismantling The Iraqi State, Destroying an Entire Country - Ending States That Sponsor Terrorism
+- Does Fear Lead to Fascism? - A Culture of Fear and the Epigenetics of Terror
+- EE.UU. "Entrenó y Financió" a los Terroristas del 11-S - ¿Una Lección para Ucrania?
+- "EE.UU. es El Líder Mundial en Cometer Los Mayores Crímenes" - Noam Chomsky
+- El Falso Terror - El Camino a La Dictadura
+- El Inicio de 'La Guerra Del Terror' de Estados Unidos
+- El Nigeriano del Poderoso Explosivo - ¿Una Operación Bajo Bandera Falsa Para Una Nueva Guerra...
+- El "Terrorismo" Como Herramienta de La Nueva Conquista Militar - Frentes de Conflicto - Agenda Secreta...
+- Endless Wars Have Cost Americans $1.6 Trillion - Report Finds
+- En Exclusiva RT Obtiene Documentos que Explican cómo Funciona la 'Corporación' Petrolera del Estado...
+- "Every Single Terrorist Attack in U.S. was a False Flag Attack" - Says U.S. Intelligence Officer
+- Fake Terror at The Murrah Building Bombing - The Opinions of General Partin and Other Bomb Experts
+- False Flag - Boston Marathon Bombing is Staged Terror Attack
+- FBI Creating Terrorism Plots to Thwart, Instilling Fear in Americans
+- FBI Organizes Almost All Terror Plots In the U.S.
+- Fighting Al Qaeda by Supporting Al Qaeda in Syria - The Obama Administration is a "State Sponsor of...
+- Five Countries The U.S. Is Royally Screwing Over
+- Flight 253 - Anatomy of a Cover-Up - A Failure to "Integrate and Understand," or A Thin Tissue of Lies
+- Fuera de Control - Cómo Occidente Creó, Financió y Desató el Terror del Estado Islámico sobre el Mundo
+- Gaddafi Predicted and Tried to Stop this Terror Wave in UK - So the U.S. Murdered Him...
+Español
+- GARDA - Otro de los "Monstruos" del Futuro Orden Mundial
+Italiano
+- GARDA - Un Altro dei "Mostri" del Nuovo Ordine Mondiale
+- George Bush and Tony Blair Secretly Plotted the Iraq War a Year before the Invasion
+- Gladio B, Paris Terror and ISIS Fakery Admitted - Vindicated
+- Global Deception - "The War on Terror" is a Campaign for Permanent War and Terror
+- Global Terror - The British Connection
+- 'Global War On Terror' Is Given New Name - Bush's Phrase Is Out, Pentagon Says
+- Global War on Terror, Military Interventions and Destabilizing Nations
+- Governments ADMIT that They Carry Out False Flag Terror
+- Gunman Conspired With "Business and Political Leaders" Before Norway's Massacre
+- ¿Ha Eliminado La Central Dimona Dozen a La Central Fukushima 50? - El 3/11 Fue el 9/11 de Japón
+- Hard News Online Value, a Small But Successful Paywall, and The War on WikiLeaks
+- Henry Makow's Views on 'War on Terror'
+- Hidden Intelligence Operation Behind The Wikileaks Release of "Secret" Documents? - The Real Story...
+- How Al Qaeda Men Came to Power in Libya
+- How John McCain Crippled Obama's War on ISIS
+- How Terrorist Groups End - Lessons for Countering al Qa'ida
+- How the Clintons "Disappeared" a Film that Exposed their Role in U.S. Terror Attacks
+- How Wall Street Manipulates and Manufactures Atrocities
+- Interlocking Agencies that Conspire to "Create Terror" - We Do Not Need the Police to "Create More Terrorists"
+- International Terrorism Does Not Exist
+- Iraq War Logs - Secret Files Show How U.S. Ignored Torture
+- ISIS is America's New Terror Brand - Endless Propaganda Fuels "War on Terror"
+- Is the WHO an Undercover Terrorist Organization?
+- Just How Dangerous is Terrorism, Really?
+- Killer's Manifesto - The Politics Behind the Norway Slaughter
+- La Desestabilización Sistémica - La Estrategia de La Tensión a Través del 11 Septiembre, el Asesinato...
+- La Falsa Guerra de Obama contra El Estado Islámico (ISIS)
+- La Increíble Máquina Instantánea ISIS
+- La Manipulación de los Medios de Comunicación en Los Atentados de Paris
+- La Masacre del 22 de Julio - Noruega e Israel
+- La Nueva Guerra Contra El Terror
+- La Santa Cruzada de Estados Unidos Contra El Mundo Musulmán
+- Launching The U.S. 'War on Terror'
+- Launching The U.S. Terror War - The CIA, 9/11, Afghanistan, and Central Asia - Bush's Terror War and...
+- La Verdad Oculta tras "El Nuevo Modelo de Terrorismo"
+- Law Suit Against 4 U.S. Presidents and 4 UK Prime Ministers - For War Crimes, Crimes Against Humanity...
+- Leaked North Korean Documentary Exposes Western Propaganda - And Its Scary How True It Is
+- Leaked Sec. Kerry Audio that CNN and NY Times Tried to Hide - Confirms U.S. Role in Rise of ISIS
+- Le Cercle - Main File
+- Los Eventos del 9-11 - Main File
+- Mass Shooting - Orlando False Flag?
+- Meet the Man Who Funds ISIS - Bilal Erdogan, the Son of Turkey's President
+- Neoconservatives Planned Regime Change Throughout the Middle East and North Africa 20 Years Ago
+- Non-Muslims Carried Out More than 90% of All Terrorist Attacks on U.S. Soil
+- Norway Terror Attacks a False Flag
+- Operation Gladio - NATO's Secret Wars - Main File
+- Operation Northwoods
+- Obama Moves to Make The 'War on Terror' Permanent
+- Obama Ordena "Limpiar la Casa" Borrando los Vínculos con al-Nusra en Siria
+- Obama Reaction to Norway Massacre Betrays U.S. "War on Terror" Fundamentalism
+- Obama Rechaza 'Cooperación' con Putin sobre Siria - La Guerra de Washington contra el Terrorismo...
+- Obama Rejects "Cooperation" with Putin on Syria - Washington's War on Terror is A Fabrication, Zero...
+- Obama Rifiuta di "Cooperare" con Putin per la Siria - La Guerra di Washington contro il Terrorismo è...
+- Obama's "Fake War" Against the Islamic State (ISIS) - The Islamic State is Protected by the U.S. and...
+- Osama Bin Laden and The 9-11 Events - Main File
+- Panel Faults CIA Over Brutality and Deceit in Terrorism Interrogations
+- Pasando del 'Gladio A Fascista' al 'Gladio B Islamista'
+- Perché Conosciate lUomo che Finanzia ISIS Bilal Edogan, il Figlio del Presidente di Turchia
+- Perfect Storm Conditions Now in Place for Big Government to Allow (or Even Stage) Terrorism Attacks...
+- Porqué las Élites Aman los Drones
+- Presidents Obamas Promise - Global War on Terror to Continue, with Fresh Makeup - Assassinating...
+- Primeros Elementos Sospechosos de la Matanza de Orlando - ¿Otra Operación de Bandera Falsa?
+- Putin, el Presidente Ruso, Dice algo Acerca de ISIS que los Medios de Comunicación Occidentales No...
+- Putin está Derrotando a Más que a ISIS en Siria
+- Putin is Defeating More than ISIS in Syria
+- Putin Reveals 40 Countries that are Funding ISIS at The G20 Summit
+- Putin Revela en la Cumbre del G20 a 40 Países que Están Financiando a ISIS
+- Putin, the Russian President, says Something about ISIS that Western Media Won't Air
+- Psychological Warfare and The "False Flag" Meme
+- Querella de Irak en España Presentado Contra 4 Presidentes de EE.UU. y 4 Primeros Ministros del Reino...
+- Racism and U.S. War - Iraq Veteran
+- Report on War on Terror Amid Crackdown on Whistleblowers - James Risen Prepared to "Pay Any Price"...
+- Rohaní Aprueba incluir al Pentágono en la Lista Iraní de Organizaciones Terroristas
+- Rusia, EE.UU. y Francia Formarán una Amplia Coalición que "Dará un Golpe Definitivo al EI" - Dice Hollande
+- Six Painful Truths About the War on Terrorism
+- Start Preparing for the Collapse of the Saudi Kingdom
+- Stopping ISIS - Follow the Money
+- Terrorismo en Paris - El 'Timing' lo Dice Todo
+- Terroristas Islamistas - ¿Títeres Controlados por Occidente?
+- Terror Junkies - The West's Addiction to Funding Radical Groups
+- The 9-11 Events - Main File
+- The Boston Bombing Web of Lies
+- The Bureau of Counterterrorism - Obama Administration Gives Birth to New Agents of Tyranny
+- The CIA's Creation of "Islamic Terrorism" on American Soil
+- The Cost of Iraq, Afghanistan, and Other Global War on Terror Operations Since 9/11
+- The Decade's Biggest Scam
+- The "Demonization" of Muslims and The Battle for Oil
+- The Enemy-Industrial Complex - How to Turn a World Lacking in Enemies into The Most Threatening...
+- The Eve of Destruction
+- The Future is Calling - The War on Terror
+- The Grand Deception - A Second Look at the War on Terrorism
+- The Guantánamo Suicides - A Camp Delta Sergeant Blows the Whistle
+- The Imperial Anatomy of Al-Qaeda
+- The Incredible Instant ISIS Machine
+- The Killing of Osama bin Laden
+- The Lies That Led to The Iraq War and The Persistent Myth of Intelligence Failure
+- The Making of World Wars
+- The Nightmare - The Iraq Invasion's Atrocities, Unearthing the Unthinkable
+- The Norway Terrorist Attack - "News Without Facts" - "Experts" on Jihad and "Muslim Terrorism"
+- The Obama Administration's Cover-up of The Flight 253 Affair - "New Smoking Gun" Disclosures
+- The Oxymoron War on Terror - The Greatest Hypocrisy of Our Time
+- The Paris Terrorist Attacks - "9/11 French-Style", "Le 11 septembre à la française"
+- The Real Reason Behind The 9-11 Terror Was a Battle for Control of The Global Collateral Accounts
+- The So-Called 'War on Terror' has Killed over 801,000 People and Cost $6.4 Trillion
+- The State as Terrorist
+- The True Inside Facts About the 7/7 London Bombings
+- The Underwear "Bomber" - Crushing Freedom With Phony Muslims Terrorism
+- The U.S. is Supporting The Most Violent Muslim Terrorists in Order to Wage War for Oil
+- The U.S. Policy Coup Explained by 4-Star General Wesley Clark
+- The 'War on Terror' - by Design - Can Never End
+- The War on Terror - from "The Police State Road Map" by Michael Nield
+- The 'War on Terror' Is A Fraud
+- The War on Terror Spreads to Africa - U.S. Sending Troops to 35 African Nations
+- The War on Terror - The Police State Agenda
+- The War that Never Ends
+- Thirteen Predictions for the War on Terrorism
+- This War On Terrorism Is Bogus - The 9/11 Attacks Gave The U.S. An Ideal Pretext To Use Force to...
+- Total Cost of Wars Since 2001
+- Training Exercises Before "Terror Attacks" - Exercises on Same Day as Denver Shootings
+- Turkey - A Criminal State, a NATO State
+- Turkey is the Source, Not Solution to ISIS and the Syrian Crisis
+- Una Periodista Muerta y Tres más Arrestados Después de Exponer que Turquía Arma a Extremistas Sirios
+- Una Revelación Publica Impactante sobre EE.UU. y el "Terrorismo Islámico"
+- Un Reportero de Sky News Cubriendo los Atentados de Paris, Sufre un Lapsus Muy Significativo
+- U.S. Complicity and Cover-Up of Iraq Torture Exposed - The WikiLeaks Release - Frago 242 War Logs
+- U.S. Designates Wikileaks "Enemy of The State"
+- "U.S. is Reviving Terror Scare with ISIS to Promote the Terror War Industry" - Says FBI Whistleblower
+- U.S. War on Iran Takes Bizarre Turn
+- U.S. "War On Terror" Has INCREASED Terrorism
+- War on Terrorism Propaganda Ratcheted Up Ahead of War Escalation - Masterminds, Mosques and...
+- Was Norway Massacre a Reaction to BDS Israeli Boycott?
+- What Happened to the "Global War on Terrorism"? - The U.S. is "Fighting for Al Qaeda" in Syria
+- When Terrorism Becomes Counter-Terrorism - The State Sponsors of Terrorism are "Going After the...
+- White House Unleashes New Terrorism Propaganda Campaign
+- Whose War? - A Neoconservative Clique Seeks to Ensnare Our Country In A Series of Wars That Are...
+- Who Would Benefit Politically From a Terrorist Incident on American Soil? The Strange Case of Umar F...
+- Why Does the "War on Terror" Serve Western Policy?
+- Why Elites Love Drones
+- WikiLeaks - International New Media Non-Profit Organization - Main File
+- WikiLeaks Iraq Files Reveal Torture
+- WikiLeaks Prepares Largest Intel Leak in U.S. History
+- WikiLeaks Releases Massive Set of Afghan War Files
+- ¡Yo Creé el Terrorismo Yihadista y No me Arrepiento! - Brzezinski, Asesor de Seguridad de Carter
+Additional Information
+- 11 de Septiembre - Una Provocación Mundial - El Punto de Vista de Un General Ruso
+- 9-11 - Eternal Pretext, Eternal War
+- 9-11 Truthers Should Be Treated As Possible Terrorists - Declares The FBI
+- AFRICOM - U.S. Military Control of Africas Resources - from 'Top 25 Censored Stories of 2007'
+- A 'Holy' War
+- Alcune Teorie sulle Cospirazioni che Sono Diventate Realtà
+- Algunas Revelaciones de Los Documentos de WikiLeaks
+- Algunas Teorías Conspirativas que se Han Hecho Realidad
+- Al-Qaeda Is a Front Group for The U.S. Military-Industrial Complex
+- Al Servicio de La CIA - 54 Países Colaboraron en Torturas y Cárceles Secretas
+- American Naifs Bringing Ruin to Other Lands
+- Americans and Northern Alliance Friends - False Flag Terror, Drugs, Staged Taliban Attacks
+- Americas Drug-Corrupted War - Obama and Afghanistan
+- Analysis of Financial Terrorism in America
+- An Un-American Way of War - Instruments of Statecraft - U.S. Guerilla Warfare, Counterinsurgency...
+- A Pair of Testicles Fell Off The President After Election Day" - Former Guantanamo Chief Prosecutor Says
+- Assange Warns About Vegas Shooting - 'Almost All Terror Plots are Created by the FBI'
+- Avatar - American Terrorists Invade a New World
+- Avatar - Terroristas Estadounidenses Invaden un Nuevo Mundo
+- Big Money Behind War - The Military-Industrial Complex
+- Black Dossier - HSBC & Terrorist Finance
+- Blood Money - Anthony Charles Lynton Blair, Q.C., Former Prime Minister, Alleged Potential War Criminal
+- Blood, Treasure and Soul - The Exorbitant Price of American Empire
+- Boston Bombings - Detonator to Mobilize The Entire U.S. Security Apparatus - It May Change The World...
+- Bush Family Paraguay Hideaway Update
+- Cameron Advocates Greater Stasi-style Surveillance Powers for GCHQ after Charlie Hebdo
+- Canadian Terror Wave - A Modern-Day Gladio
+- Capitalist Terrorism
+- Carol Rosin and the late Werner Von Braun
+- Challenging American "Exceptionalism"
+- CIA and Pentagon Deploy RFID Death Chips - A Conspiracy Theory? Think Again!
+- CIA Psychologist's Notes Reveal True Purpose Behind Bush's Torture Program
+- Committee Study of the CIA's Detention and Interrogation Program - Senate Select Committee on Intelligence
+- Crisis de Refugiados Europeos - Anatomía de un Encubrimiento
+- Crossing the Rubicon - Simplifying the Case Against Dick Cheney
+- Dos Presidentes Que Murieron Desafiando a Los Rothschilds
+- "Downing Street Memo" - The 'War on Terror'
+- El Ataque Terrorista de Paris y el Nuevo Disfraz de la Tiranía
+- Erdogan Blackmails NATO Allies
+- European Refugee Crisis - The Anatomy of a Cover-Up
+- Ex-Bush Official Willing to Testify - Bush, Cheney Knew Gitmo Prisoners Innocent
+- Fake Terror Plots, Paid Informants - The Tactics of FBI 'Entrapment' Questioned
+- Fake Terror - The Road To War And Dictatorship
+- False Flag Terror and Conspiracies of Silence
+- Financial Crisis Will Sweep Away Governments
+- Financial Warfare Against Russia, Multibillion Dollar Bonanza for Wall Street - The Malaysian Airlines MH17...
+- Flight 253 - The U.S. Government Escorted Abumutallab Through Security Without A Passport.
+- Forget ISIS, America Is the Real Threat to the World - Says Oliver Stone
+- From Ronald Reagan and The Soviet-Afghan War to George W. Bush and September 11, 2001.
+- Give War a Chance!
+- Glorious Martial Law?
+- Here's a Map of all the Mass Shootings in 2015 - What's Really Going On in the United States?
+- Horrific Torture Report Shows Why Much of the World Considers America to Be the Nazis of The 21st...
+- How False Flag Terrorism and Religion are Being Used as a Means for Control
+- How Protesters Become Terrorists
+- Huge Public Outcry Over TSA Forcing 95-year-old Cancer Patient to Remove Adult Diaper
+- Iraq - Toppling a Country
+- Israeli Security and False Flag Terror - A Remarkable Love Story
+- JADE-HELM 2015 - U.S. Terrorist Home Invasion
+- Laboratorios Experimentales - Los Hornos Crematorios de "Población Sobrante"
+- La Plaga del Siglo XXI - Todo sobre el Estado Islámico
+- Look! Up in the Sky! It's a Bird... It's a Plane... It's a Raytheon Spy Blimp!
+- ¿Los Musulmanes son Nazis?
+- Manhunting - Counter-Network Organization for Irregular Warfare
+- March 2013 Watchlisting Guidance - by National Counterterrorism Center
+- Military to Military - On US Intelligence Sharing in the Syrian War
+- Misreading Intentions - Iraqs Reaction to Inspection Created Picture of Deception
+- Mossad, Norway and The Lone Killer Blueprint
+- NATOs Operation Gladio - Sibel Edmonds on NATO, Terrorism, 9/11 and Drug Running
+- Non-profit Group Linked to Homeland Security Promotes Absurd Fear of Non-Existent Threat of Terrorism
+- No Place to Hide - The Strategy and Tactics of Terrorism
+- Obama Administration Shuts Down Investigations Into Bush-Era Torture
+- Obama's Secret Assassins - JSoc - Joint Special Operations Command
+- Obama's U.S. Assassination Program?
+- Occupied America - Senate Bill 1867 Would Allow U.S. Military to Detain and Murder Anti-Government...
+- Only A Terror Attack Can Save Obama - Top Clinton Official Says
+- Orwellian Justice System - The Securitization and Militarization of Daily Life - Spying on Americans...
+- Our 'Leaders' - Whose Sick Joke?
+- Patriot Act - H.R. 3162 - Received October 24, 2001
+- Poetic Justice Finds U.S. Enablers of Terror
+- Police Commissioner Involved in Charlie Hebdo Investigation "Commits Suicide" - Total News Blackout
+- Protecting Individual Privacy in The Struggle Against Terrorists
+- Religious Fundamentalists are Being Played - Saudis, Israelis and Americans are All in Bed Together
+- Repensar El 11-S (ReThink 9/11) Ante El Totalitarismo Emergente
+- Return of Cheney's One Percent Doctrine
+- Secret Panel Can Put Americans on "Kill List"
+- Senate Wants The Military to Lock You Up Without Trial
+- Slain Writer's Book Says U.S.-NATO War Served Al-Qaeda Strategy
+- Spying on Americans - America's Endless & Highly Profitable, "War on Terror" - A Multibillion Bonanza for...
+- Terrorismo de Estado - Israel Incendia Con Fósforo la Sede de La ONU, Bombardea Hospital, Dispara...
+-¿Terroristas en La Administración Bush? - Terrorismo Internacional
+- Terror Laws Clear Senate, Enabling Entire Australian Web to Be Monitored and Whistleblowers to Be Jailed
+- The Arthur McCollum Memorandum
+- The Atrocity Lessons - What The U.S. Military Learned From Vietnam
+- The CIA's Role in The Anthrax Mailings - Could Our Spies be Agents for Military-Industrial Sabotage...
+- The Coming Pandemic - Expect All Protective Systems to Fail
+- The Coming Shakedown of The U.S. and Iran
+- The Critical Law of Armed Conflict Academy as an Islamist Fifth Column
+- The Doomsday Project and Deep Events - JFK, Watergate, Iran-Contra, and 9/11
+- The Fact that Mass Surveillance Doesnt Keep Us Safe Goes Mainstream
+- The Hidden Power - David S. Addington - The Legal Mind Behind The White House's War on Terror
+- The Internet War
+- The "Liberation" of Libya - NATO Special Forces and Al Qaeda Join Hands - "Former Terrorists" Join the...
+- The Long Road to The Hague - Prosecuting Former Prime Minister Tony Blair
+- The Murder of Americans - Existence of Secret Kill Lists Now Admitted by Lawless White House
+- The Mythology of Homeland Insecurity
+- The Obama Regimes Fabricated "Terror Conspiracy" in Defense of The Police State
+- The Politics of Terror as The Business of Terror - The Greatest Covert Operation Ever
+- The Power of Fantasy - Bioterrorism, ISIS and Ebola Mania
+- The Privatization of War - Mercenaries, Private Military and Security Companies (PMSC) - Beyond The...
+- The Redirection - Is The Administrations New Policy Benefitting Our Enemies in The War on Terrorism?
+- The Secret Government Rulebook for Labeling You a Terrorist
+- The Senate CIA Torture Report - Dick Cheney says "The Report is Full of Crap"
+- The Things He Carried... - The So Call "Airport Security"
+- The U.S. is The World's Worst Human Rights Violator
+- "The War is Worth Waging" - Afghanistan's Vast Reserves of Minerals and Natural Gas
+- The White House Has Been Covering Up the Presidency's Role in Torture for Years
+- The Yemen Hidden Agenda - Behind The Al-Qaeda Scenarios, A Strategic Oil Transit Chokepoint
+- Tony Blair and George Bush's Phone Conversation a Week Before Iraq Invasion 'Must Be Released'
+- Torturers in The White House - Why Is This Story Being Ignored?
+- Toxic Waste Behind Somali Pirates - Top 25 Censored Stories for 2010
+- TSA Pats Down Cancer-Stricken 95-Year-Old Woman and Removes Adult Diaper
+- Turkish President Accuses 'The West' of being Behind Charlie Hebdo Attacks
+- Two President Who Died Defying the Rothschilds
+- Un Articulo Académico Muestra Como Piensan Muchos Militares de EE.UU.
+- Unconventional Warfare - Army Special Operations Forces
+- Understanding Information Age Warfare
+- United Nations Listing of Terrorist Organizations
+- U.S. Government Spy Program - Main Core, PROMIS and The Shadow Government
+- U.S. House Passes Bill Authorizing Worldwide War As Momentum Builds Against It
+- U.S. Officials Guilty of War Crimes for Using 9/11 as A False Justification for The Iraq War
+- U.S. Presidents Charged With Crimes Against Humanity as Universal Jurisdiction Dies in Spain
+- Welcome to Boston, Mr. Rumsfeld - You Are Under Arrest
+- Who Was Osama? - Who Is Obama?
+- WikiLeaks Releases Prisoner Treatment Manual from Guantanamo Bay
+- Yemen - The Covert Apparatus of The American Empire
+- Zionism vs. Islam - Which is More 'Dangerous'?
+Books-Treatises
+- Americas War on Terrorism - by Michel Chossudovsky
+- La Historia Silenciada de Estados Unidos - por Oliver Stone y Peter Kuznick
+- Order Out of Chaos - Elite Sponsored Terrorism and the New World Order - by Paul Joseph Watson
+- Philip Dru - Administrator - by Edward Mandell House
+- Razones de Estado - por Chester Swann
+- Stranger Than Fiction - An Independent Investigation of 9-11 And The War On Terrorism - by Albert D. Pastore
+- Terrorism and The Illuminati - A Three-Thousand-Year History - by David Livingstone
+- The Report From Iron Mountain - by Leonard Lewin
+Multimedia
+- 7-7 Ripple Effect - La Verdad Sobre 11-Septiembre Nueva York, el 11-Marzo Madrid y el 7-Julio de Londres
+- 7-7 Ripple Effect - The Truth About the New York September-11, Madrid March-11 and London July-7
+- 911 - What is really the so called 'War on Terror'?
+- Adiós a Las Libertades - Taking Liberties (Since 1997)
+- "Afghanistan Pakistan Imbroglio" With Pakistani General Hamid Gul
+- Amazing Speech by War Veteran
+- American Terror - Manufactured by The FBI
+- Anthrax War
+- Asombroso Discurso de Un Veterano de Guerra
+- Blackwater Murdering Innocent Iraqis for Sport and Religion
+- Bush and Obama - Age of Terror - Untold History of United States - Oliver Stone
+- Bush's Hideous Legacy - Baghdad, 5 Years On - City of Walls
+- Bush y Obama - La Era del Terror - La Historia No Contada de Estados Unidos - Oliver Stone
+- Censored Images of War
+- Collateral Murder - Wikileaks
+- Dirty Wars
+- Dirty Wars - Jeremy Scahill and Rick Rowleys New Film Exposes Hidden Truths of Covert U.S. Warfare...
+- European Secrets of The CIA
+- False Flag Attack - Do You Know What Is It?
+- Invisible Empire - A New World Order Defined
+- Iraq War Logs - Frago 242 - A License to Torture
+- Is This What We're Fighting For? (This Video May Be Blocked In Some Countries)
+- La Verdad Jamás Contada - Zeitgeist
+- Obsession - Radical Islam's War Against the West
+- Patriot Act - Civil Liberties Threatened?
+- Problem-Reaction-Solution - David Icke
+- Rumsfeld's War - Contentious Battle Inside The Pentagon
+- Senate Has Declared War on American People
+- Shadow Secrets - 2010 Cut
+- Terror Factory - Inside The FBI's Manufactured War On Terrorism
+- Terrorism Attacks in U.S. - 9/11 - BBC Prior Knowledge
+- TerrorStorm - Alex Jones
+- The Dark Side - Architecture of The "War on Terror"
+- The Power of Nightmares - The Rise of The Politics of Fear
+- The Rise of The Politics of Fear
+- Uncovered - The Whole Truth About The Iraq War
+- War and Globalization - The Truth Behind September 11 (9/11)
+- War On Terror - Expenditures
+- "We Created Al Qaeda" - The Protagonists of The "Global War on Terrorism" are The Terrorists - Said Clinton
+- WikiLeaks Prepares Largest Intel Leak in U.S. History With Release of 400,000 Iraq War Docs
+- Zero Dark Thirty - Torturing The Facts
+Related Reports
+- Big Brother Loves You - Main File
+- CIA - The Central Intelligence Agency - Main File
+- Extraterrestrial False Flag Operation - Main File
+- False Flag Operations - Operaciones de Bandera Falsa - Main File
+- The Carlyle Group - Main File
+- The Middle East Exopolitical Saga - Main File
+- The NSA - The Super Secret National Security Agency - Main File
+Return to Global Militarism
+Return to Temas / Main Files
+Return to The New World Order
+Return to The Secret-Shadow Government
+Return to The Bush Impeachment Movement
+Return to The Bushes and The New World Order
