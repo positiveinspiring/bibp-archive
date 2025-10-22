@@ -1,0 +1,338 @@
+# CIA - The Central Intelligence Agency - Information Is The Most Dangerous 
+Weapon of All
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_cia.htm
+
+Contents
+Español
+- Al Servicio de La CIA - 54 Países Colaboraron en Torturas y Cárceles Secretas
+- Archive TC - Main File
+- Archivos olvidados de la CIA reportan dos Bases Extraterrestres en la Tierra - Proyecto Stargate
+- Area 51 - Main File
+- Are Conspiracy Theorists Nuts? - In 1967, the CIA Created the Label "Conspiracy Theorists"
+- A Timeline of CIA Atrocities
+- Bomb School
+- China U.S. Trade Imbalance - Bad Policy or Payback for CIA Use of Stolen WWII Gold?
+- CIA and The Culture of Corruption
+- CIA and The Drug Business
+- CIA can Geo-locate Your Computer by Listening to Wi-Fi Signals
+- CIA Controls Mass Media like The NY Times, Time Magazine and Much More
+- CIA Co-Sponsoring Geoengineering Study to Look at Reversing Global Warming Options
+- CIA declassifies Book detailing How the World will End
+- CIA Director - from "George Bush - The Unauthorized Biography"
+- CIA Document Dump reveals 70 Years of U.S. Government UFO Info
+- CIA/FBI/DOJ Plot to Overthrow the President of the United States
+- 'CIA Fingerprints' All Over Kiev Massacre - Oliver Stone
+- CIA - from "The Atlantean Conspiracy - Exposing the Illuminati from Atlantis to 2012"
+- CIA Gets in Your Face(Book)
+- CIA, Governmental and Scholarship Programming - from "Breaking the Chain - Breaking Free Of Cult...
+- CIA Home Invasion - Smart TVs and The 'Internet of Things'
+- CIA Investing in Research Aimed at Modifying The Earths Climate for Unknown Reasons
+- CIA - "It's Well Hidden"
+- CIA-Initiated Remote Viewing At Stanford Research Institute
+- CIA - "La Máquina de Matar"
+- CIA Papers Detail UFO Surveillance - Historic UFOs
+- CIA Psychologist's Notes Reveal True Purpose Behind Bush's Torture Program
+- CIA's Guano Paradise
+- CIAs Role in The Study of UFOs - 1947-90 - A Die-Hard Issue
+- CIA's "Vengeful Librarians" Track Facebook
+- CIA - The History of Deception
+- CIA - The Inner Workings
+- COINTELPRO - Main File
+- Committee Study of the CIA's Detention and Interrogation Program - Senate Select Committee on...
+- Como Funciona el "Golpe de La CIA" en Irán - La Guerra Por Otra Vías - Caballo de Troya
+- Conoce de Qué Manera está Involucrada la CIA en un Espionaje Masivo en Uruguay
+- Declassified CIA Document reveals Iraq War had Zero Justification
+- Declassified CIA Documents reveals Plan to Destroy Syria for Oil Pipeline - Predicts Current Crisis
+- Declassified CIA Documents show Agency's Control over Mainstream Media and Academia
+- Dengue Fever Outbreak Leads Back to CIA and Army Experiments
+- Después de Acusarla de Narcoterrorismo durante Varias Décadas, Estados Unidos negoció con Cuba
+- Domestic "Internet of Things" Begins to Merge With the Industrial Smart Grid
+- El Experimento de FaceBook y Sus Raíces con La CIA
+- El Verdadero Origen de Google está Vinculado a la CIA
+- FaceBook and The Internet - Main File
+- FaceBook - ¿Es de La CIA?
+- FaceBook, la CIA y los Clinton
+- FaceBook, the CIA and the Clintons
+- False Flagging the World towards War - The CIA Weaponizes Hollywood
+- Fauci and the CIA - A New Explanation Emerges
+- Fauci e la CIA - Emerge una Nuova Spiegazione
+- Forget WhatsApp - CIA has Tools to Hack almost All Social Media Platforms
+- Golpe de Estado en Brasil - Así es el Nuevo Presidente que ha Sustituido a Dilma Rousseff
+- Google and The Internet - Main File
+- Google, CIA and the NSA - Inside the Secret Network behind Mass Surveillance, Endless War and Skynet
+- Google's True Origin Closely Tied to the CIA (Central Intelligence Agency)
+- Google's True Origin partly lies in CIA and NSA Research Grants for Mass Surveillance
+- Historical and Structural Reasons for Skepticism of CIA Claims - Remaining Agnostic on Claims of...
+- Hollywood, the Mainstream Media and Silicon Valley - All Strings Pulled by Same Master
+- How CIA Black Ops Teams are Hacking into Computers Worldwide
+- How Much did CIA and NSA have to do with the Founding of Google?
+- How the CIA Helped Disney Conquer Florida
+- How the CIA made Google
+- Inside the Shadow CIA
+- ISIS - An American-CIA-Mossad-Saudi Intel Covert Operation
+- It's a Cover-Up and it's Terrifying" - CIA Whistleblower says foreign adversary 'likely' responsible for 'Havana Synd...
+- Jeb Bush Linked to Cartel Money Laundering while Serving CIA - Exclusive Report
+- Jeb Bush Received Comprehensive CIA Briefing when he Worked for Bank in Caracas
+- Jeffrey Edmonds
+- John Brennan Sworn in as CIA Director Using Constitution Lacking Bill of Rights
+- John Brennan Takes Oath on Draft Constitution Without The Bill of Rights
+- Julian Assange just Destroyed the FBI, CIA and Fake News in an Epic Tweetstorm
+- Kissinger and Rockefeller Connections to American Central Intelligence and The Origins of AIDS and Ebola
+- "La CIA - 70 Años en Ucrania" - Los Hechos, con Douglas Valentine
+- La CIA desclasifica un Libro que detalla cómo será el Fin del Mundo - "Todos los Vestigios de Civilización...
+- La CIA Utiliza a Hollywood para un Ataque de Falsa Bandera
+- La CIA y El Laboratorio Iraní - De Mossadegh a Ahmadinejad
+- La CIA y El Vaticano Manipulan La Wikipedia
+- La Conexión 'CIA-Israel' tras los Archivos Desclasificados sobre el Asesinato de John F. Kennedy
+- La Frase de un Director de la CIA que no Deberíamos Olvidar
+- Las Drogas y La Máquina de Guerra de Estados Unidos - Entrevista con Peter Dale Scott
+- Las 'Joyas de la Familia' en Operaciones de la CIA en Suramérica salen a la luz...
+- Los Orígenes Militares de Facebook
+- Los Secretos de Silicon Valley - Lo que el Big Tech No Quiere que Sepas
+- #MacronLeaks Uncensored - The CIA Takeover of Smart Card Company Gemplus (Gemalto)
+- Meet 'Le Cercle' - The Secret CIA-Funded Group Behind The 'War on Terror'
+- Memo de la CIA que Todavía se Utiliza para Desacreditar a los "Teóricos de la Conspiración"
+- Ministry of "Truth" - Central Intelligence Agency
+- New Documents reveal CIA considered Reviving MK Ultra-like Programs
+- NGOs are the 'Deep State's Trojan Horses'
+- Nuevos Documentos revelan que la CIA considera Revivir Programas tipo MK Ultra
+- Obama - A "New" Sociopolitical Era? - Main File
+- One Nation Under Blackmail
+- Operación Gladio - La Historia No Contada de la Alianza entre el Vaticano, la CIA y la Mafia
+- Operation Gladio - The Untold Story of the Unholy Alliance Between the Vatican, the CIA, and the Mafia
+- Operation Mockingbird - CIA Media Manipulation
+- "Operation Plutocrat" - A short history of the CIA's 'War on Humanity'
+- Panel Faults CIA Over Brutality and Deceit in Terrorism Interrogations
+- Pentagon Orders Purge of Osama Bin Ladens Death Files from Data Bank
+- Perú - ¿Asediado por EE.UU., la CIA y el Foro Económico Mundial?
+- Plan de George Soros y la CIA para Desestabilizar Europa
+- Pirámides en Marte y Humanoides - La CIA desclasifica un documento del 'Proyecto Stargate'
+- President Kennedys Deadly Confrontation With The CIA & MJ-12 over ET/UFO X-Files
+- Promis
+- Screen Propaganda, Hollywood and The CIA
+- Secrets of Silicon Valley - What Big Tech Doesn't Want You to Know
+- Shadow Armies are Waging an Invisible War on Us All
+- Sobre el 'Accidente' del coche de Putin - ¡El Ex-Director de la CIA 'lo Insinuó' semanas Antes!
+- Soros y la CIA Apoyan a Neves para Derrotar a Rousseff en Brasil
+- State of War - The Secret History of The CIA and The Bush Administration
+- Ten Secret Armies of the Central Intelligence Agency
+- The Black Budget Report - An Investigation Into The CIA's 'Black Budget' and The Second Manhattan Project
+- The CIA and The Media
+- The CIA and The Media - 50 Facts the World Needs to Know
+- The CIA and The West Nile Virus
+- The CIA Created 'Safe Haven' For Nazis And Jews
+- The CIA has a Long History of Torture - Gina Haspel will be Perfect for the Job
+- The CIA is directing Sabotage Attacks inside Russia
+- The CIA is running Global Coups and Assassinations to try to Stop BRICS
+- The CIA Rebranded - Don't Worry, We're Woke Now!
+- The CIA's Creation of "Islamic Terrorism" on American Soil
+- The CIA's New Black Bag Is Digital
+- The CIA's Project MOCKINGBIRD - Ongoing Covert Control of the Media
+- The CIA's Role in The Anthrax Mailings - Could Our Spies be Agents for Military-Industrial Sabotage...
+- The CIA's War on Human Consciousness
+- The CIA, The KKK and The USA
+- The CIA Wants to Control The Weather Through 'Geoengineering'
+- The CIA - Wild Bill Donovan, the OSS, and the CIA - "The World Order - A Study in the Hegemony of...
+- The EU - A CIA Covert Operation
+- The Global Media Control - Main File
+- The Information War - The Deadly War hardly Anyone realizes we're Fighting
+- The Mafia, The CIA and The Vaticans Intelligence Apparatus
+- The Nuclear Missile Attack on Hawaii - A Secret Space Program?
+- The Origins of The Overclass
+- The Pegasus File
+- The Phrase of a CIA's Director that We Should not Forget
+- The Senate CIA Torture Report - Dick Cheney says "The Report is Full of Crap"
+- The Truth About Harvey Point
+- The White House Has Been Covering Up the Presidency's Role in Torture for Years
+- This War wasn't Just Provoked - It was Provoked Deliberately!
+- Trump cierra dos Emisoras de Radio de los tiempos de la Guerra Fría - Guerra psicológica
+- U.S. - A Terrorist Training Base That Specializes in Car Bombings
+- Vault 7 - CIA Hacking Tools Revealed
+- What does Palantir actually Do?
+- WikiLeaks desvela "Vault 7" - Las Herramientas de Espionaje Cibernéticas de la CIA
+- WikiLeaks Exposes Newly 'Selected' Brazilian President as Puppet for U.S. Intelligence
+- WikiLeaks Is The "Cognitive Infiltration" Operation Demanded by Cass Sunstein
+- WikiLeaks, "Year Zero" and the CIA Hacking Files
+- Yes, The FBI and CIA Can Read Your Email - Here's How
+Additional Information
+- Al-Qaeda Is a Front Group for The US Military-Industrial Complex
+- An Act of War - CIA Leak Gives "Incontrovertible Evidence" that 9/11 was State Sponsored
+- An Empire of Lies - The CIA and The Western Media
+- An Un-American Way of War - Instruments of Statecraft - U.S. Guerilla Warfare, Counterinsurgency, and...
+- Area 51 is Now Official - Where are The Alien Spaceships?
+- Baron Otto Von Bolschwing - SS Veteran of Eichmann's "Jewish Affairs"
+- Beyond Conspiracy Theory - SCADs - Patterns of High Crimes in American Government
+- 'Black Budget' Revealed - A Detailed Look at US 'Espionage Empire'
+- Blackwater - War Mercenaries Inc. - The Privatization of War - Main File
+- CDC and CIA - A Close and Sick Relationship
+- Cheney Dirigió Un Comando De Asesinos
+- Cheney Ran SS-Style Political Assassination Unit
+- CIA and Pentagon Deploy RFID "Death Chips" - A Conspiracy Theory? Think Again!
+- CIA Commander - U.S. Let Bin Laden Slip Away
+- CIA Declassified a document - The Adam and Eve Story
+- CIA Mars Exploration - May 22, 1984
+- CIA-MI6 Involvement In Mumbai Attack - Terrorism and The Illuminati
+- CIA-RDP96-00789R003800200001-8
+- Coca-Cola, The CIA and The Courts
+- Cómo Hacer lo que La CIA ya Hizo - Dejar tu cuerpo y 'Ver Remotamente', a Distancia
+- Cosa Succederà se Facebook e Google si Impossessano del Mondo?
+- Dangerous Machinery - 'Conspiracy Theorist' as a Transpersonal Strategy of Exclusion
+- Donald Trump Disuelve la Organización del Imperialismo Estadounidense
+- El Ex-Agente de la CIA que Llama a La Revolución Global - Robert Steele
+- El Mito de la Prensa Libre
+- El "Terrorismo" Como Herramienta de La Nueva Conquista Militar - Frentes de Conflicto - Agenda Secreta...
+- Encryption Does Not Prevent Mass-Snooping - Snake-Oil Alert!
+- End of Mayan Calendar, UFO Fleets and The CIA
+- FaceBook Knows More about You than the CIA
+- Family of Secrets - The Bush Dynasty
+- Fin del Calendario Maya, Flotillas de OVNIs y la CIA
+- Former CEO Reveals Blackwater Worked as 'Virtual Extension of The CIA'
+- Fukushima HAARP Nuclear Attack by CIA, DOE, BP for London Banks - Leuren Moret
+- Global Intelligence-Gate - From Confessions of An Economic Hit Man to The Stratfor Corporation
+- Government Agents Invent False Evidence to Destroy Reputations
+- Hidden Story Behind Jesse Ventura and Piers Morgans CNN Clash Over Obama CIA Ties
+- How Covert Agents Infiltrate the Internet to Manipulate, Deceive, and Destroy Reputations
+- How to Do what the CIA Already Did - Leave Your Body and 'Remote View' Something
+- In Desperation, The BIS and Vatican Bank Order Assassinations - But Mossad, The CIA and The Yakuza...
+- ¿Informes de Inteligencia o Pura Desinformación? - Como Saber La diferencia
+- Intelligence Briefs or Disinformation? - How to Tell The Difference
+- Intelligence Community Massive Digital Data Systems Initiative
+- Interlocking Agencies that Conspire to "Create Terror" - We Do Not Need the Police to "Create More...
+- Invasive Cyber Technologies and Internet Privacy - Big Brother is Only a "Ping" or Mouse Click Away
+- La Biografía Oculta de Los Obama - Una Familia al Servicio de La CIA
+- La Cruz Malta y La Sociedad Secreta Neonazi, CIA y Vaticano
+- La Desestabilización Sistémica - La Estrategia de La Tensión a Través del 11 Septiembre, el Asesinato...
+- Las Misteriosas Emisoras de Números que Transmiten en abierto Mensajes Codificados en todo el Mundo
+Italiano
+- La Storia del "Nazismo in Ucraina" - Chi è Stepan Bandera?
+- Leaked Documents show FBI investigated Ties between Mafia, Masons and Vatican in Assassination Plot
+- Lingering Questions About The Exit from The CIA of Gen. David Petraeus
+- Lost in The Cloud - Google and The U.S. Government
+- Mark Zuckerberg Awarded CIA Surveillance Medal - Facebook
+- Mars Exploration - May 22, 1984
+- Meet IARPA - Intelligence Advanced Research Projects Activity
+- MK-Ultra - The Monarch Project - Main File
+- Nakasone Caught Trying to Flee Japan in A North Korean Submarine CIA Sources Say
+- Nazis Were Given Safe Haven in U.S. - Report Says
+- Newly Released Obama Birth Certificate Forensic Forgery - Washington Times Report
+- New Studies say Conspiracy Theorists Sane - Government Dupes Crazy and Hostile
+- No Hay Dudas que Otto Reich, Sí Está Detrás del Plan de El Atentado Contra Capriles
+- NSA - National Security Agency - Extrapolate Postmodum Prosum - Updated
+- Obama Pre-Identified as President by Secret DARPA-CIA Time Travel Program
+- Obamas Choice of CIA Director Signals Renewed Effort to Disclose CIA X-Files
+- Operation Gladio - NATO's Secret Wars - Main File
+- 'Operation Warp Speed' is using a 'CIA-Linked Contractor' to keep Covid-19 Vaccine Contracts Secret
+- Osama bin Laden and The 9-11 Events - Main File
+- Osama bin Laden's Nose and Left Ear
+- Parapsychology In Intelligence - A Personal Review and Conclusions
+- President Kennedy's UFO Quest led to his Assassination and a Deep State Coup
+- Prince Charles Implicated in Murder of Princess Diana
+- Project Monarch - Nazi Mind Control - The Evolution of Project MKULTRA
+- Proyecto Stargate - Antiguos Alienígenas y la CIA
+- Psychological Operations - Principles and Case Studies
+- ¿Qué Pasará si Facebook y Google se Apoderan del Mundo?
+- Remote Viewing and The US Intelligence Community
+- Report on War on Terror Amid Crackdown on Whistleblowers - James Risen Prepared to "Pay Any Price"...
+- Secret Services - from "America's Subversion - The Enemy Within"
+- SIDA, Ebola, Kissinger, Rockefeller y La CIA
+- Siete Mentiras sobre Afganistán
+- Special Forces Unconventional Warfare Manual - 2010
+- Star Gate - A Remote Viewing Project - Main File
+- Stratfor Confidential Emails Published by WikiLeaks
+- Striving for Accountability in The Aftermath of The Holocaust - The Office of Special Investigations
+- Testimony of CIA Assassin Recruited From Navy SEALs Goes Online With Documents
+- The Adam and Eve Story - CIA Classified Document
+- The Central Intelligence Agency and Overhead Reconnaissance - The U-2 and OXCART Programs...
+- The Controversial Case of David Booth - Main File
+- The Doomsday Project and Deep Events - JFK, Watergate, Iran-Contra, and 9/11
+- The Doomsday Project, Deep Events, and The Shrinking of American Democracy
+- The Finders - Missing Children - A CIA Front Established in The 1960's
+- The History of 'Nazism in Ukraine' - Who is Stepan Bandera?
+- The Invisible Entity Behind The Global Uprising Taking Place
+- The Iraq October 2002 NIE on WMDs
+- The NGA - The Billion Dollar Spy Agency You've Never Heard Of - They Can See a 'Stick of Butter from Space'
+- The Opal File - The Round Table - Financial Takeover of Australia and New Zealand
+- The Open Source Revolution is Coming and It Will Conquer the 1% - Ex CIA Spy Says
+- The Pope's Banks in America, The Giannini Family and The CIA
+- The Robertson Panel - 1952-53 - Main File
+- The Secret History of The U-2
+- The Story of Obama - All in The Company
+- The Truth is Out There
+- The Unholy Alliance - Christianity and The NWO
+- The 'War on Terror' Is A Fraud
+- Top Secret America - A Hidden World Growing Beyond Control
+- Trump, la Russia e il Vero Nemico
+- Trump, Rusia y el Verdadero Enemigo
+- Uproar Over the '28 Pages' - The Saudi/CIA Connection?
+- "Vamos a Invadir 5 Países en 7 Años - Empezaremos Con Irak" - La Verdad Sobre Oriente Medio
+- Washington Wants "Regime Change" in Ecuador
+- Whistleblowers vs. The State
+- White House, CIA Deny Faking Iraq-Al Qaeda Letter
+- Who is Behind WikiLeaks?
+- Why Bush & The CIA Had John Lennon Killed - The Beatles, the Montauk Project, the Tavistock Institute...
+- Why Ex-Federal Government and Wall Street Executives are Going Into Hiding
+- Will The U.S. Attack Iran Before September 21 - 2007? - Are CIA Front Comp. Investing $4.5 Billion to...
+NED - National Endowment for Democracy
+- A CIA Trojan Horse - The National Endowment for Democracy
+- El Imperio estadounidense frena la 'Revolución' de Trump contra USAID y NED
+- Los Golpistas de 'Guante Blanco' promocionan la 'Democracia' en el Mundo
+- National Endowment for Democracy - Overt Arm of The CIA
+- The National Endowment for Democracy - What it is and What it Does
+Multimedia:
+- The CIA and The National Endowment for Democracy
+The CIA and Drugs
+- Can The US Triumph in The Drug-Addicted War in Afghanistan? - Opium, The CIA and The Karzai...
+- CIA Allegedly Using Drug Money to Overthrow Ecuador President Rafael Correa
+- CIA Has Resumed Drug Smuggling Ops in Afghanistan - Evidence Mounts
+- CIA "Manages" Drug Trade - Mexican Official Says
+- Dealing in Death - The CIA and The Drugs Trade - How the Agency Created America's Heroin and...
+- Drugs For Guns Connection - Arkansas Governor Bill Clinton, President George Bush and CIA Involvement
+- Drug War Hypocrisy - Drug Trafficking's Big Money Benefits Big Brother and Corrupt Banksters
+- Mena Connection - Clinton, Bush and the CIA Drug Smuggling
+Books-Treatises-Reports
+- Description of Personnel Associated "ET" Bases - CIA Stargate
+- George Bush - The Unauthorized Biography - by Webster G. Tarpley and Anton Chaitkin
+- Global Trends 2015 - A Dialogue About the Future With Nongovernment Experts - NIC
+- Global Trends 2020 - Mapping The Global Future - National Intelligence Council
+- Global Trends 2025 - A Transformed World - National Intelligence Council
+- Killing Hope - U.S. Military and CIA Interventions since World War II - by William Blum
+- La Manipulacion de Candy Jones - por Donald Bain
+- Moon Man - The True Story of a Filmmaker on the CIA Hit List - by Bart Siebrel
+- Operation Gladio - The Unholy Alliance between the Vatican, the CIA, and the Mafia - by Paul L. Williams
+- The Adam And Eve Story - The History of Cataclysms - by Chan Thomas
+- The CIA as Organized Crime - How Illegal Operations Corrupt America and the World - by Douglas Valentine
+- The CIA Covenant - Nazis in Washington - by Gregory Douglas
+- The Invisible Government - by David Wise and Thomas B. Ross
+- The Manchurian Candidate - The CIA and Mind Control - by John Marks
+- The Secret Team - The CIA and Its Allies in Control of the United States and the World - by L.F. Prouty
+Multimedia
+- An Unholy Alliance - Dealing With The Demon
+- CIA Officer Explains New World Order's Demise
+- CIA Sifts Social Media Sites
+- El Imperio Americano - Intervensionismo Internacional, Guerra Psicológica y la CIA
+- European Secrets of The CIA
+- How Economic Hitmen Enslave Nations For Generations
+- In Lies We Trust - The CIA, Hollywood and Bioterrorism
+- Operation Gladio Behind False Flag Terrorism
+- Operación Gladio - Los Maestros del Círculo
+- Operation Gladio - Full 1992 Documentary BBC
+- Secrets of The CIA
+- The Truth About Facebook - A CIA Profile Database
+Related Reports
+- False Flag Operations - Main File
+- Latin America and The Global Elite - Main File
+- Non-Lethal Weapons - "Psychotronics" and "Silent Sound" - Main File
+- Project Paperclip - Main File
+- The 9-11 Events - Main File
+- The Bushes' Clan and The New World Order - Main File
+- The Elite's Drug Management - Main File
+- The New World Order - Main File
+- The NSA - The Super Secret National Security Agency - Main File
+- 'War on Terror' - Main File
+- WikiLeaks - International New Media Non-Profit Organization - Main File
+Return to The Global Elite
+Return to Temas / Main Files
+Return to Big Brother Loves You...
+Return to The Secret-Shadow Government
+Return to The Council on Foreign Relations

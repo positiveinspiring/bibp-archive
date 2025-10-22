@@ -1,0 +1,49 @@
+# G-20 and BRICS Great Schism
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_brics13.htm
+
+by James Hall
+November 19, 2014 from BATR Website
+Global trade relationships and agreements are moving in very different directions.
+The public relations press releases hide the undercurrents that are driving the formations of alternative economic alliances. While the G 20, markets its all inclusive umbrella policy forums, the mere formation of a BRICS counterweight forecasts deep and fundamental differences.
+So what is really behind the creation of a different approach to the post WWII dominate U.S. lead model? A clue can be found in an attempt to modify the operations and direction of IMF functions.
+Announced in the Russian press, BRICS to propose IMF reform at G20 summit, is a pressure attempt to move the center of power away from current synergism.
+"At the G20 summit in the Australian city of Brisbane on November 15-16, Russia and other BRICS countries (Brazil, India, China and South Africa) will propose alternative solutions concerning the reform of the International Monetary Fund, involving, in particular, gradual implementation of reforms, Russian G20 Sherpa Svetlana Lukash told reporters. "The most important thing for us is the still unresolved G20 problem of the IMF reform," Lukash said.
+"At the G20 summit in the Australian city of Brisbane on November 15-16, Russia and other BRICS countries (Brazil, India, China and South Africa) will propose alternative solutions concerning the reform of the International Monetary Fund, involving, in particular, gradual implementation of reforms, Russian G20 Sherpa Svetlana Lukash told reporters.
+"The most important thing for us is the still unresolved G20 problem of the IMF reform," Lukash said.
+She recalled the U.S. Congress has yet to ratify the 2010 resolution.
+"Not only does it thwart the process of renewing the IMF in accordance with the current reality where we see a big rise in the role of emerging economies. It also prevents the decisions to double the IMF capital from coming into force," she said.
+The appearance of maintaining a working relationship among opposing interests may present an assuring PR message, but who really believes that the path to a new cold war is paved with mutual cooperation?
+Impetus for a parallel financial system is certainly based more on political objective than commerce or economic benefits.
+The Washington Post describes What the new bank of BRICS is all about in this manner.
+"Heads of state from Brazil, Russia, India, China, and South Africa (the so-called BRICS countries) agreed to establish a New Development Bank (NDB) at their summit meeting. They will have a president (an Indian for the first six years), a Board of Governors Chair (a Russian), a Board of Directors Chair (a Brazilian), and a headquarters (in Shanghai). What is the purpose of this BRICS bank? Why have these countries created it now? And, what implications does it have for the global development-finance landscape? The 'what' is relatively straightforward. The NDB has been given $50 billion in initial capital. As with similar initiatives in other regions (see below), the BRICS bank appears to work on an equal-share voting basis, with each of the five signatories contributing $10 billion. The capital base is to be used to finance infrastructure and "sustainable development" projects in the BRICS countries initially, but other low and middle-income countries will be able buy in and apply for funding. BRICS countries have also created a $100 billion Contingency Reserve Arrangement (CRA), meant to provide additional liquidity protection to member countries during balance of payments problems. The CRA - unlike the pool of contributed capital to the BRICS bank, which is equally shared - is being funded 41 percent by China, 18 percent from Brazil, India, and Russia, and 5 percent from South Africa."
+"Heads of state from Brazil, Russia, India, China, and South Africa (the so-called BRICS countries) agreed to establish a New Development Bank (NDB) at their summit meeting.
+They will have a president (an Indian for the first six years), a Board of Governors Chair (a Russian), a Board of Directors Chair (a Brazilian), and a headquarters (in Shanghai).
+What is the purpose of this BRICS bank? Why have these countries created it now? And, what implications does it have for the global development-finance landscape?
+What is the purpose of this BRICS bank?
+Why have these countries created it now?
+And, what implications does it have for the global development-finance landscape?
+The 'what' is relatively straightforward.
+The NDB has been given $50 billion in initial capital. As with similar initiatives in other regions (see below), the BRICS bank appears to work on an equal-share voting basis, with each of the five signatories contributing $10 billion.
+The capital base is to be used to finance infrastructure and "sustainable development" projects in the BRICS countries initially, but other low and middle-income countries will be able buy in and apply for funding.
+BRICS countries have also created a $100 billion Contingency Reserve Arrangement (CRA), meant to provide additional liquidity protection to member countries during balance of payments problems.
+The CRA - unlike the pool of contributed capital to the BRICS bank, which is equally shared - is being funded 41 percent by China, 18 percent from Brazil, India, and Russia, and 5 percent from South Africa."
+China's motivation to participate in BRICS banking is most interesting and revealing.
+Since it is not absolutely essential for China to be a member of BRICS, Gudrun Wacker, from the German Institute for International and Security Affairs presents this finding in a report, China's role in G20 / BRICS and Implications, may shed an insight on their reasoning.
+"The future of BRICS depends on the future performance of the G7/8 and G20: If the G20 develops into a real coordination mechanism, there might be less Chinese interest in BRICS. The future prospects of BRICS were presented as less promising than those of the G20, since BRICS will not be able to solve global problems. It is not yet clear whether the main deliverable of BRICS will be directed at cooperation among its members or at third countries. While the idea of BRIC as a group was originally picked up by Russia (the invitation to the first summit, as a move toward "extension" of the strategic triangle Russia, China. India?), its members are now all active in certain fields. For China, it is also an important effort to emerge from its isolation (Copenhagen climate summit). Another factor shaping the future of BRICS might be the development of US-China relations: While all interview partners agreed that BRICS does not aim at creating a new, anti-Western world order, it can be seen as a response to the US-led world order."
+"The future of BRICS depends on the future performance of the G7/8 and G20: If the G20 develops into a real coordination mechanism, there might be less Chinese interest in BRICS.
+The future prospects of BRICS were presented as less promising than those of the G20, since BRICS will not be able to solve global problems. It is not yet clear whether the main deliverable of BRICS will be directed at cooperation among its members or at third countries.
+While the idea of BRIC as a group was originally picked up by Russia (the invitation to the first summit, as a move toward "extension" of the strategic triangle Russia, China. India?), its members are now all active in certain fields.
+For China, it is also an important effort to emerge from its isolation (Copenhagen climate summit).
+Another factor shaping the future of BRICS might be the development of US-China relations: While all interview partners agreed that BRICS does not aim at creating a new, anti-Western world order, it can be seen as a response to the US-led world order."
+The methodology of Mr. Wacker's research relied upon comments from interviews.
+Relying on sentiments that BRICS goal is not bent on developing a counterbalance to Western banking hegemony is poppycock. Geopolitical dimensions in international affairs have Russia as the latest bogyman. Any economic analysis that ignores power brokers desperate attempt to shift the causes of a failing world economy onto the backs of enemy nations is flawed.
+Also, the notion that major economic transnational corporatists operate with altruism for third world countries is sheer lunacy. All these trade organizations are attempts to position vying interests to settle for a subservient role to a subordinate structure under a global debt creation banking system.
+Attempts to scare the populist into believing that Global Warming inaction raises specter of war over climate change are absurd.
+"At the G20 summit, other nations overrode host Australia's attempts to keep climate change off the agenda and agreed to call for strong action with the aim of adopting a binding protocol at the Paris conference."
+Such initiatives are pure political "PC" orthodoxy and actually diminish prosperity.
+The great schism in trade among nations is that some countries are not willing to lie down with diseased parasites. This should not be construed to favor the emergence of the BRICS union as a shining future.
+However, what it does purport is that the road to the NWO modeling for globalism by entrenched financial elites has produced opposition.
+Conflict is the normal human condition, and especially when money is used as a medium of world control and domination is the goal. The G20 is useless. Breaking the banking monopoly that fosters endless terror and war is the universal objective for the inhabitants of this planet.
+Another unsavory photo op for world leaders just produces more nausea.
+Return to The BRICS

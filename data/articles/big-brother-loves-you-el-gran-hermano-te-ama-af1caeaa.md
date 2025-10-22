@@ -495,6 +495,7 @@ Italiano
 - "Vivimos Hiperconectados y eso permite que Controlen nuestra Mente"
 - War for Total Control - Planning the Ultimate 'Big Brother' Surveillance Society
 - WEF calls for '24-Hour Monitoring' of the Public
+- WEF- World Economic Forum - Main File
 - We Just Don't Trust You - Note to President Obama
 - Welcome, Big Brother - Iris Scanners Create The Most Secure City in The World
 - Welcome to the Mass Surveillance State through Microchipping Pills!

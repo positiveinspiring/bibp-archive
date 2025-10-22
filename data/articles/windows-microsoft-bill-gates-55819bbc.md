@@ -1,0 +1,533 @@
+# Windows-Microsoft-Bill Gates
+
+> Source: https://www.bibliotecapleyades.net/SOCIOPOLITICA/sociopol_win-micro-gates.htm
+
+Contents
+- A deleted 'Bill Gates Documentary' has been Revived
+- Aldous Huxley foresaw our Despots - Fauci, Gates, and their Vaccine Crusaders
+- Archons - The Secret Pact
+- Arcontes - El Pacto Secreto
+- "Banco Semillero del Día del Juicio Final" en El Ártico - Bill Gates, Rockefeller y Los Gigantes de La...
+- Baúl de Semilla Global de Svalbard - Genética, Agroindustria y Planes de Exterminación
+- Bill and Melinda Gates to Divorce after 27 years of Marriage
+Italiano
+- Bill e Melinda Gates Divorziano dopo 27 anni di Matrimonio
+- Bill Gates and Rockefeller Brothers are Funneling Millions to Chinese Communist Party - Docs Show...
+- Bill Gates Backs Climate Scientists Lobbying for Large-Scale Geoengineering
+- Bill Gates Calls for Farmers to Be Replaced with 'Smart Farming' A.I. Technology
+- Bill Gates 'Carefully Curated Geek Image' Crumbles on His Own Smug Immorality
+- Bill Gates Charged with Murder for COVID-19 Vaccine Death in India's High Court - Death Penalty Sought
+- Bill Gates, China, 23andMe and your DNA
+- Bill Gates' Climate Fantasies
+- Bill Gates "defends" Free Speech - Unless it hurts His Investments...!
+- Bill Gates - Dictador Mundial con Perfil de Delincuente Peligroso
+- Bill Gates 'Digital IDS' will be Mandatory to Participate in Society
+- Bill Gates - Dittatore Mondiale con il Profilo di uno Scellerato Criminale
+- Bill Gates Exposed for Funding Research and Promotion of Spraying Geo-Engineered 'Chemtrails' Across...
+- Bill Gates - Eugenicist Extraordinaire
+- Bill Gates Foundation funded China's Genomics firm 'Mining DNA Data' through COVID Tests
+- Bill Gates "Guerrero" del Clima y Super Emisor
+- Bill Gates improvvisamente abbandona la "Storia del Disastro Climatico" mentre le popolazioni Respingono...
+- Bill Gates Lays Out Plan for Global Takeover
+- Bill Gates: Math = 'White Supremacy'
+- Bill Gates (Microsoft) Admite en TED La Necesidad de Eliminar Población
+- Bill Gates, MOSIP y el Sistema Digital de Identificación Global en America Latina
+- Bill Gates - Most Dangerous Philanthropist in Modern History?
+- Bill Gates - One of The World's Most Destructive Do-Gooders?
+- Bill Gates promueve el "Cero Neto" ("Net Zero") como Solución al Cambio Climático
+- Bill Gates promueve la "Agricultura de Vigilancia" - Vandana Shiva
+- Bill Gates propone di Rimpiazzare gli Agricoltori con Tecnologia di I.A. "Agricoltura Intelligente"
+- Bill Gates' relationship with Convicted Pedophile Jeffrey Epstein revolved around a 'Global Health Investment...
+- Bill Gates says COVID-19 could be the "Last" Pandemic
+- Bill Gates Spills the Beans!
+- Bill Gates suddenly Abandons 'Climate Doom Narrative' as populations Push Back against Globalism
+- Bill Gates, TED, and Edu-Propaganda
+- Bill Gates' "Unsolvable Problem" is Free Speech...!
+- Bill Gates unveils details of 'intriguing Dinner' with Trump
+- Bill Gates vuole Far Sparire le "Teorie della Cospirazione" contro di lui
+- Bill Gates vuole realizzare una 'Visione Globale' durante la sua Vita
+- Bill Gates wants "Conspiracy Theories" about him to Go Away...
+- Bill Gates wants to realize 'Global Vision' in his Lifetime
+- Bill Gates' Web of Dark Money and Influence
+- Bill Gates - WEF's Champion of Global ID and Digital Cash
+- Bill Gates y Blackrock invierten en la Tecnología de Hidropaneles que fabrican Agua de la Nada
+- Broken by Design - Why the Elites want Everything and Everyone to have an "Expiry Date"
+- Cómo Bill Gates COMPRA a los Medios de Comunicación, a Periodistas y a 'Verificadores de Hechos'
+- Cómo Empuja la Fundación Gates al Sistema Alimentario en la Dirección Equivocada
+- Conocedora de la OMS llama la Atención sobre Bill Gates y GAVI
+- CREEPY Bill Gates Strikes Again with Windows 10
+- "Doomsday Seed Vault" in The Arctic - Bill Gates, Rockefeller and The GMO Giants Know Something We...
+Español
+- El 'Gran Reinicio' al Descubierto - Schwab, Gates y el Siniestro Complot del FEM y la OMS para Despoblar el...
+- 'End Times Villain' Bill Gates going forward with Plan to 'Block Out the Sun'
+- Event 201 - 'Bill and Melinda Gates Foundation' run a Coronavirus Pandemic Simulation 3 Months Ago!
+- Every Person on Earth Should 'Prove their Identity' with 'Digital ID' - Bill Gates
+- From Bill Gates to "The Great Refusal" - Farmers on the Frontline
+- From "Event 201" to "Cyber Polygon" - The WEF's Simulation of a Coming "Cyber Pandemic"
+- Gated Development - Is the Gates Foundation always a Force for Good?
+- Gates and Kissinger - On Same Path to Population Control
+- Gates - Buy Stamps to Send E-mail - Paying For E-mail Seen as Anti-Spam Tactic
+- Gates e Kissinger - Lo stesso Cammino per il Controllo della Popolazione
+- Gates è sofferente per la CO2 e Demenza Virale
+- Gates, Fauci, Daszak 'Charged with Genocide' in International Criminal Court
+- Gates Foundation Accused of 'Dangerously Skewing' Aid Priorities by Promoting 'Corporate Globalization'
+- Gates-Funded Experiment to Spray Atmosphere With Sulphur Particles
+- Gates' Keepers of Journalism - What Happens when Billionaires 'Buy' the News?
+- Gates Suffers from CO2 and Viral Dementia
+- Global Elite committing Crimes against Humanity
+- Global Threat - Gates Foundation gets 'Diplomatic Immunity' in Kenya - 'Big Red Flag'
+- "Go talk to Bill Gates about Me" - How JP Morgan enabled Jeffrey Epstein's crimes and gained a meeting with...
+- Guardianes del Periodismo de Gates...
+- "Guardianes Periodistas" de Bill Gates Finalmente lo Exponen...
+- ¿Hartos de la Frivolidad? - Hablar sin Ambages de temas considerados hasta hace poco como el culmen de...
+- Health Officials admit Bill Gates runs the World
+- High Court strips 'Bill & Melinda Gates Foundation' of its legal "Immunities and Tax Exemptions" in Kenya
+- Hillary and Bill... Gates
+- How Bill Gates and Big Pharma used Children as "Guinea Pigs"... and Got Away with It
+- How Bill Gates BUYS Mainstream Outlets, Journalists and 'Fact-Checkers'
+- How the Bill Gates Foundation is Genetically Manipulating Nature and Devastating Our Health
+- How to Avoid a Climate Disaster - by Bill Gates
+- "Il Caveau Semi per il Giorno del Giudizio nell'Artico" - Gates, Rockefeller e i Giganti OGM Sanno Qualcosa...
+- Il Web di Bill Gates del Dark Money e dell'Egemonia
+- Información Privilegiada de la OMS denuncia a Bill Gates y a la Dictadura de la Salud Global de GAVI
+- Is Bill Gates a Psychopath?
+- Jennifer Gates se sincera sobre el Divorcio de sus Padres
+- Journalism's Gates Keepers...
+- Just Who Exactly Benefits Most from the Global Giving of Billionaires like Bill Gates?
+- La Agricultura del Carbono - ¿"Genial" para los Gigantes Agroquímicos y los inversores como Bill Gates, pero...
+- La Élite Global Sorprendida 'In Fraganti' cometiendo Crímenes Genocidas contra la Humanidad
+- La Estafa de la "Revolución Verde" de Gates/Rockefeller al Descubierto
+- La ONU lanza un 'Programa Mundial de Identificación Digital' financiado por Gates
+- La Organización Mundial de la Salud planea imponer la "Agenda de Salud Global" de Gates y Big Pharma...
+- 'La più Grande Folla nella Storia della Germania' Insorge contro Bill Gates e Big Pharma
+- 'Largest Crowd in German History' Rises Up against Bill Gates and Big Pharma
+- Las Artimañas de Bill Gates y Anthony Fauci
+- Lawyers promise 'Nuremberg Trials' Against all behind COVID Scam
+- Legal Team wants 'Second Nuremberg Tribunal' to try Global Lockdown Promoters for Crimes Against Humanity
+- Lo chiamano il 'Good Club' - E vogliono 'Salvare' il Mondo...
+- L'ORRIPILANTE Bill Gates colpisce Ancora con Windows 10
+- Los Dictadores deberían Temer a la IA
+- Los Lunáticos se han Apoderado del Asilo
+- Machines of War - Blackwater, Monsanto, and Bill Gates
+- Máquinas de Guerra - Blackwater, Monsanto y Bill Gates
+- Melinda Gates era "Furiosa" per la Relazione di Bill con Jeffrey Epstein
+- Melinda Gates renuncia a la Fundación Gates - Obtiene 12.500 mill. de dólares - Lanza su propia Fundación
+- Melinda Gates was 'Furious' about Bill's relationship with Epstein
+- Microsoft Aiutava Prism a Spiare
+- Microsoft Buys Eugenics Technology From Merck - Becomes Drug Development Partner With Top Global...
+- Microsoft Buys Skype and a Future in Telecommunications
+- Microsoft Collects Phone Location Data Without Permission - Says Researcher
+- Microsoft Curbs Wi-Fi Location Database
+- Microsoft, FBI and DHS Team Up to Fight Cybercrime
+- Microsoft says New A.I. shows Signs of Human Reasoning
+- Microsoft Wants to Know How Many Friends You've Got in Your Living Room - Big Brother Alert
+- Microsoft Warns of 'Orwellian Future' as WikiLeaks Exposes Participation with Surveillance
+- "Mi Nombre es Bill Gates, Rey de Reyes"
+- No Shame - Bill Gates Another Global Warmer?
+- NSA Leaks Hint Microsoft May Have Lied about Skype Security
+- Nuestros Malévolos Benefactores y su Plan Maestro para la Humanidad
+- 'Nuevo Sistema Alimentario Controlado' ya está en Marcha y No se Detendrán Ante Nada para Acelerar su...
+- Piden Investigación Internacional por las Prácticas "Oscuras" de la Fundación de Bill Gates
+- ¿Por qué Bill Gates No Usa una Máscarilla?
+- Quien Controla el Suministro de Alimentos, Controla a la Gente
+- Ricchi e Buoni? - Le Trame Oscure del Filantrocapitalismo
+- Robert F. Kennedy Jr. and 'The Real Anthony Fauci'
+- Segundo Juicio de Nuremberg - Reiner Fuellmich anticipa una Victoria de la Humanidad
+- Skype With Care - Microsoft is Reading Everything You Write
+- Sorry Gates - GMO Crops Proven to Be Ineffective at Fighting World Hunger
+- The (Bill) Gates of Hell Foundation
+- The Billionaires that Made our World - Bill Gates
+- The "Blue Screen of Death" could throw the Global Economy into a State of Chaos for Weeks
+- The Covid-19 Power Grab as "Organized Crime" - A Multi-faceted Deception
+- The Gates Foundation's Hypocritical Investments
+- The Great Reset Exposed - Schwab, Gates, and the Sinister WEF and WHO Plot to Depopulate the World
+- The Lunatics have Taken Over the Asylum
+- The Names and Faces - The 150 Bilderbergers who Influenced and Controlled the Response to COVID-19
+- The (New) God Delusion - Bill Gates
+- The Real Agenda of The Gates Foundation
+- The Real Anthony Fauci - Bill Gates, Big Pharma and the Global War...
+- The Snakes are Coming Out - The Masks begin to Fall Off...!
+- The Truth about Melinda Gates
+- They're called the 'Good Club' - And they want to 'Save' the World...
+- Thousands of Japanese Citizens flood streets to Protest WHO, WEF, Bill Gates, Vaccines...
+- U.N. and Bill Gates behind "Digital Public Infrastructure" for Global Control
+- Un "Enemigo Común" Colectivo acecha ahora a la Humanidad
+- U.N. Rolls Out Bill Gates' "Digital ID" in Sierra Leone
+- Vandana Shiva on the Taking Down of Bill Gates' Empires
+- Video shows Bill Gates admitting "Clean Energy" solving Climate Change is a SCAM
+- War of Words and a 'Rich Ugly Monster'...
+- Who will eventually 'Own Everything' including You?
+- Why is Bill Gates a Psychopath?
+- Why we Must #ExposeBillGates
+- Why won't Bill Gates Wear a Mask?
+- Worldwide Digital IDs will be Required to Participate in Society by 2030
+- You'll Never Guess Which Dangerous Ingredient is in Gates' New Contraceptive Implant
+Additional Information
+- Big Tech Companies agree to Work together in 'Internet Freedom Crackdown'
+- Bill Gates tacitly Admits his 'Common Core Experiment' was a Failure
+- Bioethics and the New Eugenics
+- Bioética y la Nueva Eugenesia
+- Common Core - A Scheme to Rewrite Education
+- Controligarchs - Exposing the Billionaire Class, their Secret Deals, and the Globalist Plot to... - by Seamus Bruner
+- Covid - Bioética, Eugenesia y Paneles de la Muerte - Una Advertencia...
+- Detect Computer and Email Monitoring
+- Geoengineers to Release Planet-Cooling Gas into New Mexico Atmosphere
+- George Soros is Backing 'Climate activist' Greta Thunberg
+- George Soros is Backing Greta Thunberg
+- How to Explain Technocracy to Idiots
+- Is There Any Hope for A Non-Genetically Modified Future in America or Africa?
+- I Tried to Interview Greta Thunberg - The most fervent Supporter of the "Climate" know Nothing about "Climate"
+- JPMorgan lanzará un Sistema de Pago Biométrico como próximo paso en la Vigilancia Financiera Orwelliana
+- Just Another Emperor? - The Myths and Realities of Philanthrocapitalism
+- La Filantropia è Nemica della Giustizia
+- La Filantropía es Enemiga de La Justicia
+- La Globalizacion de Microsoft - Entrevista de Corporate Watch con Noam Chomsky
+- Latest Docs Show Financial Ties Between NSA and Internet Companies - Google, Yahoo, Microsoft and...
+- Latest Reason to Quit Hotmail - Microsoft Admits To Spying on It
+- Majesterium and The Tipping Point
+- Microsoft and The Bavarian Illuminati
+- Microsoft President Threatens that Orwell's '1984' could Happen in 2024
+- More Hack Attacks Coming as Microsoft Slams Government Secrecy
+- Philanthropy Is The Enemy of Justice
+- Science is Not to Be Trusted
+- Showing Up for Life - by Gates Sr.
+- Sites Feed Personal Details to New Tracking Industry
+- The Illuminati Pledge of Allegiance
+- We Need Wiretap-Ready Web Sites Now - Says the FBI
+- World Bank Nominee Tied to Monsanto Shareholder Bill Gates and Soros
+Bill Gates, Big Pharma, The WHO, Vaccines and Covid-19 - La OMS, las Vacunas y Covid-19
+- A Closer Look at "The Gatekeepers" of Medical Research
+- After Covid, Monkeypox - The Same Circus again...?
+- Alcuni Stati degli USA cercano di deporre Fauci ed altri Alti Funzionari nel Caso della Censura BigTech del...
+- A Message about Suicide to the Pod People Wearing Masks
+- Así se Financia la OMS - La Influencia de Bill Gates en las Decisiones sobre la Salud Mundial
+- Autoassemblaggio di Strutture in Tempo Reale rivelate in 2 Anni di Studio su Iniezioni di Pfizer e Moderna per...
+- Before COVID Gates planned Social Media Censorship of 'Vaccine Safety Advocates' with Pharma, CDC, Media...
+- Biggest Lie in World History - There Never Was a 'Pandemic'
+- Bill Gates 'Accordo per Brevetto Covid' con Moderna
+- Bill Gates admits 'Testing Nanotech on Public' with mRNA Vaccines
+- Bill Gates admits Vaccines are Used for Human Depopulation
+- Bill Gates advances 'Plan to Vaccinate Public without Consent'
+- Bill Gates and WHO call for Military to Round Up mRNA Vaccine Refusers during Bird Flu "Pandemic"
+- Bill Gates awards Researchers for Development of Electrically Spun Cloth Whose Fibers Deliver...
+- Bill Gates Buys Positive Press Spin on Vaccines and GMOs
+- Bill Gates 'Covid Licence Agreement' with Moderna
+- Bill Gates Demands the Right to Censor 'Insane People' who Oppose him on the Internet
+- Bill Gates dice que las Vacunas pueden ayudar a Reducir la Población Mundial
+- Bill Gates doesn't want you to Hear what the JAPS had to say about the COVID-19 Vaccine
+- "Bill Gates' Dream" to Control the Planet through the World Health Organization is becoming Closer to Reality
+- Bill Gates 'DTP Vaccine' killed 10 Times more African Girls than the Disease Itself - Study
+- Bill Gates - El Peor Mal de la Tierra
+- Bill Gates è Scioccato dal fatto che Non Piace alle Persone o non Hanno Fiducia in Lui
+- Bill Gates forse è stato Ingannato...?
+- Bill Gates funded Bioweapons Experiments to spread Bird Flu to Humans
+- Bill Gates funding MIT Development of Micro Implants to Automatically Give Babies Vaccines
+- Bill Gates funds Covert Vaccine Nanotechnology
+- Bill Gates incontra Boris Johnson per discutere lattuazione del "Programma Globale del Vaccino per Covid-19
+- Bill Gates in Global Push to Vaccinate Every Child On The Planet
+- Bill Gates Insider blows whistle on Coming 'Wave' of 'Unprecedented Deaths' among Vaxxed
+- Bill Gates is Shocked that People don't Like or Trust Him
+- Bill Gates meets with Boris Johnson to discuss implementing "Covid-19 'Global' Vaccine Program"
+- Bill Gates planea un "Nuevo Contagio Catastrófico"
+- Bill Gates plans for New "Catastrophic Contagion"
+- Bill Gates Pushing for 7 Billion Mandatory Experimental RNA Injections that Re-program Human Cells
+- Bill Gates Says Global Vaccination Program is "God's Work"
+- Bill Gates Says Vaccines Can Help Reduce World Population
+- Bill Gates - The Ugliest Evil on Earth
+- Bill Gates' Vaccine Crime Record - 496,000 Paralyzed Children in India and More...
+- Canada advances Plan to 'Vaccinate' Public with Bill Gates-Funded Covid mRNA Aerosols
+- Caught Red Handed - Fauci, Gates and Moderna responsible for COVID Pandemic
+- Censored Autopsies Study confirms Covid 'Vaccines' caused 74% of All Deaths
+- Chief Executive of GAVI Wants to 'Immunize Every Kid on Earth'
+- COVID-19 and Bill Gates - Puppet Master Gaslights Millions
+- Dear Anti-Vaxxers: Ask yourselves this... Why-oh-why would Bill Gates and Big Government want to Monitor...
+- ¿Demasiado Poco y Demasiado Tarde? - India Enfrenta a la CDC
+- Detengan el Holocausto
+- Did Bill Gates just Reveal the 'Reason Behind the Lock-Downs'?
+- Digital Vaccine Certificates after Continued Lockdown - Plans for Post-Coronavirus World
+- Documentary Unveils Disturbing Vaccine Contamination - Plandemic
+- Dr. Anthony Fauci plotted 'Global Vaccine Action Plan' with Bill Gates before pushing 'COVID Panic Treatments'
+- Dr. Anthony Fauci's Ties to George Soros, Bill & Hillary Clinton, the WHO, Bill Gates & the 'Big Pharma Mafia'
+- El Distanciamiento Social de la Democracia
+- El Futuro de las Vacunas
+- El Mito de las Vacunas - Sus Peligros y Consecuencias
+- El Plan de Bill Gates para Vacunar al Mundo
+- Embalmers finding Numerous Long, Fibrous Clots that lack Post-Mortem Characteristics - Covid Vaccines
+- Enabling a Global Health Dictatorship - The WHO 'Pandemic Treaty' and Amendments to the I.H.R.
+- Expert or COVID-19 Accomplice? - The Fauci Files
+- 'Flying Syringe' Mosquitoes Get Bill Gates Funding
+- Former Bill Gates Vaccine Scientist predicts sharp Population Decline - "Up to 30-40% in highly vaccinated
+- Gates Foundation/CFR Propaganda Against 'Anti-Vaccine' Movement Backfires
+- Gates Foundation Funds Surveillance of Anti-Vaccine Groups
+- Gates Foundation Partner Forces Vaccines on Malawian Children at Gunpoint and Arrests Parents
+- Gates Foundation to accelerate Modified mRNA DEATHVAX Innovation and Manufacturing in Africa and Globally
+- Gates, GAVI, and WHO Administered Fake Malaria Vaccines to Asia, India and Africa
+- Geneva - The Head of the Snake
+- "Globalists Doomed" as Trump cuts U.S. Funding to WEF and UN Agenda
+- Hallazgo de 'Nanobots' en Vacunas Covid en 96 Millones de Ciudadanos en Japón - Estado de Emergencia
+- Has Mr. Bill Gates been Fooled...?
+- How Bill Gates and Partners used their Clout to Control the Global Covid Response - With little Oversight
+- How Bill Gates monopolized Global Health
+- How Long Do the Vaccinated Have to Live?
+- I Certificati Digitali del Vaccino dopo un Blocco Continuo - Piani per il Mondo Post Coronavirus
+- Il Culto del Covid e i 10 Piani di Genocidio
+- Il Dr. Anthony Fauci ha tracciato il Piano per il Vaccino Globale con Bill Gates prima di spingere "I trattamenti...
+- Is WHO Director Tedros a Terrorist? - Global Ties to Bill Gates, Clinton Foundation, Dr. Fauci, China and...
+- It's Time to Dismantle 'WHO' the World Health Organization
+- It's Time to Launch an Investigation into the 'Bill and Melinda Gates Foundation' for 'Crimes Against Humanity'
+- Japan declares State of Emergency after 'Nanobots' found in 96 Million Citizens' Covid Vaccinated
+- Japan declares State of Emergency - 'Nanobots' found in 96 Million Citizens' Covid Vaccinated
+- La Corrupción de la Ciencia - El Escándalo del 'Estudio de The Lancet' sobre la Hidroxicloroquina
+- La Farsa y Diabólica Agenda de "Un Bloqueo Universal"
+- La Insistencia de Bill Gates Para Vacunar a Cada Niño en El Planeta
+- La OMS Utilizará Vacunas Contra La Polio Para Despoblar Naciones Subdesarrolladas
+- La Organización Mundial de la Salud es Controlada por Grupos Privados
+- La Organización Mundial de la Salud (OMS) declarada Terrorista por miembro del Parlamento Europeo
+- La Organización Mundial de la Salud, OMS - ¿Una Organización Delictiva?
+- La Pandemia del Coronavirus COVID-19 - El Verdadero Peligro es la "Agenda ID2020"
+- La Verdadera Agenda detrás de la Enloquecida Carrera por Inyectar a todos los Niños del Planeta
+- Lo que se Renombró como "COVID" siempre ha sido solo una Variación de Enfermedad Similar a la Influenza
+- Los Antivacunas suponen un Serio Desafío para los Planes de la OMS
+- Los Miles de Millones de Bill Gates ¿están Distorsionando los Datos de Salud Pública?
+- Mosquitos usados como "Jeringas Voladoras" reciben Financiación de Bill Gates
+- mRNA Vaccines - A Fantastic Fairy Tale
+- Never Forget - For 2 Years, Tyrants Locked us Down, forcibly Medicated us, and Destroyed our Livelihoods
+- NIH-Moderna Confidential Agreements
+- No Creerás lo que Planean Hacer con las "Vacunas" para el Covid-19
+- No hubo 'Pandemia'
+- Nuremberg 2.0 - Update on legal proceedings against the CDC, WHO and Davos Group
+- Nuremberg Trial 2.0' is in Preparation - WHO and World Leaders will have to Answer for 'Crimes Against...'
+- 'One Health' - La Toma de Control Global de Todo - La OMS y Bill Gates
+- 'One Health' - The Global Takeover of Everything - The WHO and Bill Gates
+- 'One Health' will give WHO's Dictator General power to initiate Climate Lockdowns
+- Over 2 Billion will Suffer Gruesome Vaccine Injuries - World War 3 Global Catastrophe - Dr. David E. Martin
+- 'Pandemic and Erosion of Freedoms' have been Decades in the Making - A Timeline
+- 'Pandemic' Lessons Learned - Omicron vs. Bill Gates
+- Patent WO 060606
+- Por qué la OMS es una Organización Corrupta y Dañina
+- President Trump deals 'Huge Blow to Bill Gates' - Withdraws support from 'China-Centric' COVAX
+- Programmed Death - mRNA Vaccine Nanoparticles used to Control Appetite and Emotions in Populations
+- Real-Time Self-Assembly Structures revealed in 2-Year Study of Pfizer and Moderna Covid-19 Shots
+- States Seek to Depose Fauci - Other Top Officials in Big Tech-Government Censorship Case
+- Stop Holocaust
+- Sweden is 3 Weeks Away from 'Herd Immunity' after Refusing a Total Lockdown
+- ¿Tenemos Motivos para Pensar que las Vacunas de Bill Gates podrían tener Agentes Anti-fertilidad?
+- Ten Reasons that SARS-CoV-2 is an 'Imaginary and Theoretical Virus'
+- The Back Door to "Global Tyranny" - The World Health Order (WHO) and the "Global Pandemic Treaty"
+- The Coronavirus COVID-19 Pandemic - The Real Danger is "Agenda ID2020"
+- The Corruption of Science - The Hydroxychloroquine 'Lancet Study' Scandal
+- The Covid Cult and the 10 Stages of Genocide
+- The Farce and Diabolical Agenda of a "Universal Lockdown"
+- The Law Begins to Hammer on Vaccinationists
+- There Was No 'Pandemic' - An essay by Denis Rancourt
+- The Scheming of Bill Gates and Anthony Fauci - A 'Formidable and Nefarious' Partnership
+- The Truth about Bill Gates, Microsoft, and Jeffrey Epstein - The Cover-Up Continues
+- The United Nations forced to admit 'Gates-funded Vaccine' is causing 'Polio Outbreak' in Africa
+- The WHO and Big Pharma - Building a Permanent Pandemic Market
+- Un "Grupo de Sociópatas" está Impulsando la Vacunación Masiva - Dice médico defensor de la Hidroxicloroquina
+- UNICEF Using African Refugee Crisis to Target 300,000 Kenyan Children for Vaccination
+- United Nations and Bill Gates Foundation Push Deadly HPV Shots on Poor Nations Under 'GAVI Alliance'
+- Untested Vaccines Causing New Wave of Polio-Like Paralysis Across India - The Bill and Melinda Gates...
+- U.S. Surgeon General Drops Outdated WHO-CDC 'Gates Pandemic Model'
+- Vaccine Billionaires and Human Guinea Pigs
+- What was Rebranded as "COVID" has always just been a Variation of Influenza-Like-Illness (ILI)
+- When will the Criminals be Arrested?
+- WHO Director Must Resign Now - U.S. Congress
+- Who owns the World Health Organization and their Plan to Vaccinate the Planet?
+- Who the Hell is Bill Gates and Who Gave Him so much Power Over the People?
+- WHO will use Polio Vaccines to Depopulate Underdeveloped Nations
+- World Health Organization - Gates Foundation now Second Largest Funder after U.S. Government
+- Yes, Bill Gates Said 'That'... - Here's the Proof
+Books-Treatises:
+- How to Prevent the Next Pandemic - by Bill Gates
+- One Nation Under Blackmail - Vol. 1 and Vol. 2 - by Whitney A. Webb
+- The Bill Gates Problem - Reckoning with the Myth of the Good Billionaire - by Tim Schwab
+- The Treason of the Experts - Covid and the Credentialed Class - by Thomas Harrington
+Multimedia:
+- Asesinato con Vacunas - Demanda contra Bill Gates
+- Bill Gates destroza las Vacunas Actuales de COVID - Se burla de una Nueva Opción
+- Cómo la OMS fue Secuestrada por Donantes Privados
+- 'Cutting Off the Head of the Snake' in Geneva
+- Entrevista a Rashid Buttar - Covid-19 y el Engaño a Nivel Mundial
+- Fact Checking the 'Fact Checkers' - Bill Gates, ID2020 and Vaccine Microchips
+- Gates, Fauci and Covid-19 - Exposure of a Fake Pandemic, Economy Collapse and Vaccines
+- George Soros y Bill Gates están detrás de la 'Pandemia' Covid-19 - Señala el periodista Javier Villamor
+- Greetings, Useless Eaters - A Message from your 'Global Human Health Overlord'
+- Interview with Rashid Buttar - Covid-19 and Global Deceit
+- Laura Eisenhower - Mensaje a 'Los Controladores Oscuros'
+- Laura Eisenhower - Message to 'The Dark Controllers'
+- Nuovo Ordine Mondiale, Covid-19 e la Fondazione Gates - Sara Cunial
+- ¿Qué se está Negociando en estos momentos en la OMS y cuáles son sus Implicaciones?
+- ¿Quien es el Conspirador ahora?
+- Vernon Coleman - Esto no Podría posiblemente Suceder - ¿Verdad?
+- Vernon Coleman - This Couldn't Possibly Happen - Could it?
+- WHO, GAVI and Covid-19 - Audition with Dr. Reiner Füllmich for International Lawsuit Nuremberg II
+Climate Change - Cambio Climático
+- Bill Gates' creepy and costly 'Plan to Destroy the Atmosphere' and store CO2 Underground moves forward in Can...
+- Bill Gates funded Solar Geoengineering causing Global Warming Effects
+- Bill Gates gives speech Demanding Action on Climate Change to 'Elites' who Flew in on Private Jets
+- Bill Gates pushes Vaccinations in Food Supply to 'Fight Climate Change'
+- Bill Gates quiere Rociar Millones de Toneladas de Tiza en la Estratosfera para frenar el "Calentamiento Global"
+- Bill Gates says it's OK for him to use Private Jets because he's "The Solution" to Climate Change
+- Bill Gates' Vision of Combating Climate Change is Mostly Myopic, Out of Touch, and a Little Bit Scary
+- Climate Change is a Fact... It's also a Fact that Humans are Not Causing It
+- "Clima - La Película" - La Fría Verdad
+- "Climate - The Movie" - The Cold Truth
+- Experimento Secreto con Chemtrails - Disparan 'Aerosoles' al cielo para crear Gran Envoltorio de Nubes
+- Harvard shuts Bill Gates-funded Geoengineering Project to Preserve Climate Narrative
+- "Otra Mentira que se Cae" - Milei critica el "verso" del Cambio Climático a.k.a. Calentamiento Global
+- The Elite's Climate Cartel - Bill Gates and the Great Reset Blueprint for Control
+- There is No Climate Emergency - Climate Models miss One Key Variable - Nobel Laureate John Clauser
+- World Meteorological Organization Report debunked - Weather Hype fuels false 'Climate Crisis' claims
+- Global Warming and the "Pandemic" - Interview - Bill Gates speaks to Rt. Hon. Jeremy Hunt MP
+- Nobel Laureate John Clauser - There Is No Climate Emergency
+Depopulation - Despoblación
+- A False Pandemic and the Imposition of a False Vaccine - A Criminal Plan of World Depopulation - Viganò
+- Agenda to Depopulate the Planet through COVID Vaccination - Revealed by Gov. Reports and Pfizer Documents
+- Bill Gates 1997 "Prediction" - 2020 Extinction by Lung Attacking Virus
+- Billionaire Club in Bid to Curb Overpopulation - America's Richest People Meet to Discuss Ways of...
+- Bill Gates Admits Vaccines Are Used for Human Depopulation
+- Bill Gates' Criminal Plans Exposed by U.S. Trial Lawyer
+- Bill Gates Exposed in Italian Parliament for "Crimes Against Humanity" - The Trend is Our Friend
+- Bill Gates-Funded 'World Mosquito Program' engages in Gain-of-Function Research
+- Bill Gates ha Fondato 'Il Programma Zanzara Mondiale' impegnato nel Guadagno della Funzione di Ricerca
+- Bill Gates has Major Shares in Both Pfizer and BioNTech - FOI revealed he is the Primary Funder of the MHRA
+- "Bill Gates is Largest Funder of trying to find 'Viruses in Caves' and bring them to Big Cities" - Rand Paul
+- Bill Gates launches new 'Netflix Series' that lays out Mass Suicide Plan for Global Human Depopulation
+- Bill Gates on A.I. - 'Humans won't be needed for Most Things'
+- Bill Gates Patent gives him 'Exclusive Rights' to 'Computerize' the Human Body
+- Cero Absoluto - La Agenda Global Revelada
+- Covid Failed to do 'the Job' - Bill Gates is making a Second Run at Culling the Population
+- Covid Panic, Climate Panic - Driven by Same People for Same Purpose
+- Deconstructing Bill Gates' Agenda
+- De la Bioética a la Eugenesia
+- Desarrolladores de la 'Vacuna Oxford-AstraZeneca' vinculados al Movimiento Eugenésico del Reino Unido
+- Developers of 'Oxford-AstraZeneca Vaccine' tied to UK Eugenics Movement
+- Dr. David Martin calls for the Destruction of the World 'Health' Organization (WHO)
+- Earth Cooling Dramatically
+- El Arzobispo Viganò revela los Perversos Planes del Globalismo en una impactante Entrevista
+- El Expediente Tedros - ¿Se convertirá el Jefe de la OMS en el hombre Más Poderoso del Mundo?
+- El Mal Puro y Completo Enmascarado como Pandemia
+- ¿Estamos Siendo Preparados para una Despoblación Masiva?
+- From Computers to Global Genocide - The Staggering Influence Bill Gates on Public Health Policy around World
+- Gene Drive Technology - What Species should we make Extinct Today? - Why are B. Gates and Military involved?
+- Geoengineering is No Longer a 'Secret Conspiracy'
+- "Herd Stupidity" - The Manufactured Covid Crisis, the Gene-based mRNA "Vaccine" and "The Pinnacles of...
+- Il Dossier Tedros - Il Capo dell'OMS diventerà l'uomo Più Potente del Mondo?
+- Is the WHO an Undercover Terrorist Organization?
+- La Licenza Bill Gates gli consente "Diritti Esclusivi" per "Computerizzare" il Corpo Umano
+- Monkeypox - "Fool Me Twice, Shame On Me"
+- Perché i Globalisti e i Governi sono così alla Disperata Ricerca di Tassi di Vaccinazione del 100%?
+- Philanthropath Bill Gates has just 'Planned his Next Pandemic' - "Catastrophic Contagion"
+- Post Encierro Covid-19 - La Jugada de Rockefeller
+- Post Lockdown - The Rockefeller Game Plan
+- "Reducir la Población Mundial" - Reunión Secreta en 2009 del Club de Multimillonarios 'Good Club'
+- Russian Military blows whistle on Bill Gates' Bioterrorism Plot to 'Reduce Population'
+- Secret Billionaire Club Seeks Population Control
+- Serial Liar Bill Gates is now Denying Ever talking about 'Digital Vaccine Passports' - But there's Video Proof
+- "Shrink the World's Population" - Secret 2009 Meeting of Billionaires "Good Club"
+- The Ambitions of Bill and Melinda Gates - Controlling Population and Public Education
+- The COVID-19 Endgame - Global Governance, "Digital Tyranny" and the Depopulation Agenda
+- The Limits to Growth is deeply Flawed - Yet Advocates used it to claim Societies need to be Completely Controlled...
+- The Long, Strange History of Bill Gates Population Control Conspiracy Theories
+- 'The Plan' - Proof that the 'pandemic' was Planned with a Purpose
+- The Rise and Fall of the Beast - Confronting One World Order (OWO) Globalism
+- The Tedros File - Will the Head of the WHO become the Most Powerful Man in the World?
+- Unmasking The Great Reset - Schwab, Gates and a Sinister WEF Plot
+- WHO-Sponsored Genocides - A History of Eugenics in the United States
+- WHO Will Use Polio Vaccines to Depopulate Underdeveloped Nations
+- Why are Globalists and Governments so Desperate for 100% Vaccination Rates?
+- Why the Rothschilds are Implicated in the 'Covid-19 Hoax'
+- Jeffrey Epstein - Bill Gates Relationship
+- La Relación de Jeffrey Epstein y Bill Gates
+- The Next Outbreak? - We're Not Ready - Bill Gates at TED - Pandemic 'Predicted' in 2015, today's Covid-19?
+Food - Comida
+- Artificial Hamburger Meat Successfully Grown in Vat of Bovine Fetal Cells
+- Big Pharma set to control 'Entire Food Supply' - Monsanto-Bayer and Bill Gates join hands...
+- Bill Gates launches Attacks on Africa's Food Production
+- Bill Gates owns Synthetic Fruit Coating - What's in It?
+- Bill Gates secretly Dictates 'Global Food Policy' too...!
+- Biowarfare through the Food Supply
+- Gates Unhinged - Dystopian Vision for the Future of Food
+- How the Gates Foundation is Driving the 'Food System' in the Wrong Direction
+- Sign of Things to Come - Singapore approves '16 Insects for Human Food'
+GMO
+- Africa's Frankenfoods - Why Is the Gates Foundation Helping Monsanto Push Genetically Modified Food?
+- Bill Gates, Monsanto, and Eugenics - How One of The World's Wealthiest Men is Actively Promoting a...
+- BioTech admits Bill Gate's 'GMO Factory Food' is a Gene Therapy
+- Cómo el 'One Health' de la OMS dictará "Lo que tú Comas"...
+- Failed Monsanto GMO Corn Pushed on African Countries with Help of Bill Gates
+- How the WHO's 'One Health' will Dictate "What You Eat"...
+- La Via Campesina Denounces Gates Foundation Purchase of Monsanto Company Shares
+- Los Experimentos Agrícolas promovidos por Bill Gates se han Hundido en África
+- Los Líderes de los Países y la Sombría Agenda de Control de Davos - Parte 3
+- Monsanto in Gates' Clothing? - The Emperor's New GMOs
+- Monsanto Investor Bill Gates Says GMO Crops Needed to Fight Starvation
+Windows Software
+- Alemania Denuncia a Windows 8
+- Don't Use Windows 8 Due to Risk of 'Back Doors' - Warns German Government
+- How NSA Access Was Built into Windows
+- La NSA Participó en El Desarrollo de Windows 7
+- Microsoft está Descargando Windows-10 en las PC Incluso si No se ha 'Reservado' una Copia
+- Microsoft is Downloading Windows-10 to PCs, Even if you Don't "Reserve" a Copy
+- Microsoft Modifica 'Windows Update' para Instalar en Automático 'Windows 10'
+- Microsoft Modifica "Windows Update" per Istallare Automaticamente "Windows 10"
+- NSA Built Back Door in All Windows Software by 1999
+- NSA Helped With Windows 7 Development - Privacy Expert Voices 'Backdoor' Concerns - Security...
+- NSA 'Helping' Microsoft With Windows 7 'Security'
+- NSA Took Part in The Development of Windows 7
+- Russia Shoves Antitrust Probe into Microsoft after Kaspersky Gripes about Windows-10
+- Windows 7 'Security' Courtesy of The NSA
+- 'Windows 10' can Collect Your Data for Gov't Agencies - What to Do
+- 'Windows 10' Covertly Sends Your Disk-Encryption Keys to Microsoft
+- 'Windows 10' puede Recoger sus Datos para Agencias del Gobierno - Que se puede Hacer
+- 'Windows 10' può Raccogliere i vostri Dati per conto delle Agenzie di Governo - Cosa si Può Fare
+- Windows 7 Backdoor - Say Goodbye to Your Information!
+Multimedia
+- A New Approach to Capitalism in The 21st Century - Davos Annual Meeting 2008 - Bill Gates
+- Bill Gates About Modified Foods
+- Bill Gates' Agenda to Chop Down Forests
+- Bill Gates nos Pone al Corriente de los Planes de la Élite
+- Bill Gates on Energy - Innovating to Zero
+- Bill Gates on GM Foods, Vaccines and Monsanto NWO Puppet - CNN
+- BioWar - Project Blue Angel - Elite Develop Genetically Engineered Weapons to Eliminate Ethnic and...
+- Deleted 'Bill Gates Documentary' has been Revived
+- El Gran Reseteo Mundial
+- El Nuevo Agronegocio de Bill Gates con MONSANTO y sus 3 Socios Argentinos
+- El Sistema Criminal detrás del Globalismo, Bill Gates y Elon Musk
+- Henry Kissinger and Bill Gates Call for Mass Vaccination and Global Governance
+- How to Become a Billionaire - And what to Do with It - Bill Gates...
+- If Bill Gates Was President...
+- Il Riscaldamento Globale e la "Pandemia" - Intervista: Bill Gates parla con Rt.Hon.Jeremy Hunt MP
+- Info Wars breaks down the Real Reason behind the Globalist/Eugenicist Power Couple's Breakup
+- Meet Bill Gates
+- Plandemic - The Event 201
+- Se Bill Gates Fosse Presidente
+- The Billionaires Who Made Our World - Bill Gates
+- The Empires of Gates - Interview with Vandana Shiva, Ph.D.
+- The Real Bill Gates
+- The Sequel to The Fall of the Cabal - Bill Gates
+- What's Next? - The Future with Bill Gates - A Video Summary...
+- Who is Bill Gates?
+- Zika Psyop to Justify Releasing Millions of Bill Gates' GM Mosquitoes in Florida
+Related Reports
+- Covid-19 and Anthony Fauci - Main File
+- Depopulation of Planet Earth - Main File
+- Facebook and The Internet - Main File
+- Global Food Control - Main File
+- Global Warming - An Official Pseudoscience... - Main File
+- Google and The Internet - Main File
+- Ivermectin - A Covid Defeater - Main File
+- Killer Vaccines - Vacunas Que Matan - Main File
+- Technocracy - Main File
+- The WHO - World 'Health' Organization - Main File
+- Vaccines and Covid-19 - Gene Therapy - Main File
+Return to The Global Elite
+Return to Temas / Main Files
+Return to The End of The Internet?
+Return to Rockefeller Internationalism
+Return to Ponerology - The Science of Evil
+Return to A Healthier Medical and Environmental Industry
+Return to Industry "Weapons" for Earth's Depopulation
+Return to The NSA - The Super Secret National Security Agency
+Return to Psychopaths and Psychopathy - A Ponerological "Branch"
