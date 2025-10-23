@@ -120,6 +120,7 @@ World Bank - Banco Mundial
 - BRICS Emerging Nations Launch New Development Bank
 - BRICS Nations Plan New Bank to Bypass World Bank and IMF
 - BRICS - ¿Una Ventana hacia la Luz o el Último Engaño de Hacer-Creer?
+- Central Bank Digital Currencies (CBDC) are the 'Ultimate Tool' of Financial Oppression
 - China abre Nueva Línea de Crédito a Irán de 10 Mil Millones... en Euros y Yuanes
 - Covid, el Cambio Climático y el Gran Reinicio - Una Tapadera y una "solución" para el Fallido Sistema Financiero
 - Das Zerstören von Nationen durch IMF und Weltbank aus geheimen Dokumenten des IMF-WB

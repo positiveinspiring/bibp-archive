@@ -1,0 +1,138 @@
+# The Elite's Drug Management - La Gestión de Las Drogas por La Elite
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_drugs.htm
+
+Contents
+- AIG and The Linkage to The Drug Trade - from "Black 9/11 - A Walk on The Dark Side"
+- Americans and Northern Alliance Friends - False Flag Terror, Drugs, Staged Taliban Attacks
+- Americas Drug-Corrupted War - Obama and Afghanistan
+- 'Anti-Drug' Sen. John McCain's Fundraiser Caught Operating Meth Lab - Plus Dealing Heroin and Cocaine
+- Approved HSBC Settlement for Drug Money Laundering
+- Banks are "Where The Money Is" in The Drug War
+- Biden backs Revival of 'His Brainchild' Plan Colombia 2.0 set to begin April 2021 - The Drug War
+Italiano
+- Biden sostiene la Rinascita della 'Sua Idea' piano Colombia 2.0 impostato per iniziare ad Aprile 2021
+- Big Pharma's Big Connections - Congress Exposed as Protecting Drug Companies while Opioid Problem...
+- Big U.S. Banks Confirmed As Criminal Enterprises - Wachovia Wanted To Sue Us For Labeling It 'A...
+- Bolivia Ended its Drug War by Kicking Out the DEA and Legalizing Coca
+- Can The US Triumph in The Drug-Addicted War in Afghanistan? - Opium, The CIA and The Karzai...
+- CIA and The Drug Business
+- CIA Has Resumed Drug Smuggling Ops in Afghanistan - Evidence Mounts
+- CIA "Manages" Drug Trade - Mexican Official Says
+- Cocaine One Bust Lifts Veil on Global Narcotics Cartel
+- Del Porqué Usted No Puede Fumar Hierba - Porque Los Lobbies se Están Enriqueciendo de La 'Guerra...
+- Denuncian Que Europa y EE.UU. Lavan el Dinero del Narcotráfico
+- Después de Acusarla de Narcoterrorismo durante Varias Décadas, Estados Unidos negoció con Cuba
+- Drugs For Guns Connection - Arkansas Governor Bill Clinton, President George Bush and CIA Involvement
+- Drug War Hypocrisy - Drug Trafficking's Big Money Benefits Big Brother and Corrupt Banksters
+- EE.UU. anuncia Acción sin Precedentes para Terminar Guerra contra las Drogas - Silencio de los Medios...
+- Expendable - Sacrificing Humanity for Corruption in Australia
+- Five Countries The U.S. Is Royally Screwing Over
+- HSBC Let Drug Gangs Launder Millions - First Barclays, now Britain's Biggest Bank is Shamed and Faces...
+- Kyrgyzstan, America and The Global Drug Trade - Deep Forces, Coups d'Etat, Narcotics and Terror
+Español
+- La Guerra Contra la Conciencia... y la Guerra Contra las Drogas
+- La Guerra Contra la Hierba
+- Las Drogas y la Máquina de Guerra de Estados Unidos - Entrevista con Peter Dale Scott
+- Long History of HSBC Money Laundering
+- Media Silent as the U.S. Announces Unprecedented Move to End Drug War
+- México - La "Huerta" de Amapola de Estados Unidos
+- MI-6 are the Lords of the Global Drug Trade
+- Money Laundering and The Drug Trade - The Role of The Banks
+- Money Laundering and The Global Drug Trade are Fueled by The Capitalist Elites
+- NATOs Operation Gladio - Sibel Edmonds on NATO, Terrorism, 9/11 and Drug Running
+- New Study highlights Devastating Global Effects of War on Drugs
+- Opium Production in Afghanistan - Strong and Corrupt as Ever
+- Remember what Happened right before 9/11? - Taliban's Anti-poppy Campaign it's Happening Again...!
+- The Bush-Cheney Drug Empire
+- The DEA's Own Website Proves the War on Drugs Is an Epic Failure
+- The Democratic Partys Presidential Drug Money Pipeline
+- The Double Standard of The U.S. Criminal Justice System - A flowchart - The Cases of HSBC and Wachovia
+- The Drug Catastrophe in Afghanistan
+- The English Royal Family And The Opium Trade In The 18th Century - from 'Secret Societies' by Jan Van...
+- The Global Drug War - Ten Critical Developments in 2014
+- The History Channel is finally Telling the Stunning Secret Story of the War on Drugs
+- The New American Drug Lords - Meet the New Boss... Same as The Old Boss
+- The Opium Wars in Afghanistan - Can Anyone Pacify The World's Number One Narco-State?
+- The Pegasus File
+- The Phony War On Drugs - from 'George Bush - The Unauthorized Biography'
+- The Problem is Drug Law, Not Drugs
+- The War on Consciousness... and The War on Drugs
+- The War on Drugs Is a War on Freedom
+- The War on Weed
+- Time to End The 'War' on Drugs
+- UK Queen Accused of Drug Trafficking
+- Un Agente de la DEA Revela como la Agencia Protege el Narcotráfico para La Elite
+- Under The Influence - from "The Biggest Secret"
+- War on Drugs in Afghanistan Revealed As Total Hoax - U.S. Military Admits to Guarding, Assisting Lucrat...
+- Were Opium Heads Responsible for The Downfall of China?
+- Western Banks 'Reaping Billions from Colombian Cocaine Trade'
+- Why Cant You Smoke Pot? - Because Lobbyists Are Getting Rich Off of The 'War on Drugs' - Exclusive
+Additional Information
+- Amapola, Opio y Heroína - La producción de Colombia y México
+- 'America' Acepta la Droga más Mortal del Mundo y Continúa con la Prohibición de la Planta más Beneficiosa
+- 'America' Embraces World's Deadliest Drug as Prohibition of World's Most Beneficial Plant Continues
+- Asesinan a La Madre de David Koresh, el Decodificador de Waco del 'Código Cósmico'
+- Big Pharma's "Adderall" is Basically Crystal Meth - Says Dr. Carl Hart
+- CIA Allegedly Using Drug Money to Overthrow Ecuador President Rafael Correa
+- Coca-Cola, The CIA and The Courts
+- Costa Rica - The Lowest Form of Military Aggression
+- Dealing in Death - The CIA and The Drugs Trade - How the Agency Created America's Heroin and Cocaine...
+- Droga, Petróleo y Guerra - Afganistán
+- El Fármaco 'Adderall' de las Grandes Farmacéuticas es Básicamente Cristal de Metanfetamina
+- Flying on Drugs
+- Geopolítica Tras La Falsa Guerra de Estados Unidos en Afganistán
+- La Doble Moral de WADA - La Agencia Mundial Antidoping
+- La 'Mano Negra' de los Rothschild está Destruyendo la Investigación y Desarrollo del Cannabis en los...
+- La "Mano Nera" dei Rothschild sta Distruggendo la Ricerca e lo Sviluppo della Cannabis negli Stati Uniti
+- OAS Drug Report Envisions Growing Legalization In Western Hemisphere
+- Obama Asserts Executive Privilege to Hide Involvement in 'Fast and Furious'
+- Pentagon Continues Contracting U.S. Companies in Latin America
+- Perché è Illegale la Marihuana? - Le Vere Ragioni Sono Peggiori di Quanto Pensate
+- Perché L'Unico Ricercatore sulla Cannabis degli Stati Uniti Improvvisamente è Stato Licenziato?
+- ¿Porqué el Único Investigador de Cannabis de los Estados Unidos fue Repentinamente Despedido?
+- ¿Porqué es Ilegal la Marihuana? - Las Verdaderas Razones son Peores de lo que Usted Piensa
+- Porqué los Animales Comen Plantas Psicoactivas
+- Rothschild's 'Black Hand' Crushing Cannabis Research and Development in U.S
+- The Banking Elite Are Not Only Stealing Our Wealth, but They Are Also Stealing Our Minds
+- The Doomsday Project, Deep Events, and The Shrinking of American Democracy
+- The Drug Trust - History of The Pharmaceutical Drug Business
+- The Elites Had to Have The Branch Davidian Village Eliminated Because...
+- The Elkhorn Manifesto - Shadow of The Swastika - The Real Reason the Government Won't Debate...
+- The Imperial Anatomy of Al-Qaeda
+- The Science of Drugs Use - from "The Illuminati Formula to Create an Undetectable Total Mind Control..."
+- To This Day, Coca-Cola Still Imports Coca Leaves Which Are Used to Manufacture Cocaine in The United...
+- U.S. Expands Military Reach in Latin America
+- Waco Cracker of Cosmic Code David Koreshs Mother Murdered
+- Why Animals Eat Psychoactive Plants
+- Why is Marijuana Outlawed? - The Real Reasons are Worse than You Think
+- World Drug Report 2012
+- World Drug Report 2018 - External Link
+Books-Treatises
+- Andean Cocaine - The Making of A Global Drug - by Paul Gootenberg
+- Dope, Inc. - Britain's Opium War Against The U.S. - by a U.S. Labor Party Investigating Team
+- Murder by Injection - The Story of the Medical Conspiracy Against America - by Eustace Mullins
+- Red Cocaine - The Drugging of America and the West - by Joseph D. Douglass
+- The Politics of Heroin in Southeast Asia - by Alfred McCoy
+Multimedia
+- American Drug War - The Last White Hope
+- Breaking The Taboo - The United Nations Sanctioned War on Drugs
+- Expendable - The Movie
+- Is This What We're Fighting For? (This Video May Be Blocked In Some Countries)
+- NARCO S.A. - El Grupo Bilderberg
+- Narcos - La Ruta De La Impunidad
+- Mena Connection - Clinton, Bush and the CIA Drug Smuggling
+- Royalty's Drug Running Kingpins - from 'The Secret Rulers of The World'
+- Shocking Truth - How Institutional Education and Psychotropic Drugs Have Created Generation Lost
+Related Reports
+- Big-Pharma Industry - The Healthcare Rip-Off - Main File
+- Cannabinoids - The Secret Cure to Help Heal Many Chronic Diseases - Main File
+- CIA - The Central Intelligence Agency - Main File
+- Global Militarism - Main File
+- The Black Nobility - Main File
+- The Bushes and The New World Order - Main File
+- The Clintons - America Politics - Main File
+- The Deadly Industry of Psychiatry - Main File
+- The United Kingdom and Brexit - Main File
+Return to The Global Elite
+Return to Temas / Main Files

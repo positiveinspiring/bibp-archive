@@ -1,0 +1,1268 @@
+# The Global Banking System - El Sistema Bancario Global
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_globalbanking.htm
+
+The banks do create money.
+They have been doing it for a long time, but they didn't realize it,
+and they did not admit it.
+Very few did.
+You will find it in all sorts of documents, financial textbooks, etc.
+But in the intervening years, and we must be perfectly frank about these things, there has been a development of thought, until today I doubt very much whether you would get many prominent bankers to attempt to deny that banks create it. H.W. White Chairman of the Associated Banks of New Zealand
+October 2008
+Contents
+- Agenda 21 and The New World Economy - Where Happiness 'Matters'
+- A Line of Demarcation Through The Eurozone is Taking Shape
+- All Wars are Bankers' Wars!
+- All Wars are Bankers Wars - The Final Wakeup Call
+- All Wars are Bankers Wars - These Banks must Go if we want World Peace
+- All Wars are Well Planned Banker Wars... Including WWIII
+- A Lot of Nations Want Out of the Cabal Banking System
+- A Monetary Policy for The 99% - Twelve-Year-Old Reformer Goes Viral
+- A New Global Economic Restructuring
+- Anonymous Hits the New York Stock Exchange, World Bank, FED, and Vatican - Total Media Blackout
+- A Public Bank Option for Scotland
+- Are Goldman Sachs and The Megabanks Able to Wipe Out an Entire Economy With a Keystroke?
+- Are The 'Banksters' Wrecking The Global Economy Through The Trilateral Commission?
+- Are We About to See a "European Monetary Fund?"
+- Argentine Advice for Greece - 'Default Now, Bring Back The Drachma'
+- A Surprise Boost for Euro From China
+- Bail-in and The Confiscation of Bank Deposits - The Birth of The New Financial Order
+- "Bail-In" Era for Europe's Banking Crisis Begins
+- Bancos Centrales - CBDC - Main File
+- Bankers Have Seized Europe - Goldman Sachs Has Taken Over
+- Banking & Federal Reserve Quotes
+- Bank of England Policymaker Predicts Unprecedented Dollar Collapse
+- Bank Profits Hit 5-Year High
+- Banks Can Legally Steal Customer Funds from Private Checking Accounts
+- Banksters Threaten Brits - Don't Brexit! .or else
+- Bank Transfer Day - Successful!
+- Barclays's Agius Is Stepping Down
+- BCCI - The Dirtiest Bank of All
+- Behold The Storm and All The Mad People
+- 'Betray Your Bank' Before Your Bank BETRAYS You - Eurozone
+- Big Banks Have Criminally Conspired Since 2005 to Rig $800 Trillion Dollar Market But Receive Only a...
+- Big U.S. Banks Confirmed As Criminal Enterprises - Wachovia Wanted To Sue Us For Labeling It 'A...
+- Black 9/11 - A Walk on The Dark Side
+- Black Dossier - HSBC & Terrorist Finance
+- BRICS and The Bankers
+- Business Culture and Dishonesty in The Banking Industry
+- Canadians Sued The Bank of Canada and Won - Mainstream Media and Government Blacks Out Story
+- Capitalismo S.A. - Arriba Las manos: Venimos en Plan de Negocios
+- Capitalist Terrorism
+- Central Banks - CBDC - Main File
+- Chi Governa il Mondo? - Angoli Oscuri delle Potenze Globali Segrete
+Italiano
+- Chi ha il Potere di Creare Denaro nell'Economia Moderna?
+- China Announces that It Is Going to Stop Stockpiling U.S. Dollars
+- China Podría Matar al Petrodólar con el Petroyuán - El Sueño de Gaddafi No Muere...
+- Chinese Companies Pull Out of U.S. Stock Markets
+- Christine Lagarde dejaría el BCE anticipadamente para dirigir el FEM - Dice Klaus Schwab
+- Come Funzionano le 28 Banche che Dominano l'Economia Globale
+- Cómo Fue Inventado 'Los Pilares del Sistema Monetario Mundial' y Quién Se Ha Aprovechado de Todo Esto
+- Cómo Funcionan los 28 Bancos Que Dominan la Economía Global
+- Computerized Front Running and Financial Fraud - How a Computer Program Designed to Save the Free...
+- Conozca el Mini-BOT - Italia Romperá la Zona Euro
+- Corrupt to the Core - The Fire Power of the Financial System
+- Covid, el Cambio Climático y el Gran Reinicio - Una Tapadera y una "solución" para el Fallido Sistema Financiero
+- Credit Suisse Fraud Exceeded $1 Billion
+- Crisis Del Euro, Crisis de La Unión Europea
+- Currency Wars For Dummies - How The United States is Hyperventilating The World
+- Denuncian Que Europa y EE.UU. Lavan el Dinero del Narcotráfico
+- Despite Global Economy Plummeting into Despair, Mega Banks Boast All-Time Record Profits
+- Detrás de los Papeles de Panamá - La Mayor Estafa de la Historia
+- Dietro i Panama Papers - La più Colossale Truffa del Pianeta
+- Don't Leave Your Money in The Bank Without Reading This First
+- Economic Rape of Europe Nearly Complete
+- El Banco Mundial y Las Corporaciones Multinacionales Quieren Privatizar el Agua
+Español
+- El Banco Nacional de Suiza Provoca una Tormenta Financiera de Consecuencias Imprevisibles
+- El Banco Rothschild bajo Investigación Criminal tras la Acusación al Barón David de Rothschild
+- El Complejo Militar-Financiero que se Alimenta de la Sangre de las Guerras y Controla a los Estados Unidos
+- El Debate Terminó - La Banca se ha Convertido en una Empresa Criminal en Estados Unidos
+- El Dinero Sucio - de "Los Dioses del Eden"
+- El Dinero Sucio Se Hace Internacional - de "Los Dioses del Eden"
+- El Dólar es una Herramienta para Castigar a los Países del Tercer Mundo
+- El Grupo Inter-Alfa o de Cómo "Dominar" el Mundo
+- El Miedo de los Grandes Bancos por el Bajo Precio del Petróleo
+- El Mundo Renuncia otra vez a las Necesarias Reformas Financieras
+- El Plan de La Élite Para un Nuevo Orden Social Mundial
+- El Poder del Dinero
+- El Potente Ámbito Financiero
+- El Proceso de los Banqueros para Esclavizar a la Humanidad
+- El Sistema Bancario Chino ha entrado en Caída Libre
+- El Sistema Financiero Internacional Un Sistema Mafioso - Comprender La Estafa
+- El Sistema Financiero Mundial y Sus Núcleos De Poder
+- El Sucio Secreto sobre el Dinero que Finalmente está Siendo Expuesto a las Masas
+- ¿El Suicidio del Dólar?
+- Empire of Mammon - Secret History of the World's Financial Capital
+- End of The World We Know
+- Estados Unidos es Un Títere de La Banca Privada - Entrevista de Anastasia Churkina al Cineasta A. Jones
+- Euro - 20 Años de Vida, 10 Años de Ruina
+- Euro Elite Using Financial Crisis to Centralize Power
+- Europe in 'Panic Mode' over Economy as USA Soars
+- Euro vs. Dollar - Sideways, But for How Long?
+- EU Summit Seals One Trillion Euro Deal After Merkel Warns of War in Europe
+- Exposing The Group of 30 - Rogues Gallery
+- Expuestos los Banqueros Delincuentes
+- Falsificando Billones de Dólares en Bonos de la Tesorería Estadounidense y Otros Crímenes
+- Farewell to Dollar Supremacy.
+- FEDs May Be Planning to Bump All The Toxic Garbage on Bank of America
+- Fed to The Sharks - Fed by The FED
+- Fmr. IMF Chief Sent to Jail as Spain Prosecutes 65 Elite Bankers in Enormous Corruption Scandal
+- Financial Coup d'Etat
+- Financial Suicide - Will The U.S. Be Unable to Pay its Bills?
+- Finland Prepares for Euro Break Up Scenario
+- Fintech could be Bigger than ATMs, PayPal and Bitcoin Combined
+- Fintech Ecosystem Report
+- Follow the Money - How the Monetary System is Rigged to Enslave Humanity
+- "Forgive Us for Not Arresting Those Truly Responsible for This Crisis: Bankers and Politicians" - Protesting...
+- Former World Bank Senior Council Says a "Second Species" on Earth Controls Money and Religion
+- From Global Depression to Global Governance - The Role of The Corporate Elites' Secretive Global Think...
+- Full Reserve Banking Revisited
+- Funny Money - from "The Gods Of Eden"
+- Funny Money Goes International - from "The Gods Of Eden"
+- Geithner Rushes to Sabotage German Derivatives Ban - Schäuble Prepares New Moves Against...
+- Global Bank, Global Currency Within 15 Years - CNBC Analyst
+- Global Banks Embrace Islam
+- Global Fraud - Global Hope - An Address to The International UFO Congress
+- Global Governance Divide
+- Global Monopoly
+- Global Power and Global Government
+- Global Power Project - Institutions and Individuals Who Comprise Today's Global Power Oligarchy
+- Global Swamp - How Planet Earth is being Ruined
+- Gobernar para Las Élites - Secuestro Democrático y Desigualdad Económica
+- God's Banker - Italy's Mysterious, Deepening Bank Scandal
+- Goldman and J.P. Morgan Probed Over Metals Warehouse Manipulations
+- Grecia - La Lección que Todo el Mundo Debería Aprender
+- Greece - Dump The EU Now For An Economic Recovery!
+- Greece Officially Defaults - UK Prepares for Euro Collapse
+- Greece Urged to Give Up Euro
+- Guardians of Currency Race to Debase
+- Here's an Easy Way to Tell if your Bank is Actually Safe
+- Here's how 'They' will Bankrupt You
+- Hitler and The Banksters - The Abolition of Interest-Servitude
+- Hitler - El Monstruo Creado por La Banca Internacional
+- How Big Banks Run the World... at Your Expense
+- How Obama Surrendered Sovereignty to The Criminal Banking Cartel
+- How Reporters Pulled Off the Panama Papers - The Biggest Leak in Whistleblower History
+- How the EU can take on Dirty Money - The Darker Side of Globalization
+- How to Crush a 'Bankers' Dictatorship' - A Lesson from 1933
+- How Your Bank Account Could Disappear
+- How Wisconsin Could Turn Austerity Into Prosperity - Own a Bank
+- I Banchieri Andranno in Prigione durante la Prossima Crisi
+- Iceland Jail Top Bankers for 46 Years - Europe 'Outraged'
+- If We Don't Change the Way Money is Created and Distributed, We Change Nothing
+- Il Futuro del Sistema Bancario è... Il tuo Fallimento
+- Information on The International Monetary Fund
+- In Italy, World's Oldest Bank Faces Uncertain Future
+- In Search of Justice - Summary of An International Law Case in Finland
+- Instituciones Financieras Globales
+- Institutional Corruption Is Killing The Economy - Americans are Losing Trust in All U.S. Institutions
+- Insumisión Bancaria
+- International Currencies Increasingly Rejected in The Face of Inflation
+- Iran to Execute 4 Bankers on Fraud Charges
+- Is An Economic Deluge Nigh?
+- Is Greece The First Domino Toward Widespread Banking Panic and Currency Controls?
+- Is The Rothschild Banking Monopoly Finally About to Be Dismantled?
+- Italian Scandal Widens as Italy's Third Largest Bank Set to Get Third Bailout in 3 Years - Draghi and Monti...
+- Italia Prohíbe Las Transacciones en Metálico de Más de 50 Euros para 2013
+- Italy is 'Slave of Wealthy Jewish Bankers' Like the Rothschilds - The Pitchfork Movement
+- It's The System That Is The Problem
+- Japan and China Bypass U.S. in Direct Currency Trade
+- JPMorgan lanzará un Sistema de Pago Biométrico como próximo paso en la Vigilancia Financiera Orwelliana
+- La Banca Rothschild sotto Inchiesta per le Accuse al Barone David de Rothschild
+- La Cina potrebbe Uccidere il Petroldollaro con il Petroyuan - Il Sogno di Gheddafi Non Muore
+- La Comision Trilateral - El Sistema Financiero Mundial y Sus Núcleos De Poder
+- La Corporazione di Londra - Banchieri e Massoni
+- La Economía del Futuro No Dependerá del Dinero
+- La Inversión de la Jerarquía y la Sumisión a la Materia
+- La Muerte del Papel Moneda
+- La Psicopatía de la Codicia
+- Large Number of Countries Set to Sign on to China-Backed Investment Bank AIIB
+- Largest Racketeering Lawsuit in U.S. History Names Holder, Geitner and Others
+- Larry Summers and The Secret "End-Game" Memo
+- Las 20 Bases Religiosas de los Señores del Dinero
+- Las Naciones Imprimirán Dinero, Quebrarán e Irán a La Guerra... Todos Estamos Perdidos - Mack Faber
+- La Sorprendente Verdad sobre el Origen del Dinero
+- La Verdad Detrás del Capitalismo
+- Leaked 1955 Bilderberg Document Outline Plan For Single European Currency
+- L'Economia del Futuro Non si Baserà sul Denaro
+- L'Islanda Dichiara l'Indipendenza Dalle Banche Internazionali
+- L'Italia Proibisce Le transazioni in Denaro liquido di Più di 50 Euro dal 2013
+- Lloyd's of London Preparing for Euro Collapse
+- Living in A Banksters' Paradise
+- Long History of HSBC Money Laundering
+- Los Bancos Chinos y Rusos ya No Dependen del Sistema Occidental
+- Los Bancos y el Estado
+- Los Banqueros Serán Encarcelados Durante la Próxima Crisis
+- Los Dioses del Dinero y Su Proyecto de un Nuevo Orden Mundial - El JuegoFinal Ha Empezado
+- Los Disturbios Sociales Son Previstos por El FMI - La Esencia y Lo Falso de Las Privatizaciones en...
+- Los Grandes Bancos se Apoderan del Agua de Todo el Planeta - Alarma Mundial
+- Lo Sporco Segreto sul Denaro che Finalmente la Gente può Vedere
+- Luxembourg Takes the Heat, but the World's Worst Tax Haven - The City of London - Remains Unscathed
+- Make The Bankers Pay - Iceland, Ireland Pushing Back Against Neo-Feudalism
+- Making The World Safe for Banksters
+- Meet Emmanuel Macron - The Consummate Banker Puppet, Bizarre Elitist Creation
+- Meet J.P. Morgan - Bankster-in-Chief
+- Mega-Bank's Plan to Steal Your Money and Blame Fake Muslim Cyber Attack
+- Modern Money Mechanics - A Workbook on Bank Reserves and Deposit Expansion
+- Money-Creation in A Finite World
+- Money... Do We Need It?
+- Monopoly Money and The International Banking Cartel
+- More Global Elite Psycho-Attitudes
+- Morgan Stanley is Insolvent - Only a Matter of Time Before Total Financial Collapse
+- Move Your Money!
+- Move Your Money - Campaign Grows to Divest from "Too Big to Fail" Banks to Local Banks, Credit Unions
+- Move Your Money Out of The U.S. Banking System
+- Multiple Signs That The Smart Money Has Completely Written Off Southern Europe
+- National Infrastructure Bank - Another Trilateral Ripoff?
+- Nations Will Print Money, Go Bust, Go to War We Are Doomed - Marc Faber
+- New Asian Union Means The Fall of The Dollar
+- New World Order - The Endgame Has Begun
+- Non Lasciarti Ingannare - Questo è l'Obiettivo Finale dei "Documenti di Panama"
+- No te Dejes Engañar - Este es el Objetivo Final de los "Papeles de Panamá"
+- Nueve Mitos y Errores Conceptuales Sobre El Dinero Que Pueden Literalmente Matarlo a Usted
+- Operación 'Jaque Mate' del Coronavirus
+- Over 200 Senior Bankers Arrested Last Week As New Financial System Goes Online
+- Own Nothing? - The Great Islamic Finance Convergence
+- Party Over for Bankers
+- Pathocracy Rising - How Economic Systems breed Deviants
+- Peligro en Aumento - Pésimas Señales en la Economía Mundial
+- Pitfalls and Fallacies of The Orion Monetary System
+- Planetary Regime - The Globalists' Blueprint in Their Own Words
+- Politicians Work for Banks - Despise The State, but Even More The Banks!
+- Porqué en Occidente Las Instituciones Financieras y La Medicina Están Ambas Condenadas a Fallar
+- Porqué los Banqueros Odian La Paz
+- Porqué Obama tiene Tanta Prisa por Firmar el TTIP
+- ¿Porqué Permitimos que Bancos Privados y ciertas Familias Controlen el Dinero del Mundo?
+- Preavviso di Uscita Dall'Euro
+- Predatory Finance - The New Mode of Global Warfare
+- Private "Trading Platforms" Have Been Shut Down in Preparation for New Financial System
+- Project Prophecy - The Death of Money
+- ¿Qué es el Dinero Programable?
+- ¿Qué se Esconde Realmente Tras los "Papeles de Panamá"?
+- Qué se Esconde tras los Escándalos de Evasión Fiscal
+- Questions for Washington D.C. 'Swamp Creatures'
+- ¿Quién Dirige el Mundo? - Rincones Oscuros de las Secretas Potencias Mundiale
+- ¿Quién tiene el Poder de Crear Dinero en la Economía Moderna?
+- Rothschild passing Dynasty on to 7th Generation - Marking 200 Years of Banker Family Rule
+- Ruptura en El Gobierno Mundial
+- Russia Preparing for Epic Split with Global Banking Cartel by Dumping U.S. Dollar for Gold
+- Russia Readies Back-up System for Potentially Explosive "Split with International Banking System"
+- Russia Says World Is Nearing Currency War as Europe Joins
+- Secret Financial Maneuvers Fail to Save Copenhagen Climate Summit
+- Secret Meeting of 57 Finance Ministers on Ship Charts New Financial System
+- Selective Leaks of The "Panama Papers" Create Huge Blackmail Potential
+- Siga el Dinero - Cómo el Sistema Monetario está Amañado para Esclavizar a la Humanidad
+- Si No Cambiamos la Forma en la que el Dinero es Creado y Distribuido, No Cambiamos Nada
+- Six Banks Control The U.S. - They Are Too Big to Fail and Too Big to Jail
+- South America Trembles Before Argentine Devaluation
+- Spain Braces for its Biggest Corporate Insolvency Ever!
+- Speculating Banks Profit as World's Poorest Go Hungry
+- Stunning Crimes of The Big Banks - Worse Than Your Wildest Imagination
+- Suiza le Sigue a Islandia en Declarar la Guerra Contra los Banqueros-Gángsters
+- Switzerland Follows Iceland in Declaring War Against the Banksters
+- Switzerland Prepares Army for Euro Zone Fallout
+- Tarjetas de Crédito, el 666 y el 999
+- The Acceleration of A Global Gilded Age - Wealth Inequality Across The Globe
+- The Alchemy of Synthetic Finance and Global Governance
+- The Banking Criminals Exposed
+- The Bank of England has Just Crossed the Line into Straight Government Financing
+- The Broken Global Banking System
+- The Building Blocks of Money
+- The Business of America - from 'The World Order - A Study in the Hegemony of Parasitism' by E. Mullins
+- The Chicago Plan Revisited
+- The Coming Non-Linear World - The Bernanke Fed is Playing With Fire
+- The Complete and Annotated Guide to The European Bank Run - Or The Final Phase of Goldman's World...
+- The Corporation of London - Bankers and Freemasons
+- The Death of Paper Money
+- The Debate is Over - Banking has Become a Criminal Enterprise in the U.S.
+- The Dirty Secret about Money that is Finally Being Exposed to the Masses
+- The Double Standard of The U.S. Criminal Justice System - A flowchart - The Cases of HSBC and Wachovia
+- The Economic Solutions of Vampires
+- The Economy of the Future Won't Rely on Money
+- The Elite Plan for A New World Social Order
+- The End of National Currency
+- The Entire Fiat Money System is Bankrupt - Demise of The Global U.S. Fiat Dollar Reserve Currency
+- The EU Banking System Is In Big Trouble
+- The European Stabilization Mechanism - Or How The Goldman Vampire Squid Just Captured Europe
+- The Eurozone's Rescue Fund - German High Court Capitulates to Bankers
+- The Fall of Greece - Yes, It Really is a Capitalist Plot
+- The Federal Reserve Cartel
+- The Federal Reserve's Explicit Goal - Devalue The Dollar 33%
+- The Financial Pyramid of Power
+- The Financial System Failure
+- The Financial System in America Is On The Edge of Default
+- The Fire Power of the Financial Lobby - A Survey of the Size of the Financial Lobby at the EU level
+- The Future of Banking is You're Broke
+- The Globalizer Who Came In from The Cold
+- The Greatest Crime ever Contemplated - Former Hedge Fund Manager exposes a scheme by Central Bankers
+- The History of The "Money Changers"
+- The Inversion of Hierarchy and Bondage to Matter
+- The Karas Report
+- The Men Who Run the World - Inside the Global Power Elite's Quest for Domination
+- The Moral Hazard of Modern Banking - How Banks Create and Destroy Money
+- The New Financial System Now Supposed to Start on May 11th But Believe It When You See It
+- The New World Order is At Risk - Says Lord Rothschild
+- The Orion Monetary System in The Historical Perspective
+- The Panama Papers - Biggest Leak in History Exposes Global Corruption
+- The Panama Papers - What Happens when Corruption is Systemic
+- The Power behind the Throne and the Bankers' Forever Wars
+- The Power of Money
+- The Project Hammer File
+- The Project Hammer Reloaded File
+- The Psychopathy of Greed
+- The Real New World Order - Bankers Taking Over The World
+- There's Millions in Those Milliseconds - Canada's High-Frequency Traders
+- The Rothschilds - Main File
+- The Shadow Money Lenders - The Real Significance of The Fed's Zero-Interest-Rate Policy (ZIRP)
+- The Spanish Bank Bailout Begins
+- The Theory of Macroeconomics Promotes The Orion Monetary System
+- The Threat of Financial Transaction Control
+- The Truth Behind Capitalism
+- The Unspoken War and Silent Weapons - The Blueprint to Control
+- Tightening The Noose on Credit Spells Disaster - Trapped in The Spiral of Basel III - Punishing Your Local...
+- Time for a New Theory of Money - By Understanding That Money is Simply Credit, We Unleash It as A...
+- Todas Las Guerras Son Guerras de Los Banqueros
+- Too Many EU Banks Fail 'Stress Test', Exposing $31bn Shortfall
+- Top 5 Banks Hold 95.7% or $221 Trillion of Outstanding Derivatives - TBTF Get TBTFer
+- Top Economic Advisers Forecast War and Unrest
+- Transhumanist Bankers Plan Robotic Future
+- Trillions Stolen by Bankers - SEC Slaps "Million Dollar Fines" on them
+- Tu e quale Esercito...? - Banche in Bancarotta, Ayn Rand e il nostro Triste Futuro
+- UBS Whistleblower Exposes 'Political Prostitution' All the Way Up to President Obama
+- Un Estudio Psicológico Demoledor sobre La Mente de Los Banqueros
+- U.S. Banks Experience Major Withdrawals During First Week of January
+- U.S. "Quantitative Easing" is Fracturing the Global Economy
+- Vampire Squid Economics - A Case Study in Full-Blown Wetiko Disease - from "The Wetiko Virus - A...
+- Warns of War - Merkel Wants 'Permanent' Supervision of Greece
+- Warning - Get Your Money Out - "All Legal Bank Deposit Protections Are Now Officially Gone"
+- Was Dominique Strauss-Kahn Trying to Torpedo The Dollar?
+- Western Bankers Threatened Japan With HAARP Eco-Destruction a Year Before China Quakes
+- Western Banks 'Reaping Billions from Colombian Cocaine Trade'
+- What in The World Just Happened in Switzerland? - Swiss National Bank Shocked the Financial World
+- What Is Money Reform?
+- When the IMF Meets - Here's What Happened at the Global Plutocracy's Pow Wow in Peru
+- Where Are The Criminal Prosecutions for Financial Crisis? - "Inside Job" Director Charles Ferguson...
+- Who is Behind the Economic Collapse?
+- Who Rules the World? - Dark Corners of Secretive Global Powers
+- Who Runs America? The CFR and Private Bankers - Hillary Clinton Speaks to The Rockefeller Founded...
+- Why a Psychopath wouldn't hesitate to cause another Global Financial Crisis - If there was something in it for...
+- Why Bankers hate Peace
+- Why do We Allow Private Banks and Families to Control the World's Money?
+- Why The Institutions of Western Finance and Western Medicine are Both Doomed to Fail
+- Why Washington Hates Hugo Chavez
+- Words of Warning - Get Your Money Out of European Banks
+- You and what Army...? - Bankrupt Banks, Ayn Rand, and our Grim Future
+Additional Information
+- A Furious Cyprus Begins Investigating Who Breached The Capital Controls
+- All I Want for Christmas Is The Truth
+- All Power to the Banks! - The Winners-Take-All Regime of Emmanuel Macron
+- A March 31st Deadline Has Been Delivered to The Committee of 300 by The Gnostic "Illuminati" Faction
+- American, European and Japanese Problem Solving - The Global Financial Crisis
+- Analysis of Financial Terrorism in America
+- A New Breed of Rough Riders? - Dollar Issuance by The United States Is "Out of Control"
+- A New World Tax Regime
+- Are Black-Budget Ops Stealing Their Money from The Stock Market?
+- Argentina Unrest - Brought to You by Goldman Sachs
+- A Short History of International Currencies - Money From Long Ago
+- Así es cómo China planea Convertirse en la Economía Líder del Mundo
+- Audit of The Federal Reserve Reveals $16 Trillion in Secret Bailouts
+- Bank Holiday Rumors Swirl Amidst Currency Crisis
+- Banks are Still Failing at Ten Times the Pre-2008 Crash Rate
+- Banquero Suizo Desenmascara a Los Bilderberg en Una Entrevista
+- Baphomet - The Secret of the Templar Fortune - Solomon's Treasure
+- Black Budgets and Black Projects - Main File
+- Bush y Los Años del Miedo - Noam Chomsky
+- Cabal Resorting to Desperate Tactics As They Try to Prevent Reboot of Financial System
+- Cambio Climático Cósmico y Terrorismo Financiero - Atando Cabos
+- Can Governments Save the Economy by Injecting Money Into our Bank Accounts?
+- Capitalism - An Alien Ideology From Who Were As Human Beings
+- Capitalism is a Collapsing System - What's Next? - Main File
+- Capitalism's New Era
+- "Casino Jack and The United States of Money" - A Look at Corporate Money and Politics - DemocracyNow!
+- Chaos Prevails at The Highest Levels of Government in The West as The Financial Fraud Unravels
+- China's Crucial Role as America's Creditor - Strained US-China Relations
+- Close-Knit Financial Oligarchy Controls All Major Corporations
+- College Bubble Set to Burst in 2011
+- Colonization by Bankruptcy - The High-stakes Chess Match for Argentina
+- Color Revolutions - Argentina Next?
+- Cómo se Manipula la Economía a nivel Físico, Etérico y Mental
+- Comprender La Estafa - El Sistema Financiero Internacional Un Sistema Mafioso
+- Con Abundancia de Energía El Dinero No Es Necesario
+- Confessions of An Economic Hit Man - Concise Summary
+- Confessions of a Panama Papers Hit Man
+- Corporatism - A System of Control Designed by The Monopoly Men of The Global Elite
+- Coup d'État - The Historical Framework of Globalization
+- Crisis Sistémica Global 2015 - Petróleo, Divisas, Finanzas, Sociedades, Oriente Medio - ¡La Gran...
+- Currency Warfare - What are the Real Targets of The E.U.? Oil Embargo Against Iran?
+- ¿Da Europa su Sello de Aprobación a Los Colonos Israelíes?
+- David Icke on Terrorism, 'Totalitarian Tiptoe' and The Coming Post-Industrial Technocracy
+- Davos - La Fuente de Los Problemas Económicos
+- Davos People - Source of Economic Problems, Not a Solution
+- ¿Deberíamos Ser como Islandia? - Un Enfoque Controversial y Alternativo de la Crisis Económica
+- Debt and the Cyclical Rise and Fall of Societies - Socrates
+- Debt - History of the Near East Jubilee
+- Did Somebody Just Try to Buy The British Government?
+- Disaster Looms when AI Runs the Economy - Says Inventor of the Internet
+- Dollar Deception - How Banks Secretly Create Money
+- Down Goes Britain - The UK Economy Tumbles Deep Into Recession
+- Economic Crisis - The Next Round of Financial Slaughter - The G-20 Summit Charade
+- El Dólar Alquímico - La Magia y El Misterio del Dinero Estadounidense - El Tesoro de Salomón
+- El Dominio Energético Estadounidense y el Ascenso del Petroyuan
+- Eliot Spitzer and The Bush Bankers
+- El Lado Oscuro de las Irrupciones - 'La Economía Gig' es el Nuevo Término para 'Servidumbre'
+- El Nuevo Orden Mundial es "Comunismo"
+- El Presente - Dominio a Través de Dólares y Petróleo
+- El Sistema Capitalista Colapsa - ¿Y Después Qué? - Main File
+- El Sur Global crea un Nuevo Sistema de Pago que cambia las Reglas del Juego
+- End The Fed, Save The Dollar - Ron Paul
+- Entendiendo el Dinero
+- ¿Es el Banco Suizo UBS el Caballo de Troya del Fisco Estadounidense?
+- Estructura del supuesto Sistema Bancario y Económico pretendido por las Razas en Control y el Sistema de...
+- 'EURANIUM' - The Weaponized Fiat Currency
+- EU's Recipe for The United States of Europe and Seizure of Our Money Through Homemade "Crises"
+- Examining Capitalism Through Quantum Mechanics
+- Federal Reserve Directors' Banks and Businesses Took $4 Trillion in Bailouts - Report
+- Federal Reserve Money Printing Is The Real Reason Why The Stock Market Is Soaring
+- Figlio di un Generale Cinese di Alto Livello rivela Affari inquietanti sulla Cina
+- Financial Meltdown - The Case Against The Ratings Agencies
+- French and Germans Explore Idea of Smaller Euro Zone
+- Gauss Virus Targets Banking System May Cause U.S. Financial Collapse
+- George Soros' Eight Bold Predictions - From The 'Tiger Den'
+- George Soros on The Coming U.S. Class War
+- Global Great Depression and Population Reduction by 2030 - MIT and The Club of Rome Prophecy
+- Glossary of Global Banking Terms - Global Elite Research Center
+- Goldman Sachs Report warns Pharma Companies that Curing Disease is Bad for Business
+- "Go talk to Bill Gates about Me" - How JP Morgan enabled Jeffrey Epstein's crimes and gained a meeting with...
+- Government Banking - New Perspectives on Sustainable Development and Social Inclusion from...
+- Government to Spy on Everyone Who Banks in The U.S.
+- Guerra de Monedas - ¿Cuales son los Blancos Reales de la Unión Europea? ¿Embargo Petrolero...
+- Gun Battle Rages Over Control of Codes to New Financial System
+- Hijo de General Chino de Alto Nivel revela Asuntos Inquietantes sobre China
+- Howard Zinn Taught Us That it's OK if We Face Mission Impossible
+- How Banks and Investors Are Starving The Third World - Rising Food Prices and The Egyptian Tinderbox
+- How The Banksters Ensured US WWII Intervention - or 'How Americans Were Hoodwinked Once Again'
+- How to End The Federal Reserve and The Bailout Madness
+- Hyper Mario and Germany on Verge of All Out Warfare
+- Iceland Continues Economic Rejuvenation by Purging Financial Parasites
+- Il Debito Globale arriva a 63 Trilioni di Dollari
+- Il Nuovo Ordine Mondiale è "Comunismo"
+- Ingenieros del Shock - Investigación y Desarrollo
+- Initiation into The Incunabula - The Occult Technology of Power
+- In Stunning Reversal IMF Blames Globalization for Spreading Inequality - It Causes Market Crashes
+- Interview to Former Economic Hitman John Perkins - 2012, Government Corruption and More...
+- In The Shadow of The Dragon
+- Introduction of Global Taxation Just One Step Away
+- Is China Part of The New World Order?
+- Israel Set to Join Club of Richest Nations - Israel in OECD
+- Is There a Conspiracy to Bring 'Honest Money' to the World?
+- Is Xi about to make Macau the Next Financial Powerhouse?
+- Italy in Crisis - The Decline of The Roman Democracy
+- Jim Rogers on Opportunities in Russia and Other 'Hated' Markets
+- Join the 'Shakeup' of the Sleeping Mob - Freedom, Abundance and Prosperity is your Reward
+- La "Bomba Financiera" de las Sanciones que EE.UU. preparó para Rusia tuvo un Efecto Contrario
+- La "Bomba Finanziaria" delle Sanzioni che gli Stati Uniti prepararono per la Russia ha avuto un Effetto Contrario
+- La City de Londres y la Sociedad Fabiana - Historia y Planes Actuales
+- La Conspiración Del Sistema Financiero
+- La Crisis Económica Vista Desde La Economía Ecológica
+- La Deuda y el Auge y Declive Cíclico de las Sociedades - Sócrates
+- La Élite Bancaria Está Comprando Todo el Agua del Mundo
+- La Incómoda Verdad sobre Goldman Sachs, Trump y los BRICS que No quieren que Veamos
+- La Primera Prueba del Shock - Dolores de Parto
+- La Relación entre la Energía y la Moneda
+- Las Transacciones Financieras Internacionales Bajo Control Estadounidense - El Imperio Transatlántico...
+- La Teoría De Los Ciclos en La Economia - Martin Armstrong y El Calendario Maya
+- Latin America Beware - The Imperialists are Coming for More
+- La Última Ilusión
+- La Última Táctica de Los Gobiernos Para Robarnos el Dinero
+- La Verdad Sobre "La Economía"
+- La Verità sulla "Economia"
+- L'Élite Bancaria sta Comprando Tutta l'Acqua del Mondo
+- Lewis Cass Payseur and His Assets - 1850-1939 - extracted from "Pandora's Box" by Alex Christopher
+- Lord James of Blackheath Speaks of Extraordinary Fraud
+- Los Grupos Religiosos Estadounidenses Generan Más Dinero que Microsoft y Apple Combinados
+- Los Hábitos de Ahorro del 1% de los Super-Ricos exacerban la Deuda del 90 % de la Población - Estudio
+- Los Políticos Como Empleados Corruptos del Poder Económico
+- L'Ultima Tattica dei Governi per Rubarci i Soldi
+- 'Malos' Augurios para la Economía Global 2016 - 100 Dólares el Barril de Crudo, el Dólar Cae, la Pobreza...
+- Manfred Max-Neef - Economía Transdisciplinaria Para La Sustentabilidad
+- Mapped Economic Freedom around the World in 2021
+- Max-Neef Cree que La Economía Neoliberal Mata Más Gente que Todos los Ejércitos Juntos
+- Meet the Predatory Bulldogs Hired by Major Banks to Swindle Customers
+- Meet The World Money Power
+- Me he "Apropiado" 492.000 Euros de Quienes Más Nos Roban Para Denunciarlos y Construir Alternativas...
+- Money Is Not Needed With Energy Abundance
+- More Americans Opting Out of Banking System
+- Neil F. Keenan - Agent for The Dragon Family - Lawsuit
+- New World Disorder - Emerging Division Between East and West Threatens to Plunge the Globe into Chaos
+- "Nuremberg Trials" for The Banksters
+- Obama, La Guerra Financiera y La Eliminación de DSK - Escándalo del Patrón del FMI
+- Obama, La Guerra Finanziaria e l'Eliminazione di DSK - Lo Scandalo del Patron del FMI
+- Oh, What a Tangled Web We Weave When First We Practice to Deceive
+- Outrageous Predictions for 2016 - Saxo Bank
+- Paper Money and Tyranny
+- ¿Porqué Todo el Mundo Mantiene a Flote la Economía de EE.UU.?
+- "Quien podría Sufrir Sanciones ahora es el propio Estados Unidos"
+- Report on Negotiations With The Illuminati in Italy
+- Response to "Why Isn't the Stock Market Collapsing?"
+- Results of 2014 EU-Wide-Stress Test
+- Revealed - The Capitalist Network That Runs The World
+- Revisiting Plutonomy - The Rich Getting Richer
+- Revolt In Libya - A Message to Chavez
+- Rothschild Crony Capitalist Summit Plots Against Free Markets
+- Rothschild Family Representative Leaves Japan Empty-Handed
+- Rusia Responde a Nuevas Sanciones de EE.UU. desechando el Dólar
+- Russia Responds to New U.S. Sanctions by Dumping the Dollar
+- Se c'è Energia in Abbondanza il Denaro Non è Necessario
+- Secretive Knights Templar Make Astounding Bid to Save World
+- Shady Origins of Consumerism
+- 'Shocking' 2016 Predictions - $100 Crude, Strong Ruble
+- Should We Be Like Iceland? - A Controversial and Alternative Approach to Economic Turmoil
+- Sindican a firmas de EE.UU. de ser "Cómplices" de Deforestación y Abusos en la Amazonía
+- Six Reasons The 'Occupy' Revolution Will Be Difficult to Co-Opt or Defeat
+- Sobre el Saqueo Económico de Brasil
+- Speculation Drives Up Food Prices as Bankers Gamble on Hunger
+- Syria Could Become a Rallying Point Against the Banksters
+- Tecnofinanzas - La Nueva Ola que Privilegia a Latinoamérica sin tocar a Venezuela
+- Ten Shocking Quotes About What QE3 is Going to Do to America
+- The Alchemical Dollar - The Magic and Mystery of America's Money - Solomon's Treasure
+- The Banking Elite Are Not Only Stealing Our Wealth, but They Are Also Stealing Our Minds
+- "The Best Enemy Money can Buy" - Quotations from Antony C. Sutton's Book
+- The Bilderberg Plan for 2009 - Remaking The Global Political Economy
+- The Cabalists Struggle in Vain to Stop The New Financial System
+- The Chances of A War With China Are Rising
+- The Code of Hammurabi
+- The Crashing Price of Oil is Going to Rip the Global Economy to Shreds
+- The Creature From Jekyll Island - A Lecture on The Federal Reserve
+- The Cults of Empire
+- The Dark Road - The Worst Tax Law You've Never Heard About
+- The Dark Side of Disruption - 'The Gig Economy' is the New Term for Serfdom
+- The Despicable Truth Emerges About FATCA
+- The Dollar Reigns Supreme By Default
+- The Economics of Artificial Intelligence
+- The Eurozone Should Sort Out Its Own Mess
+- The FEDs Have Sued for Peace and Detailed Settlement Negotiations Have Begun
+- The Four Business Gangs That Run The U.S
+- The Game That Goes On and On - A Swiss Bank, A President and The Permanent Government
+- The Global Financial Cycle - Robbery, Depression, Destruction and 'Recovery'
+- The Globalists
+- The High Price of Free Money - Now U.S. Bankers Fear Financial, Social, or Political 'Instability'
+- The History of Banking - Where Did King Solomon's Treasure Go?
+- The History of The "Money Changers"- by Andrew Hitchcock
+- The Invisible Entity Behind The Global Uprising Taking Place
+- The Libyan War, American Power and The Decline of The Petrodollar System
+- The Network of Global Corporate Control
+- The Perfect No-Prosecution Crime
+- The Plain and Complex Truth
+- The 'Pole-Shift' in Global Financial Power is Almost Complete
+- The 'Post-Democratic' Society Unfolding By The Hour
+- The Real Reason Behind The 9-11 Terror Was a Battle for Control of The Global Collateral Accounts
+- The Relation Between Energy and Currency
+- The Rockefeller Syndicate
+- The Rot Runs Deep
+- The Science of Physical Economy - Economics as History
+- The Sting - Mr. Johnston's Letter to his Sons!
+- The UK Government's Latest Moneymaking Scam - 100 Year Gilts
+- The United States Remains a British Colony
+- The White Dragon Roars, Europe Rattles - Plus Inside Report on Secret Financial Deals
+- "The Whole Thing Is Doomed" - European Bank CEO Admits
+- The Zeitgeist Movement - Observations And Responses
+- Titanic Battle or Insider Trading? - The S&P Downgrade and The Bilderbergers - All Part of The Plan?
+- Transforming Banking for the Poor - Q&A with Jonathan Morduch
+- Try to Contain Your Laughter - Prince Charles and Lady de Rothschild Team Up to Talk About 'Inclusive...
+- Twenty Facts about The Collapse of Europe That Everyone Should Know
+- Twitter Mood Predicts The Stock Market
+- UBS Issues Hyperinflation Warning for U.S. and UK - Calls It Purely "A Fiscal Phenomenon"
+- ¿Una Dolarización Innecesaria y un FMI Impopular? - La Experiencia y el Futuro del Dólar en Ecuador
+- Una Introducción a La Doctrina del Shock
+- Un Balance General sobre las Medidas de Reconversión Económica en Venezuela
+- Update from Markets Entity... - Predictions
+- U.S.-China Trade War Targets Rare Earth Minerals
+- U.S. Religious Groups Generate More Money than Microsoft and Apple Combined
+- U.S. to Let Spy Agencies Scour Americans' Finances
+- U.S. Treasury Secretary Timothy Geithner Arrested, Questioned and Released - Asian Negotiations Continue
+- U.S. - World Financial Crisis Explained
+- "Vamos Camino de la Tercera Guerra Mundial" - Expertos Financieros de Todo el Mundo Advierten
+- Venezuela's Monetary Revolution Vis-à-vis Economic Sanctions
+- Video Evidence of Secret Illuminati Corporation More Wealthy Than the Combined Wealth of All Nations...
+- Vuelven Los Temores a Un Cierre 'Temporal' de Los Bancos
+- War in the Middle East and The Rothschilds - Confidential Pentagon Memo: "Take Out 7 Countries..."
+- War is A Racket
+- What is The Mandrake Mechanism? - from Chapter 10 of The Creature from Jekyll Island
+- Who Are The Controllers?
+- Who is Behind the Oil War, and How Low Will the Price of Crude Go in 2015?
+- Why are Banking Executives in London Killing Themselves?
+- Why are They Doing It?
+- Why Banks and U.S. Treasury Warn Virus will Wipeout Customer Accounts
+- Why Does the SEC Protect Banks' Dirty Secrets?
+- Why We're Drifting Towards World War 3
+- World Governance by The Rothschilds - Chart
+- World's Wealthiest People Now Richer Than Before The 2008 Credit Crunch
+- Xi è vicino a fare di Macao il Prossimo Centro di Potere della Finanza?
+Cashless Society - War On Cash / Sociedad Sin Efectivo - Guerra Contra el Efectivo
+- A los Bancos Alemanes se les ha Dicho que Empiecen a Acumular Dinero en Efectivo
+- A Program for Monetary Reform
+- Austria Bucking Trend against 'Digital Currency'
+- Backlash against "War on Cash" reaches Washington and China
+- Bank for International Settlements (BIS) Chief talks 'Absolute Control' of Money
+- Cash is No Longer King - The Phasing Out of Physical Money has Begun
+- Chase Bank Limits Cash Withdrawals and Bans International Wire Transfers
+- Covid-19 is 'Putting Cash in Early Grave' all around the World
+- Criminalization of Cash - Driving Toward Cashless Society
+- Digital Tyranny and Hidden Agendas - Beware of the Government's Push for a Digital Currency
+- El BCE Aprieta el Lazo Sobre las Cuentas Bancarias
+- El Dinero en Efectivo ya No Es el Rey - Se ha Empezado a Eliminar el Dinero Físico
+- "Electronic Money" under "The One World Order" (OWO)
+- El Mayor Banco de Noruega Exige la Prohibición del Dinero en Efectivo - Paso Decisivo
+- El Nacimiento de la 'Sociedad Sin Efectivo'
+- Even the World's Most Cashless Nation Doesn't Want to Go Fully Cashless
+- Federal Reserve (FED) to Quarantine Dollars from Asia on Covid-19 - 'Transmission' Concerns...
+- Hacia una Sociedad Sin Dinero en Efectivo - de "La Verdadera Historia Del Club Bilderberg"
+- Here's what a 'Cashless Society' Really Means
+- How a Cashless Society Could Embolden Big Brother
+- "Ice-Nine" - Il Lockdown Finanziario Globale
+- "Ice-Nine" - The Global Financial Lockdown
+- Il Covid 19 sta Mettendo i Contanti in una "Tomba Precoce" in tutto il Mondo
+- IMF Issue Working Paper on Eliminating Cash
+- La Controtendenza dell'Orientamento dell'Austria contro la Valuta Digitale
+- La Criminalización del Dinero en Efectivo - Conducción hacia la Sociedad Sin Dinero en Efectivo
+- La Guerra Contra el Dinero en Efectivo - Ahora los Gobiernos se Apropian o Gravan el Dinero en Efectivo...
+- La Guerra Contra el Dinero en Efectivo - Llega la Tiranía Global
+- "Los Bancos están Creando una Idea Romántica de los Pagos Electrónicos para conseguir Más Poder"
+- Los Riesgos Ocultos del Abandono del Dinero en Efectivo
+- Porqué Necesitas Prepararte para la Sociedad sin Dinero en Efectivo
+- Reunión Secreta en Wall Street para Implantar el Dinero Electrónico
+- Riunione Segreta a Wall Street per dare Avvio al Denaro Elettronico
+- Smart Cards, E-Cash and the Cashless Society
+- Tecno-Cash - La Guerra al Dinero en Efectivo es sólo la Mitad de la Historia
+- Techno Cash - The War on Cash is Only Half the Story
+- Technocracy Depends on the Digitalization of Money - CBDC
+- The Banksters Ultimate Dream - A Cashless Society, Starting With The Military
+- The Cashless Society is a Con, and Big Finance is Behind It
+- The Cashless Society is Almost Here - And with Some Very Sinister Implications
+- The Emerging 'Mark of the Beast' System - Sleepwalking into the Surveillance Society
+- The Global War on Cash - Lessons from History
+- The Macroeconomics of De-Cashing - IMF Working Paper
+- The Money System is your Slavery Chain
+- The War on Cash - COVID Edition
+- The War on Cash - Governments Grabbing or Taxing Cash At Will Now
+- The War on Cash is Actually a War on Liberty and Privacy
+- Unification of CBDCs? - Global Banks are telling us the 'End of the Dollar System is Near'...
+- Ushering in a Totalitarian Police State in Cashless "Smart Cities"
+- Visa Trying to Bribe Merchants to Stop Taking Cash
+- War on Cash ALERT in the EU - Now Pushing "Restrictions on Payments in Cash"
+- Wealth Preservation - The Final Assault in the 'War on Cash'
+- Why You Need to Prepare for the Cashless Society
+Currency Reset - Basel III
+- America's Largest Creditor - Will China end U.S. Trade War with a "Debt Reset" by Dumping U.S. Treasury...
+- Basel III - A Global Regulatory Standard on International Banking
+- Basel III - A Global Regulatory Framework for More Resilient Banks and Banking Systems - Post BCBS...
+- China has Been Preparing for a Trade War for Over a Decade
+- Currency Reset and Gold Backed Trade Note on 2014
+- È da Oltre un Decennio che la Cina si sta Preparando alla Guerra Commerciale
+- ¿Estamos al Borde de un Reset Financiero Global?
+- G20 Proposes Buffer to end 'Too Big to Fail' Banks
+- Il Più Grande Creditore dell'America - Finirà la Cina la Guerra Commerciale Americana "Resettando il Debito"...
+- Reining in the Banks - Toughest Basel III Rules
+- Rothschild Shake-Up
+- Siamo al Limite di Un Reset Finanziario Globale?
+- The Global Banks at The Edge of The Precipice - Trillions of "Toxic Waste" in The Global Banking System...
+- The Global Economic Reset Has Begun
+- Top CEO Warns of Global Reset - "It's in The Cards for Sure It Could Happen this Year"
+Multimedia:
+- Christine Lagarde on a New Multilateralism for the Global Economy
+- Global Currency Reset - Interview with Christine LaGarde IMF
+Dedollarization - Desdolarización
+- Datos del FMI muestran que el Dominio del Dólar se Desvanece
+- De-dollarization - Europe Joins the Party
+- De-dollarization in a Big Way - This Changes Everything
+- De-dollarizing the American Financial Empire
+- ¿Hacia una Desdolarización de la Economía Mundial?
+- La Desdolarización - Europa se Une a la Fiesta
+- Los BRICS tendrán su Propia Criptomoneda - Será un "Cambio de Paradigma" en medio de la Desdolarización
+- ¿Que hará la FED para combatir los Efectos de la Desdolarización de los BRICS?
+- Rusia está a Punto de Asestar un Duro Golpe al Petrodólar - De-Dolarización
+- Russia is on The Verge of Dealing a Massive Blow to The Petrodollar - De-Dollarization
+- Russia Sta per Assestare un Duro Colpo al Petrodollaro - De-Dolarizzazione
+- Sancionando a los Sancionadores - La Desdolarización y la Desamericanización son Ideas que han Madurado
+- The Dollar is Declining - But what will Replace It...?
+- The World is Dedollarizing
+- ¿Una U.E. en los BRICS?
+- U.S. Dollar faces New Challenges amid BRICS push for Dedollarization
+- Weaponizing the U.S. Dollar is Accelerating Global Dedollarization
+Economic Collapse - Colapso Económico
+- 2011 - The Coming Collapse of The World Economic Order
+- A Day of Reckoning for The Euro has Arrived - 26 TRILLION in Currency Derivatives at Risk
+- Algunas Predicciones Económicas para el 2015 - Por Expertos a Nivel Mundial
+- Bancos Centrales del Mundo se Deshacen de los Bonos del Tesoro de EE.UU. a un Ritmo Récord
+- Banks Ready Contingency Plans in Case of Greek Eurozone Exit - Citigroup, Goldman Sachs, ICAP...
+- Central Bank of Central Banks says "The World is Unable to Fight Next Global Crash"
+- Checkmate - Game Over
+- Colapso Económico y Hegemonía del Dólar - ¿Cuándo Comenzó Todo?
+- Collapse at Hand - Fmr. Asst. Treasury Secretary Says 'Economic Collapse Nearing'
+- Collapse of Fiat Money System
+- Collapsing Financials
+- Cómo Prepararse Mentalmente para el Épico Colapso Económico que se Avecina
+- Crumbling Global Economy Passes Point of No Return
+- Debasing the Currency is Leading to Financial Collapse... Just As It Has for Thousands of Years
+- 'Doctor Doom' predicts World is Headed for Stagflation
+- Don't make the Mistake of thinking that what's 'Now Happening' is Mostly about Tariffs...
+- ECB Seeks to Inject Up to 1.1 Trillion Euros into Economy in Deflation Fight
+- Economic Collapse - Let's Hope the Irrational Optimists are Correct about 2023
+- Eight Years after U.S. Banking Collapse, Implosion of Megabank Poised to Decimate the Global Economy
+- El Colapso Económico es Inminente y le Echarán la Culpa a Trump - Dice Ron Paul
+- El Colapso Económico - ¿Qué Ocurrirá a Partir de Ahora?
+- El Colapso Planificado de EE.UU. y Europa
+- Eleven Red Flag Events that Just Happened as we Enter the Pivotal Month of August 2015
+- El Gran Crash Global del 2008 - El Colapso del Sistema Financiero Mundial - Main File
+- El Hombre que Predijo el Colapso del Euro ante el Franco Suizo hace una Predicción Demoledora
+- "El Rescate Financiero es la Mayor Inmoralidad de la Historia de la Humanidad" dijo Manfred Max-Neef
+- El Sistema Económico Occidental está a punto de Expirar
+- El Sistema Financiero dominado por el USD Caerá
+- End of Cycle brings 'Economic Collapse'
+- uro - La Hipótesis de Lo Peor - Crisis y Murmullos
+- Europa - Lo Que No Se Dice de La Crisis
+- uro - The Worst Case Scenario - Crisis and Whispers
+- Fall of The Dollar on G-20 Finance Ministers Agenda
+- Finance 'Guru' reveals Financial Collapse and COVID Jab Data
+- Financially Sovereign Man
+- Financial Red Alert - Europe Stands on Verge of 'Apocalyptic' Debt Crisis with Only Days Remaining
+- Global Debt is More than Twice as Big as the Entire World Economy - What Does It Mean?
+- Global Economic Collapse In Process
+- Goldman Sachs Apuesta por el Debilitamiento del Dólar Estadounidense
+- Grecia, China... ¿Estamos al Inicio de un Colapso Financiero?
+- Grecia e il Euro - Verso Una Implosione Finanziera
+- Grecia y la Burbuja de 26 Billones de Dólares en Derivados que Puede Hundir la Economía Global
+- Greece and The Euro - Towards Financial Implosion
+- ¿Ha Llegado el Momento del Colapso Económico?
+- Hard Evidence - "We are In a Full Blown Global Depression"
+- How Countries Go Broke - The Big Cycle - by Ray Dalio
+- How do You Know when Your Society is in the Midst of Collapse?
+- How to resist Central Bank Digital Currencies - Five ways you can Opt Out of this Dystopian Future
+- Il Collasso Pianificato di Stati Uniti e Europa
+- Il Crollo Economico è Imminente e Daranno la Colpa a Trump dice Ron Paul
+- ¡Increíble! La Bolsa China se Recupera... a Punta de Pistola
+- International Finance Leaders hold 'War Game' Exercise simulating Global Financial Collapse - Should we be...
+- Investors Prepare for Euro Collapse - Currency's Days Feared Numbered
+- Is the FED Preparing for a "Controlled Demolition" of the Market? - Europe's Biggest Bank Dares to Ask...
+- Is this The Most Terrifying Interview of 2015?
+- It Is About to Get Ugly - Oil is Crashing and So is Greece
+- La Grecia e la Bolla di 26 Bilioni di Dollari di Derivati che Può Affondare l'Economia Globale
+- La Guerra Psicológica detrás del Colapso Económico
+- La Poco Conocida Historia del Euro - La Crisis fue 'Horneada' desde el Principio
+- La Poco Conosciuta Storia dell'Euro - La Crisi era "Preparata" Fin dal Principio
+- La Relación entre el Despliegue de la OTAN, la Guerra Económica, Goldman Sachs y el Próximo Colapso...
+- "Las Crisis Están Creadas para Beneficiar a los Ricos" - Dice Nobel de Economía 2015
+- La Siguiente Gran Crisis Financiera Europea ha Comenzado
+- La Ultima Arma de "Destrucción Masiva Económica" de Rusia contra el Sistema Occidental
+- Le Banche Centrali del Mondo si Disfano dei Buoni del Tesoro degli Stati Uniti a tempo di Record
+- Little-Known History of the Euro - Crisis Was Baked In from the Start
+- Looming Economic Collapse Scenarios Facing the United States - Lessons from the Soviet Collapse
+- Lo que Ningún Economista se Atreve a Decir sobre la Economía - Impresionante Entrevista a S.Niño Becerra
+- Los Preocupantes Datos del 'Baltic Dry Index'
+- L'Uomo che ha Predetto il Collasso dell'Euro grazie al Franco Svizzero fa una Predizione Schiacciante
+- Man Who Predicted Collapse of Euro Against Swiss Franc Makes Second Terrifying Prediction
+- Markets Are Sick - Medic! Medic!
+- Markets Are Sick - Predictions
+- Massive 'Contagion' Will Lead to a Worldwide Financial Catastrophe - Will a Desperate U.S. Start World...
+- Mega-Banks Plan for Collapse with Contingency Plans and Private Police Force
+- Mientras el Mundo se Despierta, el Mundo se Desmorona
+- No hay Lugar donde Esconderse del Colapso de 'La Burbuja de Todo'
+- Not Quite Ready to Leave (your Country)?
+- Otra Crisis Acecha a los Países del Sur en Desarrollo
+- Porqué Nos Quieren Llevar a una Tercera Guerra Mundial...
+- Principles for Dealing with the Changing World Order - by Ray Dalio
+- Putin Targets U.S. Monetary System - "Aims to Eliminate the U.S. Dollar and the Euro from Trade"
+- ¿Qué le Espera a las Monedas Latinoamericanas en los Próximos Días de Enero 2016?
+- Saxo Bank CEO Says Euro is Doomed as Currency Woes Resurface
+- "Se Acerca una Gran Catástrofe y Sólo se Salvarán los que Tengan Oro y Tierras"
+- Se Desintegra el "Orden Económico Mundial"
+- ¿Se está Preparando George Soros para un Colapso Económico?
+- Signos Inquietantes en la Economía que Debes Tener en Cuenta
+- Some Predictions of Economic Disaster in 2015 from Top Experts All Over the Globe
+- Some Ways to Survive "The Great Taking"
+- Summarizing the "Black Monday" Carnage So Far
+- The Bankruptcy of the Planet Accelerates - 24 Nations are Currently Facing a Debt Crisis
+- The Birth of Predatory Capitalism
+- The Controlled Demolition of the Economy
+- The End of Tax Havens?
+- The Global 2008 Big Crash - The Collapse of World's Financial System - Main File
+- The Global Banking Cartel Has One Card Left to Play - The Road to World War III
+- The Global Economy is About to Implode - Shocking Chart: 'Inching Closer to The Lowest Level Ever'
+- The Psychological Warfare Behind Economic Collapse
+- The Revolution after the Crisis - Coronavirus affects Global Stock Market
+- The U.S. and EU will Collapse Regardless of Economic 'Contagion'
+- Todo es Una Gran Mentira - La Verdad Sobre la Manipulación de Los Mercados Financieros
+- Tutto è una Grande Menzogna - La Verità sulla Manipolazione dei Mercati Finanziari
+- Un 'Contagio' Masivo Conducirá a una Catástrofe Financiera Mundial - ¿Empezará un Desesperado...
+- Unsound Banking - Why Most of the Worlds Banks are Headed for Collapse
+- USD Dominated Financial System Will Fall Apart - The Road to 2025 Part 3
+- U.S. Debt Clock - External Link
+- U.S. Warns Allies Not to Join China-led Development Bank
+- We are All Lab Rats in the Largest-Ever Monetary Experiment in Human History
+- Whilst the World Wakes Up, the World Falls Apart
+- Political Risk - Casey Research on "Going Global"
+- The Secret of OZ
+- The Third Industrial Revolution - A Radical New Sharing Economy
+Global Debt - Deuda Global
+- Debt, Fraud and Other Secrets of the Banking System - Did You Know All Debts Are Prepaid and...
+- Debt Slavery - Why It Destroyed Rome, Why It Will Destroy Us Unless It's Stopped - Hammurabi Knew...
+- Deuda, Fraude y Otros Secretos del Sistema Bancario - ¿Sabía que Todas las Deudas son Prepagadas y...
+- Ecuador Declares Foreign Debt Illegitimate
+- El Gran Colapso - El Nivel de la Deuda Global es Insostenible
+- Europe's Web of Debt - In and Out of Each Other's European Wallets
+- Financial Red Alert - Europe Stands on Verge of 'Apocalyptic' Debt Crisis With Only Days Remaining
+- Former Wall St. Banker Suggests Global Debt May Not be Owned by Humans
+- Germany Weighs Up Federal Europe Plan to End Debt Crisis
+- Global Debt Crosses $100 Trillion, Rises by $30 Trillion Since 2007 - $27 Trillion is "Foreign-Held"
+- Global Debt is Now an Insane $164 Trillion but, Who Exactly Do We Owe?
+- How Third World Debt is Created
+- How to Cancel Third World Debt
+- Il Debito Pubblico Netto della Russia scende a Zero
+- La Bancarrota del Planeta se Acelera - 24 Naciones Enfrentan Actualmente una Crisis de Deuda
+- La Deuda Global se Dispara a los 63 Billones de Dólares
+- La Esclavitud por Deudas - Por Qué Destruyó a Roma y Por Qué Nos Destruirá a Menos Que Sea Detenida
+- La Estafa de La Deuda - de "...Y La Verdad Os Hará Libres"
+- NIA Exposes U.S. Debt Ceiling Truth
+- No Drinking Water in Venezuela Until Bankers Get Paid Back
+- Oficialmente ahora hay 3 Veces Más Deuda en el Mundo que Dinero
+- ¿Quien Está Comprando Secretamente la Deuda de EE.UU.?
+- Russia's Net Public Debt falls to Zero
+- Sovereign Debt for Territory - A New Global Elite Swap Strategy
+- The Debt Scam - from '...And The Truth Shall Set You Free' - the Book
+- The European Union Is a Neo-Feudal Kleptocracy - 500 Million Debt-Serfs
+- The Financial Road to Serfdom - How Bankers Use The Debt Crisis to Roll Back The Progressive Era
+- The Myth That Japan Is Broke - The World's Largest "Debtor" Is Now The Largest Creditor
+- There is Now Officially 3 Times More Debt in the World than Money
+- The Spectre Haunting Europe - Debt Defaults, Austerity, and Death of The "Social Europe" Model
+- The Speculative Endgame - The Government "Shutdown" and "Debt Default", a Multibillion Bonanza for...
+- The U.S. is Insolvent and Faces Bankruptcy as A Pure Debtor Nation - China Calls Our Bluff
+- What's Really Behind Quantitative Easing QE2? - The Looming Threat of A Crippling Debt Service
+- Vulture Funds Threaten Poor Nations' Debt Relief - from 'Top 25 Censored Stories of 2007'
+- Who is The New Secret Buyer of U.S. Debt?
+Gold - Oro
+- Alabama Law will Help Encourage the Use of Gold and Silver as Money - Signed by the Governor
+- Arizona Introduce una Ley que podría Acabar con el Dólar y la Reserve Federal
+- Bernanke is Wrong - Gold is Money
+- Does Central-Bank Gold-Buying Signal The Top Is Near?
+- El Apocalipsis del Dinero Fiduciario - Cada vez más Bancos Centrales cambian Dólares por Oro
+- El Sistema de Pago de Gaddafi respaldado por Oro Panafricano
+- Germany to Bring Home Gold Stored in U.S. and France
+- Gold Crashes Most in 30 Years What Does It Really Mean?
+- Gold for Humans and Others... - Main File
+- Gold Manipulation and $1.2 Quadrillion in Derivatives
+- Gold Standard - Ukraine and Inflation
+- Gold vs. the U.S. Dollar - The Big Lie
+- Greece Is Not Poor - It Actually Has Massive Untapped Reserves of Gold, Oil and Natural Gas
+- Il Sistema di Pagamento di Gheddafi supportato da Oro Panafricano
+- Iran, Gold and Oil - The Next Banksters War
+- Iran, Gold und Öl - Der nächste Krieg der Großbanken
+- Los Grandes Inversores encuentran una Sustitución al Dólar Americano
+- Rothschild Emerges from the Shadows for the Centenary of the London Gold Fixing
+- Rusia y China Liderarán el Regreso a las Divisas Respaldadas por el Oro
+- Russia and China Declare All-Out War on U.S. Petrodollar - Prepare for Exclusive Trade in Gold
+- Signs of The Gold Standard Emerging in China?
+- Spendable Gold
+- Texas Senate Passes Bill to Establish Bullion Depository - Help Facilitate Transactions in Gold and Silver
+- The Gold Standard Manifesto
+- The Real Reasons that Germany Is Demanding that The U.S. Return Its Gold
+- Trillion Dollar Lawsuit Exposes Secret Bilderberg Gold Treaty and Funding of Extraterrestrial Projects
+- What Happened The Last Time We Saw Gold Drop Like This?
+- Where Is World's Gold
+- Silver and Gold - Hidden Secrets of Money
+New Global Monetary Systems - Nuevos Sistemas Monetarios Globales
+- 23 Countries Begin Setting Up Swap Lines to Bypass the U.S. Dollar
+- Arabia Saudita NO renovó el Acuerdo de "Petrodólar" con Estados Unidos
+- Are the Banksters Creating their Own Cryptocurrency called 'Utility Settlement Coin'?
+- Brazil, Uruguay Move Away from U.S. Dollar in Trade
+- BRICS - Potential and Future in an Emerging New World Economy
+- Calls for a New Global Currency Accord - What About the Existing One?
+- Challenging the Dollar - China and Russia's Plan from Petroyuan to Gold
+- China-Japan Currency Deal Points Way to New Monetary Order
+- China and Russia are Ruthlessly Cutting the Legs Out from Under the U.S. Dollar
+- China Plans to Break Petrodollar Stranglehold
+- China, Russia Quit Dollar on Bilateral Trade
+- China's Official Press Agency Calls for New Reserve Currency and New World Order
+- China to Set Yuan Clearing Banks in Luxembourg and Paris
+- China Wants to Have a Reserve Currency
+- Coming Soon - A New Global Monetary System
+- Cómo se Desarrollará el Próximo Colapso del Dólar Americano
+- Deal or No-Deal, BREXIT Dooms the EURO
+- Debt = Serfdom
+- Digital Currency - The FED moves toward Monetary Totalitarianism
+- Does China Plan to Back The Yuan With Gold and Make It The Primary Global Reserve Currency?
+- Dollar Strong... Compared to What?
+- El Gran Teatro - ¿Que hay Detrás de La Falsa Pugna entre Putin y Occidente?
+- El Nuevo Sistema Financiero Internacional propuesto por BRICS
+- En Un Mes, Todos en Islandia Serán Propietarios de la Criptomoneda
+- ¡Es Oficial! - El Banco Central de Rusia anuncia la vinculación del ¡Rublo al Oro!
+- È Ufficiale! La Banca Centrale Russa annuncia il Rublo legato all'Oro!
+- EU, Russia, Iran, and China unveil New Global Payment System Independent of U.S.
+- False East/West Paradigm Hides the Rise of Global Currency
+- France, Germany and Holland Are Planning New Currency to Follow The Demise of The Euro
+- Gli Addetti Prevedono 5 Giorni Festivi Della Bancha in Europa Prima della Fine dell'Euro - Renminbi Può...
+- Global Plans to Replace The Dollar
+- Goodbye Petrodollar, Hello Agri-Dollar?
+- How the U.S. Dollar Will Be Replaced
+- In One Month, Everyone In Iceland Will Own Cryptocurrency
+- Insiders Predict a 5-Day Bank Holiday in Europe Before Euro Ends - Renminbi May Replace U.S. Dollar...
+- I Piani della Cina per spezzare la Forza del Petroldollaro
+- Iran is China's Secret Weapon for Killing off the U.S. Dollar's Global Reserve Status
+- It's Official! - Russia Central Bank announces Ruble bound to Gold
+- La Bolsa de Moscú Suspende Oficialmente todas las Transacciones en Dólares y Euros
+- La Borsa di Mosca Sospende Ufficialmente tutte le Transazioni in Dollari e Euro
+- La Moneda Única Mundial se Parecerá mucho al BitCoin
+- List of Alternative Currency Systems from Around The World
+- Los BRICS - Main File
+- Masters of Metal - China, the Rothschild Fix, and the "New World Currency
+- Medvedev Unveils "World Currency" Coin At G8
+- Money and The Rise of The Alternative Currency
+- Muralla Ruso-China de Oro Frente al Dólar
+- New Currency - The Next Great Plunder
+- Nothing Lasts Forever - World Bank Ex-Chief Economist Calls for End to Dollar as Reserve Currency
+- No Way Out - The FED Committed to Destruction of The Dollar
+- Parallel Currencies and The Roadmap to Monetary Freedom
+- Perché i Globalisti sono decisi a tutto pur di Distruggere il Dollaro Americano
+- Piani Globali per Rimpiazzare il Dollaro - Il Tramonto degli Stati Uniti
+- Planes Globales Para Reemplazar Al Dólar - El Ocaso de EE.UU.
+- Presentación de La Moneda Mundial en La Cumbre del G-8
+- Rise of The PetroYuan - How The Chinese Currency is Replacing The U.S. Dollar in Global Oil Markets
+- Rusia, China y Arabia Saudita ponen en Jaque a la Hegemonía del Dólar
+- Rusia Propone Seis Divisas Multipolares
+- Russia-China Deals - Another Nail in the Coffin for U.S. Dollar
+- Russia, Cina e Arabia Saudita mettono a Repentaglio l'Egemonia del Dollaro
+- Russia Returns Favor - Sees Chinese Yuan as World Reserve Currency
+- Saudi Arabia ends 80-Year-Old PetroDollar U.S. Agreement - Joins China-Led Central Bank Digital Currency...
+- Secretive Plan For a Global Currency - Excerpt from "The Global Economic - The Great Depression...
+- South American Union Will Also Have Common Currency
+- The BRICS - Main File
+- The Dying Dollar and The Rise of a New Currency Order
+- The Economic 'End Game' Explained
+- The Financial New World Order - Towards a Global Currency and World Government
+- The New World Money System - from 'Global Tyranny... Step by Step' by William F. Jasper
+- These Countries are Quickly and Quietly Dumping the Dollar
+- The Tower of Basel - Secretive Plans for The Issuing of A Global Currency
+- This Is It! - China Surpasses U.S. As Number One Global Trading Power
+- Tra un Mese, Tutti in Islanda Saranno Proprietari di Criptomoneta
+- Triple Golpe de China a EE.UU. - Petroyuán con Oro y Armas Nucleares Rusas
+- Venezuela is About to Ditch the Dollar in Major Blow to U.S. - Here's Why it Matters
+- Vor dem Ende des Euro werden, laut Insidern, Banken in Europa 5 Tage zu bleiben - Renminbi könnte ab...
+- What to Make of China's Rejection of the Dollar? - Washington is Destroying American Power
+- When The Dollar Dies
+- Why The Globalists are Hell-Bent on Destroying the US Dollar
+- Will The Chinese Renminbi Replace The U.S. Dollar as The Primary Reserve Currency of The World?
+- Yuan Tipped to Replace U.S. Dollar and Euro in Southeast Asia
+- Amero Preparations in Full Swing - China Gets a Special Deal, The Federal Reserve Board is History and...
+- El AMERO, La Declaración de Fuerza Mayor y El Pánico General
+- The AMERO - One Currency For Canada, America and Mexico
+- Baffling Bitcoin
+- Bank for International Settlements Blasts Crypto-Currencies as Fatally Flawed as Money
+- BIS General Manager 'Outlines Vision' for Central Bank Digital Currencies
+- Bitcoin Bonanza - Cyprus Crisis Boosts Digital Dollars
+- Bitcoin è più Vicina che Mai a irrompere nel Mainstream
+- Bitcoin is Closer to Breaking into the Mainstream than ever Before
+- Bitcoin - The New World Order's Plot for A World Currency?
+- 'Challenging The Dollar' - Bitcoin Total Value Tops $1 Billion
+- China Muestra la Realidad sobre las Criptomonedas y los Bancos Centrales
+- 'China's new Digital Currency' spells the End for the US Dollar's Global Dominance and will Change the World...
+- Cina Rivela la Realtà sulle Criptomonete e le Banche Centrali
+- Coinbase Expands Internationally - Now Available in 14 Countries
+- CV-1984: China rolls out 'Test of Digital Currency' in Four Cities - Western Businesses Testing
+- De Escéptico a 'Criptoídolo' - El giro radical de Trump hacia los Activos Digitales
+- Digital Yuan - The New Era of 'Cross-Border Payments' in Global Trade
+- ECB Report Says Bitcoin Is 'A Threat' to Central Banking
+- Edward Snowden explains Blockchain to his Lawyer and the Rest of Us
+- El Banco Central de Rusia ahora está Probando Monedas Estables vinculadas a Activos Reales
+- El Bitcoin para 'Dummies' en 6 Puntos
+- Everything You Need to Know about Blockchain but were Too Embarrassed to Ask
+- Evidence Points to Bitcoin being an NSA-engineered Psyop to roll out One-World Digital Currency
+- First Chinese CNH Stablecoin debuts as Global Race heats up
+- How Bitcoins May Change the Global Economy - Money 3.0
+- How Does the Blockchain Work?
+- How to Make a Mint - The Cryptography of Anonymous Electronic Cash
+- Impending Arrival - A Sequel to the Survey on Central Bank Digital Currency
+- Iran Turns to Bitcoins to Thwart Sanctions
+- Los BRICS tendrán su Propia Criptomoneda - "Será un Cambio de Paradigma en medio de la Desdolarización"
+- Naciones BRICS discuten Criptomoneda Compartida para Romper con USD y SWIFT
+- Paul Krugman Calls Bitcoin "EVIL" Because It May Damage Central Banks
+- Suiza otorga Licencias a los Primeros 'Bancos de Criptodivisas' en el Mundo
+- 'The Economist' presentó la Era de las "Govcoins"
+- The Global Elites' Secret Plan for Cryptocurrencies
+- The Rise of 'Corporate Nations'
+- The Venezuelan "Petro" - Towards a New World Reserve Currency?
+- Venezuela Launches the 'Petro' - Oil and Gold Backed Cryptocurrency to Fight U.S. Financial Blockade
+- Venezuela - Petro Sales Exceed $1 Billion in Just Two Days
+- Virtual Currencies - Gold 2.0 or Mirage?
+- When is The Government Going to Shut Down Bitcoin?
+- Why China Wants to Dominate Bitcoin
+- WikiLeaks Bypasses Financial Blockade With Bitcoin
+- World's First Crypto Banks seen as Game Changer for Switzerland
+- Yap - La pequeña Isla con Dinero tan Grande y Pesado que nadie podía Mover... ni Robar
+- 'Banking on Bitcoin' - The Latest Bitcoin Documentary
+- Euro Digital e Identificación - Así te Controlarán sin que Te Des Cuenta
+- Il Mondo si sta Allontanando dal Dollaro USA
+- Is the New BRICS Bank a Challenge to U.S. Global Financial Power?
+- Los Secretos más Oscuros de la Élite al fin Revelados - Mario Conde
+- ¿Que es un BITCOIN y que son las CRIPTOMONEDAS? - Explicado magistralmente por Jose Miró
+- U.S. Planning $37 Trillion Crypto Reset
+- World Moving Away from the U.S. Dollar
+Offshore Banking - Paraísos Fiscales
+- About the Pandora Papers
+- Banking in Hong Kong and China, and UnionPay
+- El Verdadero Origen del Secreto Bancario Suizo
+- Fabricated Putin Link to Leaked Panama Papers - Secret Offshore Money
+- Five Best Countries for Offshore Banking
+- Foreign Real Estate is the New Swiss Bank Account
+- Is the Global Taxman Coming?
+- It Begins - Activists Launch Movement to Make Taxation Voluntary
+- Los Papeles de Pandora
+- Los Papeles de Pandora - EE.UU. es uno de los "Principales Actores del mundo 'Offshore'"
+- Offshore Banking
+- Pandora Papers - Massive data leak Exposes World Leaders' Offshore Millions
+- 'Pandora Papers' - New Leaks reveal how World Leaders use Offshore companies to Dodge Millions of Dollars...
+- ¿Qué son los 'Pandora Papers'?
+- Secretos Financieros al Descubierto - Publican los 'Papeles de Pandora', la Filtración más Extensa que...
+- Some Reasons Why You Need an Offshore Bank Account
+- Switzerland's Struggle Against Fiscal Imperialism
+- Thanks to 'Swiss Leaks' we Know How Much Money Rich People are Hiding from the World
+- The Benefits of an Inefficient Government
+- The Best Offshore Banks that I Used
+- The Economic Alamo
+- The End of the Safe Deposit Box for Wealth Storage
+- The Moral Case for Tax Havens
+- The Right International Jurisdiction - A Properly Structured International Trust
+- What Is Offshore Private Banking?
+- Paraísos Fiscales y Economistas "Traviesos" - Conciencia Sur
+- The Pandora Papers - How the World of Offshore Finance is still Flourishing
+- The Spider's Web - Britain's Second Empire
+The Covert Banking System - El Sistema Bancario Encubierto
+- Alan Greenspan-United Nations Now Implicated in $134.5 Billion Bond Scandal?
+- America's Shadow Banking System - A Web of Financial Fraud
+- A "Modern Day Monaco" - Report on Failed Hedge Fund DD Growth Premium
+- A Pogrom of Offshore Companies or Operation "Offshore Leaks"
+- Approved HSBC Settlement for Drug Money Laundering
+- Banks are "Where The Money Is" in The Drug War
+- BIS engages AI to Monitor all 'Global Bank Transactions'
+- Bizarre Claim for $1 Trillion
+- Bush's Project Hammer and The 9-11 Deception
+- 'Chipping' Humanity - The Global Power Elite's 'Product of the Future'
+- El Gobierno de Israel organiza el Mayor Grupo de Estafas Internacionales
+- El Pulpo del Complejo Financiero-Digital - Desvelando el 'Pulpo Financiero'
+- Financial Tyranny
+- FinCEN Files Investigations from across Asia
+- Geithner Arrested? 116 Major Bank Resignations? - What The Finance is This?
+- How the World's Leading Banks help Launder $2 Trillion a Year
+- HSBC Let Drug Gangs Launder Millions - First Barclays, now Britain's Biggest Bank is Shamed and...
+- Huge Financial Corruption - 100s of Arrests Due in U.S./E.U.?
+- Il Governo di Israele organizza il Gruppo Più Grande di Truffe Internazionali
+- I Retroscena dell'Inganno Globale
+- Italian $1 Trillion Theft Incident to Be Discussed in Parliament - Berlusconi Implicated
+Deutsch
+- Klage vor US-Gericht Könnte die Gangsterherrschaft in der Westlichen Zivilisation Beenden
+- La Amenaza para la Economía Global de la Que Nadie Habla
+- Las Nuevas Armas Financieras de Occidente y la COP26
+- Los Archivos Filtrados - Bancos Globales sirven a Oligarcas, Narcotraficantes y Terroristas en medio de un...
+- Mass Banking Resignations Signal a Purging Has Begun?
+- Massive New Lawsuit Filed Against U.S. Federal Government in Bond Theft Scheme
+- Money Laundering and The Drug Trade - The Role of The Banks
+- Money Laundering - Why the UK does not Prosecute It
+- Operation StillPoint to 'Take Down' The United States
+- Project Hammer - Covert Finance and the Parallel Economy - Main File
+- Putin llamó a Liberarse de la "Dictadura del Modelo Financiero" cuyo objetivo es "Endeudar y Colonizar"
+- Secret "Occult Economy" Coming Out of The Shadows?
+- Secret Files Reveal Rothschild's Offshore Domain
+- Shadow Banking Hits $67 Trillion Globally - FSB Task Force
+- Shadow Banking - The $67 Trillion Threat to The U.S. Economy
+- Statement of A Senior European Agent - About Daniele Dal Bosco, Giancarlo Bruno and The World...
+- The Assets of The World
+- The Green Hilton Agreement - Geneva 1963
+- The History of The Powers And Authorities of His Excellency Dr. Ray C. Dam
+- The Lawsuit That Could End The Gangster Rule of Western Civilization
+- The Size of The Derivatives Bubble Hanging Over the Global Economy hits A Record High
+- The Trillion Dollar Crime Trail Leads to Davos and The United Nations
+- The Trillion Dollar Criminal Case Against Top Davos, UN Officials & Others - Will Go Ahead Despite...
+- The Trillion Dollar Lawsuit That Could End Financial Tyranny - NWO Global Economic Dictatorship Exposed
+- Unprecedented Lawsuit Reveals Bizarre Worldwide Banking Connections
+- Update on Silver, China and Surviving The Sudden End of The American Government
+- U.S. Dollar Collapse and Japan's Sham Currency War - The Hidden Agenda Behind Japan's Kamikaze...
+- Wave of Banking Resignations Likely Foreshadows Financial Collapse
+- Why The Battle Over The $1 Trillion in Bonds Will Decide The Future of The Planet
+- Collateral Accounts
+- Mass Arrests of 10,000 Global Cabal Members - Imminent Televised Event - 2012
+- The Office of The International Treasury Control - Dr. Ray C. Dam
+- Three 'City States' Rule the World
+The Vatican and The Global Banking System
+- I Banchieri di Dio - God's Bankers - Masons, P2 and The Vatican
+- In Desperation, The BIS and Vatican Bank Order Assassinations - But Mossad, The CIA and The Yakuza...
+- The Pope's Banks in America, The Giannini Family and The CIA
+- The Pope's Three Banks In America
+- Vatican Bank Hit By Financial Scandal... Again
+- Vatican Bank Sued For Alleged War Crimes
+- Vatican SpA - Bribery and Mafia Criminal Finance
+- The Vaticans Banker
+Wall Street
+- An Open Letter to Wall Street
+- Argentina and Wall Street's Vulture Funds - "Economic Terrorism" and the Western Financial System
+- Bank of North Dakota Outperforms Wall Street - WSJ Reports
+- Bernard Madoff - El Estafador de Wall Street, Da Un Poderoso Golpe de Mano a Favor de La Justicia Social
+- Catherine Austin Fitts on Wall Street's Corruption, The Austrian School and Who's 'Really' in Charge
+- Financial Warfare Against Russia, Multibillion Dollar Bonanza for Wall Street - The Malaysian Airlines MH17...
+- High-Tech Highway Robbery on Wall Street - "High Frequency" Financial Trading
+- How Wall Street Manipulates and Manufactures Atrocities
+- Los Documentos Secretos de Wall Street - La Estafa Más Gigantesca de La Historia al Descubierto
+- New "Water Barons" - Wall Street Mega-Banks and the Tycoons are Buying Up Water at Unprecedented...
+- Shocking Revelations About Wall Street's "Secret Government"
+- Startling Evidence that Central Banks and Wall Street Insiders are Rapidly Preparing for Something BIG
+- The Bi-polar World of Rich Bankers - Wall Street "Take-Off" 2012-2013
+- The Food Bubble - How Wall Street Starved Millions and Got Away With It
+- The Merchants of Wall Street - Banking, Commerce and Commodities
+- The State, the Deep State and the Wall Street Overworld
+- The Ukraine Crisis and Vladimir Putin - A New Financial System Free from Wall Street and the City of...
+- Wall Street and The Bolshevik Revolution - by Antony C. Sutton
+- Wall Street and The Rise of Hitler - by Antony C. Sutton
+- The Wall Street Pentagon Papers - Biggest Scam In World History Exposed
+- USAID y Wall Street - Conflictos, Golpes y Conquista
+- U.S. Congress Sells Out to Wall Street
+- Wall Street Analysts Everywhere Are in Agreement - 'The World is Ending'
+- Wall Street Aristocracy Got $1.2 Trillion in Fed's Secret Loans
+- Wall Street Bankster Soros to Open "Official Presence" in Myanmar
+- Wall Street Trader Stuns World by Telling The Truth About Coming Economic Collapse
+- Why Ex-Federal Government and Wall Street Executives are Going Into Hiding
+Books-Treatises
+- A History of Central Banking and the Enslavement of Mankind - by Stephen Mitford Goodson
+- All the Presidents' Bankers - by Nomi Prins
+- Architects of Deception - by Jüri Lina
+- Arquitectos del Engaño - por Jüri Lina
+- Confessions of An Economic Hit Man - by John Perkins
+- Dope, Inc. - Britain's Opium War Against The U.S. - by a U.S. Labor Party Investigating Team
+- Growth Isn't Possible - Why We Need a New Economic Direction - by The New Economics Foundation
+- Guide to Surviving and Thriving during an Economic Collapse - by Nick Giambruno and Jeff Thomas
+- How I Clobbered Every Bureaucratic Cash-Confiscatory Agency Known to Man - by Mary Elizabeth Croft
+- La Doctrina del Shock - El Auge del Capitalismo del Desastre - por Naomi Klein
+- Manifiesto para Una Vida Libre de Dinero - por Mark Boyle
+- Sacred Economics - by Charles Eisenstein
+- The Babylonian Woe - A Study of The Origin of Certain Banking Practices - by David Astle
+- The Best Enemy Money Can Buy - by Antony C. Sutton
+- The CIA Covenant - Nazis in Washington - by Gregory Douglas
+- The Creature of Jekyll Island - A Second Look at the Federal Reserve - by G. Edward Griffin
+- The Great Red Dragon - London Money Power - by L.B. Woolfolk
+- The Great Taking - by David Webb
+- The New Depression - The Breakdown of the Paper Money Economy - by Richard Duncan
+- The Next 100 Years - A Forecast for The 21st Century - by George Friedman
+- The Police State Road Map - by Michael Nield
+- Trading With The Enemy - An Expose of The Nazi-American Money Plot 1933-1949 - by Charles Higham
+- Tragedy and Hope - by Carroll Quigley
+- UBUNTU - A Blueprint for Human Prosperity - Exposing the Global Banking Fraud - by Michael Tellinger
+Multimedia
+- 97% Owned - Monetary Reform Documentary
+- A Conversation With John Perkins - Democracy Now
+- Abolishing Capitalism
+- After The DOLLAR CoLLaPSe and Currency WARS
+- All Wars Are Bankers' Wars
+- Ante La Crisis Crean Su Propia Moneda
+- "Austerity" Comes to America
+- Banksters & Government Exposed FINALLY by Mainstream News! - MSNBC
+- Big Pharma - Llamamiento del Dr. Rath a La Población de Alemania, Europa y al Mundo
+- Black 9/11 - Money, Motive, Technology, and Plausible Deniability
+- Black Money - A Tale of International Bribery
+- Break Up The Euro and Restore Human Dignity - UKIP Nigel Farage - 22 May 2012
+- Capitalism Hits The Fan
+- Capitalismo - Historia de Un Romance - Capitalism - A Love Story
+- Casino Jack and The United States of Money
+- Cortafuego - En Defensa Del Estado Nacional
+- Currency Wars - The Making of The Next Global Crisis
+- David Icke - Melbourne 2009 - Human Race Get Off Your Knees!
+- David Icke - The Parasite Society
+- Death of The Dollar Menu
+- Debtocracy
+- Democracy in Shambles - "Money First, People Second... If At All" - Bill Moyers
+- Discussing Financial Terrorist Bankers and Politicians
+- El Banquero
+- El Dinero Es Deuda - Parte 1 - ¿De Donde Viene El Dinero?
+- El Dinero Es Deuda - Parte 2 - Promesas Incumplidas
+- El Gran Flujo de Dinero - Como los Ricos se vuelven Mas Ricos
+- El Llamado - The Calling
+- El Truco de Las Políticas de La UE de Convertir Deuda Privada en Deuda Pública - Crisis Económica
+- End of Liberty
+- Essential Knowledge for a Wall Street Protestor - David Icke
+- European Union Corruption - Christopher Story
+- Firewall - In Defense of Nation State
+- Foreclosure Fraud by Gov-Co & Banks - Indymac Boys Get Sweetheart Deal
+- Four Horsemen
+- Global Economic Update - Benjamin Fulford
+- 'Goldman Sachs Dictatorship - Hitler's Dream'
+- Hidden Secrets of Money - Currency Vs Money
+- How Economic Hitmen Enslave Nations For Generations
+- Inflation - 'The Day The Dollar Died' Goes Viral
+- Inside Job
+- Inside The Bank That Ran Out of Money - The Royal Bank of Scotland
+- Inside The Meltdown - America's Financial System Unraveled
+- Into The Fire
+- John Perkins "Confessions of an Economic Hitman" - Extended Interview 2008
+- Jon Corzine is Above The Law - Rick Santelli
+- Karen Hudes Predicts Lawlessness when U.S. Dollar Loses International Currency Status
+- La Conspiración del Capitalismo
+- La Crisis de Europa y el Fin del Euro
+- La Doctrina del Shock
+- La Historia de los Judíos - Su Origen Jázaro
+- Largest Financial Scandal in World History - Shocking NIA Interview With Bill Murphy
+- La Verdad Jamás Contada - Zeitgeist
+- Let Banks Go Bankrupt' - Says Olafur Ragnar Grimsson Iceland President
+- Life and Debt - De Como el FMI Ayuda a "Mejorar la Vida"
+- Los Planes de La Oligarquía - Los Banqueros Internacionales y Sus Planes Para El Mundo
+- Money As Debt
+- Operación Gladio
+- Palabras Desde Atenas - Words From Athens
+- Quants - The Alchemists of Wall Street
+- Secret History of The Credit Card - Frontline 2004
+- Some Common Sense Answers to The Major Financial Questions of Today - Richard Kovacevich
+- The Banker
+- The Bank of God
+- The Big Picture - An Economic Forecast For Coming Times
+- The Calling - Expose of The New World Order
+- The Capitalist Conspiracy
+- The Coming Collapse of The Middle Class
+- The Corporatocracy and Central and South America
+- The Death of Money - With Jim Rickards
+- The Debt Collapse
+- The "Dispatches Reports" - Banks and The Big Crash
+- The Global Ponzi Scheme - Adrian Salbuchi
+- The Looting Of America - Catherine Austin Fitts
+- The Madness of A Lost Society
+- The Money Deluge - How the Rich get Richer - Money in the World Economy
+- The Money Masters - How International Bankers Gained Control of America
+- The Power of The Purse
+- Thrive 1 - Cosa diavolo ci vorrà?
+- Thrive 1 - ¿Cuánto le Costará al Planeta?
+- Thrive 1 - What On Earth Will It Take?
+- Thrive 2 - This is What it Takes
+- The Shocking Truth of The Pending EU Collapse!
+- Trabajo Confidencial - Dinero Sucio
+- Trump y lo que Vas a Ver en las Noticias...
+- Unintended Consequences - Hyperinflation
+- Victoria para El Mundo - Paul Hellyer
+- Victory for The World - Paul Hellyer
+- Wall Street, Los Nazis y La Revolución Bolchevique - Antony C. Sutton
+- Wall Street Whistleblower - Proves That Money Never Sleep
+- What Happened to Strauss-Kahn, Was No Accident - New Political Shift in Progress...
+- What is Money? - An Excerpt From "Radical Truth Knowledge and Revolution" by David Icke
+- What The Elite Have Done to America - Gaylon Ross on Alex Jones Show
+- Where Did $1.5 Trillion Dollars Go?
+- Why the U.S. is Becoming an "Underdeveloping Nation" - Chilean Economist Manfred Max-Neef on...
+- Why the Whole Banking System is a Scam - Godfrey Bloom MEP
+- WW3 and The Global Recession - from Warning To The World
+- You Are a Stock on The Stock Exchange of USA - Jordan Maxwell
+Related Reports
+- Asia - The Reemerge of a Giant - Main File
+- New World Order - Main File
+- The Illuminati - Main File
+- The North America Union - Main File
+- The Protocols of The Learned Elders of Zion - Main File
+- The Trilateral Commission - Main File
+- The Ultimate Delusion - The United Nations - Main File
+- The Secret History of America's Capital: Washington D.C. - Main File
+Return to Globalization
+Return to The Rothschilds
+Return to Temas / Main Files
+Return to The Global Elite - The Transnational Capitalist Class

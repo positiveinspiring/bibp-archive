@@ -1,0 +1,71 @@
+# Canadian Terror Wave - A Modern-Day Gladio
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_gladio05.htm
+
+by Tony Cartalucci October 23, 2014 from LandDestroyer Website
+As warned, after multiple staged incidents used to ratchet up fear and paranoia in the build-up to U.S. and its allies' military intervention in Syria and Iraq, at least two live attacks have now been carried out in Canada - precisely as they were predicted. The first attack involved a deadly hit-and-run that left one Canadian soldier dead.
+AP would report in its article, "Terrorist ideology blamed in Canada car attack," that:
+A young convert to Islam who killed a Canadian soldier in a hit-and-run had been on the radar of federal investigators, who feared he had jihadist ambitions and seized his passport when he tried to travel to Turkey, authorities said Tuesday.
+The second, most recent attack, involved a shooting in Ottawa injuring several and killing another Canadian soldier.
+RT in its article, "Ottawa gunman 'identified' as recent Muslim convert, high-risk traveler," would report that:
+While the name of the Ottawa gunman is yet to be announced, a number of officials told numerous media that the shooter is believed to be Michael Zehaf-Bibeau, a recent Muslim convert, allegedly designated as a high-risk traveler.
+Michael Zehaf-Bibeau was born in Quebec as Michael Joseph Hall north of Montreal, two U.S. officials told Reuters, claiming that American law enforcement agencies have been advised that the attacker recently converted to Islam.
+AP sources also identified the man to be Zehaf-Bibeau. A Twitter account associated with Islamic State militants tweeted a photo they identified as the Ottawa shooter. The Globe and Mail reports that the shooter was designated a "high-risk traveler" by the Canadian authorities with his passport seized.
+AP sources also identified the man to be Zehaf-Bibeau. A Twitter account associated with Islamic State militants tweeted a photo they identified as the Ottawa shooter.
+The Globe and Mail reports that the shooter was designated a "high-risk traveler" by the Canadian authorities with his passport seized.
+Clearly, both suspects were under the watch of not only Canadian authorities, but also U.S. investigators, before the attacks.
+Canada's Attacks Were Predictable - Western Security Agencies are Prime Suspects
+It was warned last month after security agencies staged scares in both the U.S. and Australia, that suspects under investigation, being walked through planned terrorist attacks by Western security agencies as part of "sting operations" would inevitably be switched to live terrorist attacks.
+In mid-September a Rochester man, Mufid A. Elfgeeh, was accused by the FBI of attempting to provide material support to ISIS (undercover FBI agents), attempting to kill U.S. soldiers, and possession of firearms and silencers (provided to him by the FBI).
+The FBI's own official press release stated:
+According to court records, Elfgeeh attempted to provide material support to ISIS in the form of personnel, namely three individuals, two of whom were cooperating with the FBI. Elfgeeh attempted to assist all three individuals in traveling to Syria to join and fight on behalf of ISIS. Elfgeeh also plotted to shoot and kill members of the United States military who had returned from Iraq. As part of the plan to kill soldiers, Elfgeeh purchased two handguns equipped with firearm silencers and ammunition from a confidential source. The handguns were made inoperable by the FBI before the confidential source gave them to Elfgeeh.
+According to court records, Elfgeeh attempted to provide material support to ISIS in the form of personnel, namely three individuals, two of whom were cooperating with the FBI.
+Elfgeeh attempted to assist all three individuals in traveling to Syria to join and fight on behalf of ISIS.
+Elfgeeh also plotted to shoot and kill members of the United States military who had returned from Iraq. As part of the plan to kill soldiers, Elfgeeh purchased two handguns equipped with firearm silencers and ammunition from a confidential source.
+The handguns were made inoperable by the FBI before the confidential source gave them to Elfgeeh.
+It was warned that only an inoperable firearm stood between Elfgeeh's arrest and his successful execution of deadly plans hatched by him and his undercover FBI handlers.
+This script, written by the FBI to entrap Elfgeeh, would be followed almost to the letter in live attacks subsequently carried out in Canada resulting in the death of two Canadian soldiers. Conveniently, both suspects are now dead and little chance remains of ascertaining the truth of who they were in contact with and how they carried out their deadly attacks. With both suspects having been on both U.S. and Canadian watch lists - it is very likely undercover agents were involved in either one or both cases.
+While many possibilities exist, Western security agencies should be among the first suspects considered as potential collaborators.
+A Modern-Day Operation Gladio - Inducing Fear, Obedience, and Control Before Elfgeeh's entrapment and later live attacks in Canada, U.S. policymakers and pundits had begun in earnest setting the rhetorical stage for eventual staged attacks.
+With serial beheadings failing to raise Western public support necessary for an expedient intervention in Syria, more insidious provocations appeared to be in the works.
+Setting the stage, a CBS/Associated Press story titled, "Former Deputy CIA Director - 'I Would Not Be Surprised' If ISIS Member Shows Up To U.S. Mall Tomorrow With AK-47," would claim immediately after the initial James Foley ISIS execution video that:
+"The short-term concern is the Americans that have gone to fight with ISIS and the west Europeans that have gone to fight with ISIS could be trained and directed by ISIS to come to the United States to conduct small-scale attacks," Morell stated. "If an ISIS member showed up at a mall in the United States tomorrow with an AK-47 and killed a number of Americans, I would not be surprised." (Former Deputy CIA Director) Mike Morell warned that over the long-term the extremist group could be planning for a 9/11-style attack that killed thousands of Americans.
+"The short-term concern is the Americans that have gone to fight with ISIS and the west Europeans that have gone to fight with ISIS could be trained and directed by ISIS to come to the United States to conduct small-scale attacks," Morell stated. "If an ISIS member showed up at a mall in the United States tomorrow with an AK-47 and killed a number of Americans, I would not be surprised."
+"The short-term concern is the Americans that have gone to fight with ISIS and the west Europeans that have gone to fight with ISIS could be trained and directed by ISIS to come to the United States to conduct small-scale attacks," Morell stated.
+"If an ISIS member showed up at a mall in the United States tomorrow with an AK-47 and killed a number of Americans, I would not be surprised."
+(Former Deputy CIA Director) Mike Morell warned that over the long-term the extremist group could be planning for a 9/11-style attack that killed thousands of Americans.
+The FBI has a long list of foiled terror plots of its own creation.
+More disturbingly are the plots they conceived but "accidentally" allowed to go "live." One might recall the 1993 World Trade Center bombing. FBI agents, according to the New York Times, were indeed overseeing the bombers that detonated a device killing six and wounding many more at the World Trade Center. In their article, "Tapes Depict Proposal to Thwart Bomb Used in Trade Center Blast," NYT reported:
+Law-enforcement officials were told that terrorists were building a bomb that was eventually used to blow up the World Trade Center, and they planned to thwart the plotters by secretly substituting harmless powder for the explosives, an informer said after the blast.
+The informer was to have helped the plotters build the bomb and supply the fake powder, but the plan was called off by an FBI supervisor who had other ideas about how the informer, Emad A. Salem, should be used, the informer said.
+The account, which is given in the transcript of hundreds of hours of tape recordings Mr. Salem secretly made of his talks with law-enforcement agents, portrays the authorities as in a far better position than previously known to foil the Feb. 26 bombing of New York City's tallest towers. The explosion left six people dead, more than 1,000 injured and damages in excess of half a billion dollars.
+The account, which is given in the transcript of hundreds of hours of tape recordings Mr. Salem secretly made of his talks with law-enforcement agents, portrays the authorities as in a far better position than previously known to foil the Feb. 26 bombing of New York City's tallest towers.
+The explosion left six people dead, more than 1,000 injured and damages in excess of half a billion dollars.
+Considering the 1993 bombing and the fact that the FBI literally oversaw the construction and deployment of a deadly bomb that killed 6, it is clear that the FBI can at any time through design or disastrous incompetence, turn one of their contrived entrapment cases into a live terror attack.
+One can only guess at how many similar FBI operations are currently taking place within the United States involving ISIS sympathizers - any one of which could be turned into a live terror attack provided the weapons handed over to potential terrorists are functioning, just as the bomb was in 1993 when it was driven into the lower levels of the World Trade Center. It is very likely that the recent attacks in Canada involved at least one "informant" working for the FBI.
+Because the FBI uses confidential informants to handle suspects, if a plot is switched "live," the informant will be implicated as an accomplice and the FBI's covert role will remain uncompromised.
+The FBI has an impressive portfolio of intentionally created, then foiled terror plots. Its methods include allowing suspects to handle both real and inoperable weapons and explosives. These methods allow the FBI to switch entrapment cases "live" at any moment simply by switching out duds and arrests with real explosives and successful attacks. Because the FBI uses "informants," when attacks go live, these confidential assets can be blamed, obfuscating the FBI's involvement.
+The FBI has an impressive portfolio of intentionally created, then foiled terror plots. Its methods include allowing suspects to handle both real and inoperable weapons and explosives.
+These methods allow the FBI to switch entrapment cases "live" at any moment simply by switching out duds and arrests with real explosives and successful attacks.
+Because the FBI uses "informants," when attacks go live, these confidential assets can be blamed, obfuscating the FBI's involvement.
+Everything from a mass shooting to a bombing, and even an Operation Northwoods-style false flag attack involving aircraft could be employed to provide Wall Street and London with the support it needs to accelerate its long-stalled agenda of regime change and reordering in both Syria and across the Iranian arc of influence.
+Readers may recall Operation Northwoods, reported on in an ABC News article titled, "U.S. Military Wanted to Provoke War With Cuba," which bluntly stated:
+In the early 1960s, America's top military leaders reportedly drafted plans to kill innocent people and commit acts of terrorism in U.S. cities to create public support for a war against Cuba.
+Code named Operation Northwoods, the plans reportedly included the possible assassination of Cuban émigrés, sinking boats of Cuban refugees on the high seas, hijacking planes, blowing up a U.S. ship, and even orchestrating violent terrorism in U.S. cities.
+In addition to Operation Northwoods, the public must also consider NATO's Operation Gladio, and its larger "stay behind" networks established after World War II across Europe and at the center of multiple grisly assassinations, mass shootings, and terrorist bombings designed to demonize the Soviet Union as well as criminalize and crush support for left-leaning political parties growing in popularity in Western Europe.
+It would be determined that NATO's own covert militant groups were killing innocent Western Europeans in order to effect a "strategy of tension" used to instill fear, obedience, and control over Western populations.
+That the FBI and Australian authorities had coordinated staged security operations in tandem on opposite ends of the globe to terrify their respective populations into line behind an impending war with Syria, and now two highly suspicious attacks have been carried out using the very script Western security agencies were using to lead suspects through "sting operations," suggests a new "Operation Northwoods" or "Operation Gladio" of sorts is already being executed.
+Staged executions on cue by ISIS in the Middle East of U.S. and British citizens at perfectly timed junctures of the West's attempt to sell intervention both at home and abroad, and now live shootings just in time to heighten a new "strategy of tension" reek of staged mayhem for the sole purpose of provoking war.
+Could grander and ultimately more tragic mayhem be in store?
+As ABC News' article on Operation Northwoods and the Military Channel's documentary on Operation Gladio suggest, there is no line Western special interests will hesitate to cross.
+With the West attempting to claim ISIS now has a "global" reach, the U.S. and its partners' attempts to obfuscate the very obvious state-sponsorship it is receiving will become exponentially more difficult.
+That the FBI is admittedly stringing along easily manipulated, malevolent patsies who at any time could be handed real weapons and sent on shooting sprees and/or bombings - and now apparently have been,
+Americans Canadians Europeans Australians,
+Americans
+Canadians
+Europeans
+Australians,
+...would be foolish to conclude that their real enemy resides somewhere in Syria and not right beside them at home, upon the very seats of Western power.
+Return to Operation Gladio - NATO's Secret Wars
+Return to False Flag Operations
+Return to 'War on Terror'

@@ -27,6 +27,7 @@
 - China and Russia - The Bilateral Relationship that Matters
 - China and the Zombies of The Past
 - China announces the World's First "A.I. Hospital" - Marking Asia's Leadership in Healthcare Innovation
+- China - Cómo el Socialismo aventaja al Capitalismo
 - China consolida su presencia en Latinoamérica con la Inauguración en Perú del Megapuerto de Chancay
 - China Could Reshape the Post-U.S. World Order - But Does It Want To?
 Español
@@ -279,6 +280,7 @@ Italiano
 - Xi Jinping - China y Alemania refuerzan su Confianza y su Cooperación
 - Xi Jinping, Putin y el Colapso de EE.UU. como Imperio
 - Xi says SCO bears Greater Responsibilities for Peace and Development
+- Young Chinese Influencer urges Americans to start a Revolution
 - 1,300-Year-Old Fortress - Ruins on Siberian Lake Mystifies Experts
 - "1984" Has Come to China
 - 5000 Anni di Civiltà Cinese - 4 Segreti della Trasmissione Ininterrotta

@@ -126,6 +126,7 @@ Español
 - ¿Chávez Asesinado por su Asistente Personal? - EE.UU. trata de Cubrir sus Huellas en el Caso
 - Chicago "Black Site" Indicates America has Passed the Point of No Return...
 - China al G7 - Se Acabó que un 'Grupo de Países' dicte las Decisiones Globales
+- China - Cómo el Socialismo aventaja al Capitalismo
 - China Encerrada en una Guerra Híbrida con Estados Unidos
 - China has Begun to Shape and Manage the U.S. - Not the Other Way Around
 - China insta a EE.UU. a revelar Detalles sobre Laboratorios Biológicos en Ucrania - Los virus que Almacenan y...
@@ -509,6 +510,7 @@ Italiano
 - Los Líderes Mundiales acuerdan 'Etiquetar al Ganado' del Planeta
 - Los Planes que EE.UU. tenia en Siria... y que Rusia ha Roto en Pedazos
 - Los Plenos Poderes del Presidente de Estados Unidos
+- Los Pretextos - y Verdaderos Objetivos - de las Intervenciones de EE.UU. en América Latina
 - L'Ovest è gestito da Barbari
 - Major Developments Strongly Suggest the End of Unipolar World Order
 - Majority of Mexicans see the United States as Greatest Threat - New Poll Shows
@@ -917,6 +919,7 @@ Italiano
 - Y "Ahora Estados Unidos No va a Imponer su Estilo de Vida"
 - ¡Yo Creé el Terrorismo Yihadista y No me Arrepiento! - Brzezinski, Asesor de Seguridad de Carter
 - You Have Been Fooled into Believing WWIII is Real - Here is the Proof
+- Young Chinese Influencer urges Americans to start a Revolution
 - 42% of 'All COVID-19 Deaths in the U.S.' occurred in Nursing Homes
 - A Disturbing Series of Events - Governments Around the World Seem to Be Preparing for War
 - Afghanistan's Mineral Resources fueling War and Insurgency
@@ -1485,6 +1488,7 @@ Multimedia:
 - Crossing the Rubicon - The Decline of the American Empire at the End of the Age of Oil - by M. Ruppert
 - Deterring Democracy - by Noam Chomsky
 - El Destino de los Imperios y la Búsqueda de la Supervivencia - por Jeff Bagot Glubb
+- El Monstruo y sus Entrañas - Estudio Crítico de la Sociedad Estadounidense - por Vladimir Acosta
 - Government Gangsters - by Kash Pramod Patel
 - La Historia Silenciada de Estados Unidos - por Oliver Stone y Peter Kuznick
 - La Trastienda de Trump - por Daniel Estulin
