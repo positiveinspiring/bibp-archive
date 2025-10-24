@@ -1,0 +1,27 @@
+# La Conspiración Del Sistema Financiero
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_globalbanking37.htm
+
+Octubre 31, 2008
+del Sitio Web TrinityATierra
+Ayer tuve el placer de escuchar la entrevista a Rodrigo Cortés, director de Concursante y a Paul H. Koch que hablaron en el programa radiofónico de La sombra del espejo sobre la realidad de nuestro sistema financiero.
+Francamente, hay tan poco escrito en castellano sobre este asunto, y es tan difícil de explicarle a la gente este asunto en un lenguaje comprensible que me resulta muy gratificante encontrarme con este material. No dejéis por nada del mundo de escuchar este programa pues es una fácil y buena introducción al timo más sofisticado en el que estamos inmersos.
+No he encontrado mucho material traducido en castellano y menos disponible gratuitamente en la red.
+Teniendo en cuenta que es el tercer idioma hablado en el planeta, después del chino y el inglés, a veces es un poco desalentador ver lo poco que se traduce. Así que para los que pueden leer inglés recomiendo esta lectura complementaria:
+Esta es una de ellas: Bancos y Banca
+Esta es otra referencia importante: El libro se llama Tragedia y Esperanza: Una historia de mundo de nuestro tiempo, Tragedy and Hope: A History of the World in Our Time escrito por Carroll Quigley en 1966.
+Este señor, entre muchas otras cosas, fue el mentor de Bill Clinton en la universidad y el libro contiene perlas como:
+los poderes del capitalismo financiero tenían otro objetivo de mucho mayor alcance, nada menos que crear un sistema de control financiero mundial y ponerlo en manos privadas para dominar el sistema político de cada país y la economía del mundo como un todo. Este sistema sería controlado de una forma feudal por los bancos centrales del mundo actuando en coordinación por medio de acuerdos secretos alcanzados en reuniones y conferencias privadas y frecuentes.
+El vértice del sistema estaría situado en el Bank for International Settlements en Basilea, Suiza, un banco privado propiedad y controlado por los bancos centrales mundiales que serían en sí mismos corporaciones privadas :
+Ese es el resumen de la situación actual, y está dicho y predicho por alguien que sin duda ocupó un lugar en la pirámide del illuminismo, en su rama educativa, en los años 60 y 70.
+Otro libro que toca el asunto del oro y de los planes de control financiero es El Tratado Secreto del Oro, la verdad detrás de la Segunda Guerra Mundial, el saqueo nazi y los planes de la elite para controlar nuestro futuro financiero" (en inglés The Secret Gold Treaty, The Truth Behind WW II Gold, Nazi Plunder & Elite Plans To Control Our Financial Future) escrito por David Guyatt, en el año 2000.
+Otra referencia importante es el sitio y libro de Mike Montagne donde se explica estupendamente esta singular versión que explica maravillosamente cómo funciona el sistema bancario y su relación con los Illuminati, además de proponer una economía basada en la matemática que podría ser perfecta.
+Como introducción al material esta referencia:
+Los bancos centrales son la creación y propiedad de la moneda de cada nación por parte de banqueros privados con el objetivo de un beneficio ilimitado por medio de la multiplicación irreversible de la deuda, traída necesariamente a cada nación del mundo y manteniendo su circulación vital por el simple acto de re-prestado de lo que pagamos en intereses y capital como deudas posteriores, aumentadas tanto como interés periódico (usura).
+El libro y el sitio de The Perfect Economy es imprescindible para aquellos que con una mente matemática, no acaban de verlo claro.Comprobarán aquí que la matemática del sistema financiero actual es tan diabólicamente perfecta como un reloj atómico. Incluye charts en Excel que te permiten hacer tus propias simulaciones de deuda, por ejemplo.En la página principal el sitio contiene dos citas importantes.
+Cuando los que destruyen aparecen entre los hombres, comienzan destruyendo el dinero, que es la protección del hombre y la base de la existencia moral Ayn Rand
+El final de la democracia y la destrucción de la Revolución americana ocurrirá cuando el gobierno se ponga en manos de las instituciones prestatarias y las corporaciones financierasLa banca de los Estados Unidos es uno de las fuerzas más hostiles que existen contra los principios y formas de nuestra Constitución. El sistema bancario es un borrón que ha quedado en nuestras Constituciones (la estatal y la federal) que de no solucionarse, llevará a su destrucción (la de las Constituciones). Creo sinceramente que las instituciones bancarias son más peligrosas que nuestros ejércitos y que el principio de gastar dinero para que sea pagado por la posteridad es estafar a las generaciones futuras a una escala la más grande posible(comentario Trinity: estas palabras de Thomas Jefferson parecen proféticas)
+Otro libro donde se da cuenta de la estafa financiera generalizada es el de David Allen Rivera titulado: Aviso Final: Una historia del Nuevo Orden Mundial o en inglés: Final Warning - A History of the New World Order.
+El libro de Allen Rivera contiene multitud de datos, hechos e informaciones que hablan de una buena parte de las ramificaciones y proyectos de esta trama que se ha venido a llamar de los illuminati y que está tan estrechamente ligada a la banca internacional.
+Regresar a Global Banking
+Regresar a Temas / Sociopolitica
