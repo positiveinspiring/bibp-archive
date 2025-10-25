@@ -1,0 +1,407 @@
+# The Global Food Control - El Control Global de La Comida
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_globalfood.htm
+
+Contents
+- 1974 United Nations World Food Conference Set Stage for "Food as a Weapon"
+- 2010 - Food Crisis for Dummies
+- Achieving 'Self-Funding Local Sovereignty' as Global Food systems Collapse
+- A Coup Over Land - The Resource War Behind Paraguay's Crisis
+- Agricultural Apocalypse 2010
+- A La Caza de Genes "Climáticos"
+- Alemania Advierte de una Hambruna Global
+- A Loaf of Wheat Bread May Soon Cost $23 Due to Skyrocketing Food Price Inflation
+- As Food Prices Sky Rocket, Biotech Shills Claim Genetically Modified Foods Are 'The Answer'
+- Bill Gates Calls for Farmers to Be Replaced with 'Smart Farming' A.I. Technology
+- Bill Gates Launches Attacks on Africa's Food Production
+- Bill Gates, Monsanto, and Eugenics - How One of The World's Wealthiest Men is Actively Promoting a...
+- Bill Gates promueve el "Cero Neto" ("Net Zero") como Solución al Cambio Climático
+- Bill Gates promueve la "Agricultura de Vigilancia" - Vandana Shiva
+- Bill Gates propone di Rimpiazzare gli Agricoltori con Tecnologia di I.A. "Agricoltura Intelligente"
+- Bill Gates pushes Vaccinations in Food Supply to 'Fight Climate Change'
+- Bill Gates secretly Dictates 'Global Food Policy' too...!
+Español
+- Biopiratería de Multinacionales acecha a las Plantas Nativas de América Latina
+- Biowarfare through the Food Supply
+- Carne Artificial - Este tipo de Carne es una Amenaza para la Salud, la Economía y la Agricultura
+- Cereal for the Peasants? - How the Elites use "Skimpflation" to Control our Eating Habits
+- Civil Disobedience or Death by Design
+- CO² Myth Busted - Why We Need More Carbon Dioxide to Grow Food and Forests
+- Colombians Successfully Revolt Against Seed Control and Agricultural Tyranny
+- Comercio Justo y Soberanía Alimentaria
+- Coming Food Crisis Play into Global Elite's Demand for Population Stabilization
+- Cómo construye Bolivia su Soberanía Alimentaria ante el alza mundial de Precios
+- Cómo el 'One Health' de la OMS dictará "Lo que tú Comas"...
+- Cómo empuja la Fundación Gates al Sistema Alimentario en la Dirección Equivocada
+- Cómo la "Escasez de Alimentos" y el Colapso Económico protegen el Status Quo
+- Consolidation of Seed Companies Leading to Corporate Domination of World Food Supply
+- ¿Conspiración Alimentaria?
+- Continúan las Protestas de los Agricultores Holandeses con Incendios de Neumáticos en las Carreteras
+- COVID-19 mRNA Vaccine Assault possible through Food Supply
+- Crisi Globale del Cibo - Fingere ha delle Conseguenze
+- ¿Cuál es el Futuro de los Alimentos?
+- Depopulation by Food While Making Profit
+- ¿Desarrollo Sostenible o Explotación Sostenible...?
+- Devastating Honeybee Loss Reported Across United States Expected to Impact Food Prices
+- Ditch Corporate-Controlled Agriculture - Groundbreaking New United Nations Report on How to Feed the...
+- Do We Face a Global Food Disaster?
+- Driving Up The Price of Food Worldwide and Plunging Millions Into Hunger - Speculation in Agricultural...
+- El Control Mundial de los Alimentos a través de las Semillas Genéticamente Modificadas
+- El Instrumento Del Hambre y El Control de La Población - Bunge & Born Hirsch, Cartel Global de Los...
+- El Mapa de La Hambruna Mundial y Del Apocalipsis Social
+- Enough Food is Grown Worldwide to Feed 10 Billion People
+- Entire Global Food Supply at Risk from Disastrous Response to So-Called 'Nitrogen Crisis'
+- E.U. approves House Crickets and Mealworms for Human Consumption
+- Exactly what is Behind the United Nations and WEF 'Insects as Food Agenda'?
+- Famine - Behold The Black Rider of Goldman Sachs and The Pale Rider of Apocalypse
+- FEMA Contractor Predicts 'Social Unrest' Caused by 395% Food Price Spikes
+- Food Armageddon
+- Food As a Weapon - The Pyramid of Power: Chapter 8
+- Food Crisis a Conspiracy? - Silent Tsunami
+- Food/Financial Crisis of 2011
+- Food Giants Take Over the Industry - Too Much Power in Too Few Hands
+- Food Inflation Will Affect Entire Globe in 2013 - It's Not Just The U.S.
+- Food Prices Rising - Reaching Near Emergency Levels, Riots Expected
+- Fresh Produce Prices to Double or Triple Following Freak Freezes - Is Earth in A Magnetic Pole Shift?
+- From Bill Gates to "The Great Refusal" - Farmers on the Frontline
+- Genetically Engineered Organisms - Foods and Others - Main File
+- Geoengineering Could Cause the Next Great Famine
+- Geopolítica del Hambre
+- Geopolitica della Fame
+- Getting Used to Life Without Food - Wall Street, BP, Bio-Ethanol and The Death of Millions
+- Giant Multi-Nationals to Dominate Food Production
+- Global Diets Link Environmental Sustainability and Human Health
+- Global Food Crisis Expands - Diet Hard - With a Vengeance
+- Global Food Crisis - Pretending has Consequences
+- Global Food Crisis - The Other 'Pandemic'
+- Global Food Security At Risk As Crop Biodiversity is Lost
+- Global "Holodomor" Ahead - The Intentional Destruction of Agriculture
+- Global Threat - Gates Foundation gets 'Diplomatic Immunity' in Kenya - 'Big Red Flag'
+- GM Crops are Nothing Short of a Bio-War on Our Food - Over 800 World Scientists Agree
+- Goodbye Petrodollar, Hello Agri-Dollar?
+- Got MilQ? - Fake Milk to Replace Dairy and Breast Milk
+- HAARP Being Used to Create Floods to Destroy World's Food Supply
+- Hacia Una Nueva Crisis Alimentaria
+- Hambre e Inanición Visitarán a La Humanidad
+- Hambre S.A.
+- Hambre - Un Tsunami Silencioso
+- Hijacking of the World's Food System - Seeds of Destruction
+- Holanda cerrará 11.200 Granjas para cumplir los 'Objetivos Climáticos'
+- How Banks and Investors Are Starving The Third World - Rising Food Prices and The Egyptian Tinderbox
+- How Goldman Gambled on Starvation - or "How Goldman Sachs Staked on Forcing The World's Poor Into...
+- How the Gates Foundation is Driving the 'Food System' in the Wrong Direction
+- How the WHO's 'One Health' will Dictate "What You Eat"...
+- Hunger and Starvation to Visit Humanity
+- Insectos Modificados Genéticamente - ¿Son deliberados los Riesgos?
+- IPCC's Land Report shows the Problem with Modern Farming is based around Oil, not Soil
+- La Agricultura del Carbono - ¿"Genial" para los Gigantes Agroquímicos y los inversores como Bill Gates, pero...
+- "La Comida como Arma" - Vinculación con las Protestas de los Agricultores y la Agenda 2030
+- La Estafa de la "Revolución Verde" de Gates/Rockefeller al Descubierto
+- La Globalización de la Mala Comida y la Mala Salud
+- La Insana-Mortal Industria de Los Alimentos - Main File
+- Las Transnacionales Toman el Control de La Alimentación en África
+- Ley Monsanto y el Saqueo de Las Semillas Indígenas
+- London's Food Weapon Slams Kissinger's NSSM 200 Hit List of 13 Nations, and Others the World Over
+- Los Experimentos Agrícolas promovidos por Bill Gates se han Hundido en África
+Italiano
+- L'Unione Europea approva Grilli e Vermi della Farina per Consumo Domestico
+- Mercados Alimentarios - Arma de Destrucción Masiva
+- Monsanto - A Multinational Factory of Death - Main File
+- Monsanto e Altre Multinazionali Comprano Terreni Agricoli in Tutto il Mondo - Neo Feudalesimo
+- Monsanto, The TPP, and Global Food Dominance
+- Monsanto y Otras Multinacionales Compran Tierras Agrícolas por Todo el Mundo - Neo-Feudalismo
+- Movimiento de Agricultores en Holanda llega al Nuevo Gobierno y arremete contra el "Pacto Verde"
+- New Report Predicts Source of Next Pandemic
+- NIA Projects Future U.S. Food Price Increases
+- No Farmers, No Food...! - A Global Food Crisis is Coming...
+- Occupy The Food System - The World Can Feed Itself, Without Corporate America's Science-Experiment...
+- Open Seeds - Biopiracy and The Patenting of Life
+- Organic Food Control - Many Popular Organic Brands Now Owned by Large Industrial Food Processors
+- Proofs that We Don't Need GMOs to Feed the World
+- ¿Qué tan Grave será la Crisis Alimentaria Mundial?
+- Quien Controla el Suministro de Alimentos, Controla a la Gente
+- ¿Quién está detrás del 'Gran Reinicio de Alimentos'?
+- ¿'Quien' o 'Que Cosa' Está Matando a Las Abejas? - Main File
+- Reacción en la Cadena Alimentaria - Otra "Simulación" Globalista se hace Realidad
+- Rejection of Globalism - Hungary and Italy Pass Laws to Protect Citizens from Insect use in Food
+- Rusia ensaya Tecnologías sin parangón para Aumentar el Rendimiento de los Cultivos
+- Se Avecina una Catástrofe de Hambruna Mundial - ¿Coincidencia o Plan? - Comentarios de Ernst Wolf
+- Seeds of Destruction - A Review of 'Seeds of Destruction - The Hidden Agenda of Genetic Manipulation' by...
+- Sign of Things to Come - Singapore approves '16 Insects for Human Food'
+- Six Ways Food is Being Used as A Weapon
+- Speculation Drives Up Food Prices as Bankers Gamble on Hunger
+- The Bloody Truth about Lab-Grown Meat - Pharma Food-Biotech on Your Plate
+- The Digitalization of Agriculture - Big Tech's Plan to Take Over the Food Supply
+- The Elites' plan to Orchestrate Famines
+- The False Claims of GMOs
+- The Food Bubble - Democracy Now! Interviews Frederick Kaufman
+- The Food Bubble - How Wall Street Starved Millions and Got Away With It
+- The Fury of Europe's Farmers shocks EU Technocrats
+- The Future of Food
+- The Future of Food and Farming - Challenges and Choices for Global Sustainability
+- The Future of Food - Completely Automated Farms Run by Robots
+- The Global Food Crisis - ABCD of Food or How The Multinationals Dominate Trade
+- The Globalist Manufactured 'Food Crisis' of 2023
+- The Globalization of Bad Food and Poor Health
+- The Mainstream Media admits that we are facing the worst Food Crisis in modern History
+- The Next Food Crisis Will Be Caused by Globalist Land-Grabs and Privatization
+- The Same Financial Firms Responsible for Our Economic Crisis are Driving Us Toward a Global Food...
+- The Unhealthy-Deadly Foods' Industry - Main File
+- The United Nations Warns That Food Prices May Rise Up to 20% in 2011
+- The U.N. seeks Control over Agriculture - Blames for 'Global Warming'
+- The War on Food and the War on Humanity - Platforms of Control and the Unbreakable Spirit
+- The World We Eat In is Changing
+- Tú No Eliges los Alimentos que Comes - Lo hacen 'Ellos'...
+- Tyrannical "Health Standards" of The New World Order
+- Ukraine - The Corporate Annexation
+- United Nations Calls Special Meeting to Address Food Shortages Amid Predictions of Riots
+- United Nations Calls on U.S. to Halt Biofuel Production as Drought Devastates Corn Crop
+- United Nations Climate-Smart Revolution Begins with Agricultural Land Grabs
+- Un Movimiento Agrario de Última Generación estalla en Alemania
+- Vandana Shiva on the Taking Down of Bill Gates' Empires
+- We Already Grow Enough Food for 10 Billion People... and Still Can't End Hunger
+- WEF pushes Ban on Home-Grown Food to 'Fight Climate Change'
+- Western Elites and The Threat of Mass Starvation
+- Who is Behind the Great Food Reset?
+- Who is Responsible for The World Food Shortage
+- 'Who' or 'What' is Killing The Bees? - Colony Collapse Disorder, or CCD - Main File
+- Why is George Soros Selling Gold and Buying Farmland?
+- Why The Food Market Will Be The Next Bubble to Burst
+- Why The Forecasts for Food Production Could Be Entirely Wrong - Big Trouble Ahead?
+- World Bank Warns of Food Riots as Rising Food Prices push World Populations Toward Revolt
+- You Can Now Only Buy Heirloom Seeds if You are Part of a Private Members Club in The UK
+Additional Information
+- 3 Lies Big Food Wants You to Believe and The Truth Behind Factory-'Farmed' Meat
+- 7 Foods That Should Never Cross Your Lips
+- Africa's Kalahari Atlantean Civilization and Technology Fed 6 Billion People - CCN's Mel Ve
+- Agenda 21 - Food is The New Gold; Land is The New Oil
+- ¿Agricultura Industrial para Alimentar al Mundo?
+- Agua de Mar - Un Plasma Marino al Alcance de Todos
+- América Latina responsable del 20 por Ciento del Desperdicio de Comida
+- An Abrupt Climate Change Scenario and Its Implications for United States National Security
+- A New Global Food System for Achieving the Sustainable Development Goals
+- Are Edible Organic Gardens the Key to Food Sustainability? - Victory Gardens to Save Us from GMO
+- Argentina - Disappearing Farmers, Disappearing Food
+- Artificial Hamburger Meat Successfully Grown in Vat of Bovine Fetal Cells
+- Biofuel Caused Food Crisis - Secret Report: Internal World Bank Study Delivers Blow to Plant Energy Drive
+- Biofuels Fallacy - Why Burning Plants Instead of Fossil Fuels Won't Save the Climate
+- BPA in Food Packaging - FDA to Decide by March 31
+- BPA Levels in Humans Far Higher Than Previously Thought
+- Bhutan - Transforming an Entire Nation to 100% Organic - A Possible Scenario or an Utopia?
+- Can Ocean Farms Actually Be More Sustainable Than Even The Most Environmentally Sensitive...
+- Cereal Crimes - A Report by The Cornucopia Institute
+- Cereal Crimes - Natural vs. Organic Cereal
+- Changing The Future of Obesity - Science, Policy, and Action
+- Climate and Agricultural News
+- Climate Change and Land
+- Cornstalks Everywhere But Nothing Else... Not Even A Bee
+- Corporate Crimes in The Cereal Aisle - How Companies Are Fooling You Into Thinking Their Products Are...
+- Corporate Greed, Intellectual Property Laws and The Destruction of Human Civilization
+- Distinguishing Between Yield Advances and Yield Plateaus in Historical Crop Production Trends
+- 'Dramatically Poisonous' Economy Heading to 'Catastrophic' Collapse - Says Acclaimed Economist
+- Eight Ways to Halt a Global Food Crisis
+- Estrategias de 'Marketing' - Que hace la Industria de la Alimentación para Incrementar sus Ventas
+- European Union Food Safety Chief Forced to Quit - Genetic Modified Lobby Role
+- Exporting Apartheid to Sub-Saharan Africa - The Legacy of Nelson Mandela
+- Farms are Climate Enemies and Must Be Radically Transformed
+- Farsa Capitalista - La Falsa Donación Post Mortem de Los "Súper Ricos"
+- FDA Stealth-CODEX 2012 Bans Vitamins - Can Cause Disease and Mega-Death
+- Food and Permaculture
+- Food Terrorism' - Next Door to The Magic Kingdom
+- Food Waste - The Next Food Revolution
+- Forensic Evidence Emerges That European E.Coli Superbug Was Bioengineered to Produce Human...
+- Four Best Methods for Off-the-Grid Food Production
+- Garden as If Your Life Depended on It, Because It Does
+- Global Food Waste - Half of the World's Food Is Thrown Away
+- Globesity - How Globalists are Feeding Off The Obesity Crisis
+- How Canned Foods Are Poisoning Us
+- How to Eat Animals and Respect Them, Too
+- How to Expose Food Adulteration in Less Than 5 Minutes
+- Is There Glue in The Meat You Are Eating? - "Meat Glue" Exposed...
+- Is The U.S. Food Supply Cursed?
+- Laboratorios Experimentales - Los Hornos Crematorios de "Población Sobrante"
+- La Contaminación se ha Convertido en una Amenaza para la Especie Humana
+- La Desnaturalización de la Naturaleza
+- La Extinción de Las Abejas - ¿Un Presagio de Crisis Alimentaria Mundial?
+- La Pobreza se Extiende por Todas Partes - Pero de forma muy Desigual
+- La Povertà si Estende dappertutto - Ma in modo Diverso
+- La Revolución Agrícola de Rusia que Puede Salvar al Mundo
+- La Rivoluzione Agricola della Russia che Può Salvare il Mondo
+- Las 11 Mayores Mentiras del Sistema de Nutrición Oficial
+- Las Abejas Caen en Picada - ¿Hacia un Apocalipsis Agrícola en EE.UU.?
+- La Via Campesina Denounces Gates Foundation Purchase of Monsanto Company Shares
+- Leverage Points for Improving Global Food Security and The Environment
+- Losing Just One Pollinator Species Leads to Big Plant Declines
+- Loss of Wild Pollinators Serious Threat to Crop Yields - Study Finds
+- Mass Extinction Events - Are We Next?
+- McDonald's & Biophoton Deficiency
+- Monsanto
+- Monsanto and The FDA - 2 Crimes Families Working a Trillion-Dollar Hustle
+- Monsanto in Gates' Clothing? - The Emperor's New GMOs
+- Monsanto's 5 Most Dubious Contributions to The Planet
+- Monsanto's Roundup Threatens Stability of Global Food Supply
+- Nanoparticles Destroy Soil and The Environment - Study Finds
+- New Study Shows How Existing Crop-Land Could Feed Billions More
+- Now Russia Makes an Organic Revolution
+- Nutrients Changes in Vegetables and Fruits - 1951-1999
+- Obama Misinforming Public About U.S. Dollar and Yuan
+- OGM - Violación de La Soberanía Alimentaria
+- Organic Farming CAN Feed The World - Don't Believe 'The Incapability of Producing Enough Food for...
+- Overpopulation - The Making of A Myth
+- Permacultura - Proceso de Diseño Holístico Para Crear Hábitats Humanos Sostenibles - Pueblos en...
+- Plasma Marino Programado - Ibiza y Formentera Agua de Mar
+- Porqué Las Hamburguesas "Happy Meal" de McDonald No Se Descomponen
+- Processed Food - 9 Nasty Truths About The Meals You Eat
+- Researchers Publish First Public Database on Food Fraud
+- Research Raises Concerns about Future Global Crop Yield Projections
+- Reset the Table - Meeting the Moment to Transform the U.S. Food System
+- Resource Revolts - The Year of Living Dangerously - Rising Commodity Prices and Extreme Weather...
+- Revolution at A Snail's Pace - How The Slow Food Movement Is Tackling Our Biggest Food Problems
+- "SAMPA" - Alimento No Perecedero en Caso de Crisis Alimentaria
+- Small Farms May Be Better for Food Security and Biodiversity
+- Sorry Gates - GMO Crops Proven to Be Ineffective at Fighting World Hunger
+- Speculating Banks Profit as World's Poorest Go Hungry
+- Still No Free Lunch - Nutrient levels in U.S. Food Supply eroded by Pursuit of High Yields
+- Superbacteria E. Coli - Producida con Bioingeniería Para Causar Estragos en La Población
+- The Connection Between Big Food/Big Pharma and Nutrition Policy
+- The Dark Side of Wheat
+- The Death of Frankenfoods - Nailing the Coffin Shut
+- The Denaturing of Nature
+- The FDA Has Killed Far More People Than Contaminated Eggs or Lettuce - Senate Bill 510 Food Safety?
+- The Global Environment Outlook Report - GEO-4 - Large File
+- The Global Environment Outlook Report - GEO-6 - Very Large File
+- The New China Syndrome - Meat, Milk and Motors
+- "The Pollinators" - New Film Shows how 'Decline of Bee Colonies' could mean Collapse of Food Chain
+- The System is Going Down Hard
+- The Use of Nanomaterials in Consumer Products
+- Top 11 Biggest Lies of Mainstream Nutrition
+- Toward Sustainable Agricultural Systems in The 21st Century
+- Town in England Transforms Landscape into Giant Food-Producing Edible Garden
+- Tunisia and The IMF's Diktats - How Macro-Economic Policy Triggers Worldwide Poverty and Unemploy...
+- Untested Nanoparticles Showing Up in Thousands of Consumer Products
+- We Have Enough Land to Feed our Growing Population - We Just Have to Use it Right - Study Finds
+- What's Really in The Food? - The A to Z of The Food Industry's Most Evil Ingredients
+- What The USDA Doesn't Want You to Know About Antibiotics and Factory Farms
+- Wheat Toxicity - Is Whole Wheat A Cardiovascular Disease-Promoting Food?
+- Why McDonald's Happy Meal Hamburgers Won't Decompose - The Real Story Behind The Story
+- Wikileaks Cable Reveals U.S. Conspired to Retaliate Against European Nations If They Resisted GMOs
+- With huge new Vertical Farm Plenty's Produce could hit more Shelves
+- Worst Bee Die-Off in 40 Years
+- You Are Being Warned - This Strange Weather Phenomenon...
+Bird Flu - Gripe Aviaria
+- Bill Gates and WHO call for Military to Round Up mRNA Vaccine Refusers during Bird Flu "Pandemic"
+- Bill Gates funded Bioweapons Experiments to spread Bird Flu to Humans
+- Bird Flu - Another attempt to 'Control the Food System' and Make a Profit
+- Bird Flu - Another Phony "pandemic"... this time for Chickens
+- Bird Flu research Rattles Bioterrorism Field
+- Bird Flu should be the Subject of a Criminal Investigation
+- Bird Flu - They Fooled us Once and looks like They'll Try to Fool us "Again"...!
+- El 'Nuevo Cuento' de la OMS - Gripe Aviar en Humanos...
+- Influenza - El Virus H1N1 - ¿Contaminacion Casual o Bioterrorismo? - Main File
+- Influenza - Virus H1N1 - Unintentional Contamination or Bioterrorism? - Main File
+- La Nueva Amenaza de "Pandemia" de la que todos Hablan - ¿Debería Preocuparse?
+- Officials Warn of Weaponized H5N1 Bird Flu Pandemic Amid Debate
+- The 'Bird Flu Hoax' is being Recycled again to create 'Fear and More Profits' for Big Pharma
+- The Great Bird Flu Hoax - by Joseph Mercola
+- USDA Found to Be Poisoning Bird Populations, Causing Mass Die-Offs Involving Millions of Birds
+- U.S. Government Urges Scientists to Censor Findings on New Strain of Bird Flu
+Multimedia:
+- Bill Gates and WHO Call for Military to Round Up mRNA Vaccine Refusers during Bird Flu "Pandemic"
+'Codex Alimentarius' and Food Safety Modernization Act
+- 21st Century Inquisition - Codex Alimentarius
+- Aclaraciones Sobre el 'Codex Alimentarius' y La Directiva Sobre Medicina Herbal Tradicional
+- Codex Alimentarius and GM Food Guidelines
+- Codex Alimentarius Commission - A Threat to Humankind
+- Codex Alimentarius Commission - Report of The Thirtieth Session - Rome, 2-7 July 2007 - Official Report
+- Codex Alimentarius - Government and Corporate Control of Our Food Supply
+- Codex Alimentarius Loves Toxic Fluoride
+- Codex Alimentarius Permits a Wide Range of Dangerous Chemicals in Food
+- Codex Alimentarius - Shredded the Use of "Scientific Consensus" at CAC42 Meeting
+- Codex Nutrition Committee Chooses Malnutrition
+- FDA Food Safety Modernization Act - Amendments - December 19, 2010
+- Food Safety Bill Invokes Codex Harmonization and Grants FDA Authority to Police Food Safety of Foreign...
+- Geschichte der Gesundheits-Tyrannei - Codex Alimentarius
+- Guidelines for Vitamin and Mineral Food Supplements
+- Il Codex Alimentarius - Il Controllo e il Rifiuto della Scienza
+- Il Codex - Che Cos'è e in che modo Incide su di Voi e la Vostra Salute
+- La Commissione del Codex Alimentarius - Una Minaccia per l'Umanità
+- Monsanto's Baby - S 510 - The 2009 Food Safety' Bills Harmonize Agribusiness Practices in Service of...
+- Results of Codex Alimentarius Meetings 2012 - Frankfurt, Germany
+- S. 510 Food Safety Bill is Still Alive and May Unleash a New Army of FDA Agents
+- S. 510 - Private Gardens To Be Illegal
+- Stanford Anti-Organic Study Plays into United Nations Codex Alimentarious Outline for Global Depopulation
+- Stealth 'Codex Alimentarius' Regulations Postponed in U.S... For Now
+- The History of Health Tyranny - Codex Alimentarius
+- The Language of Health Tyranny - Decoding The Codex Alimentarius Guidelines for Vitamins and...
+- Top Ten Lies About Senate Bill 510
+- Codex Alimentarius - Lecture by Ian R. Crane
+- Urgent Call to Action On Senate Bill 510 Food Safety Modernization Act
+Svalbard and Seed Banks - Svalbard y los Bancos de Semillas
+- Añaden 50.000 Semillas a la 'Bóveda del Fin del Mundo'
+- Arctic Stronghold of World's Seeds flooded after Permafrost Melts
+- "Banco Semillero del Día del Juicio Final" en El Ártico - Bill Gates, Rockefeller y Los Gigantes de La...
+- Baúl de Semilla Global de Svalbard - Genética, Agroindustria y Planes de Exterminación
+- "Doomsday Seed Vault" in The Arctic - Bill Gates, Rockefeller and The GMO Giants Know Something We...
+- Food Stores - Using Protected Areas to Secure Crop Genetic Diversity - by Sue Stolton et.al.
+- How Seed Banks Work
+- I Depositi di Semi del Mondo resistono alla Guerra, agli Incendi e alla 'Pandemia'
+- "Il Caveau Semi per il Giorno del Giudizio nell'Artico" - Gates, Rockefeller e i Giganti OGM Sanno Qualcosa...
+- La Banca Semi più Grande del Mondo contiene un Milione di Colture Alimentari Uniche
+- Majesterium and The Tipping Point
+- Seed Banking not an Option for many Threatened Plants
+- Seed Vaults can't Save a Third of Critically Endangered Plants
+- Svalbard World's Largest Seed Bank hits One Million Unique Food Crops
+- The Svalbard Global Seed Vault Receives a Third Seed Deposit from SSE
+- World's Seed Vaults hold strong through War, Wildfire and 'Pandemic'
+- El ADN y la Semilla de la Re-Civilización - La Historia Jamás Contada
+- La 'Bóveda del Fin del Mundo' cumple 10 Años
+Books-Treatises
+- Barones de la Alimentación 2022 - Lucro con las crisis, digitalización y nuevo poder corporativo - by ETC Group
+- Food Barons 2022 - Crisis Profiteering, Digitalization and Shifting Power - by ETC Group
+- Growth Isn't Possible - Why We Need a New Economic Direction - by The New Economics Foundation
+- Seeds of Destruction - The Hidden Agenda of Genetic Manipulation
+Multimedia
+- Alimentos - El Secreto Más Grande Es Expuesto - English, Subtitulos Español
+- Beekeeper Whistleblower video proof Aussie Government is Mass Killing Bees
+- Beware of Massive Food Inflation - NIA President
+- 'Comida S.A.' - La Industria Alimentaria
+- El Delito de Producir nuestras Propias Semillas
+- El Futuro de Los Alimentos
+- 'Food Inc.' - L'Industria Alimentare
+- 'Food Inc.' - The Food Industry
+- Food - The Ultimate Secret Exposed
+- GMO Foods and Intellectual Property - The Ultimate Food Fight
+- "Home" - We All Have a Date With The Planet! - Todos Nosotros Tenemos Una Cita Con El Planeta!
+- In Grave Danger of Falling Food - Bill Mollison and Permaculture
+- La Distopía Posmoderna en America Latina - Los Alimentos
+- La Locura del Maíz - Una Planta entre el Beneficio Económico y el Hambre
+- Living Soil
+- Meat The Truth - Global Warming
+- Mercados Alimentarios - Arma de Destrucción Masiva: 1, 2, 3
+- Muerte Por Hambre en África
+- No Farmers, No Food
+- Nosotros Alimentamos Al Mundo
+- NSW Australia Government deploys Fipronil Bee Killing Traps
+- Nutrition - What The Mainstream Schools Miss and Don't Teach - Food Matters
+- Peligro de Escasez de Comida - Bill Mollison y La Permacultura
+- Pharmaburger - Food Investigations
+- Planeta en Venta
+- Pollo a La Carta - Chicken a la Carte
+- Super Size Me!
+- The Corporation
+- The Maize Craze - Between Profit and Hunger
+- We Become Silent - The Last Days of Health Freedom
+- We Feed The World
+- Why The U.S. Is Becoming an "Underdeveloping Nation" - Chilean Economist Manfred Max-Neef
+Related Reports
+- Agenda 21 and Earth Charter - Main File
+- A Healthier Medical and Environmental Industry - Main File
+- A Healthy Way to Food - Main File
+- Global Upraising - Main File
+- Industry "Weapons" for Earth's Depopulation - Main File
+- The Blue-Gold Business - World Wide Water Privatization - Main File
+- The Future and Beyond - Parameters for A New Civilization - Main File
+- 'Who' or 'What' is Killing The Bees? - Main File
+- Windows-Microsoft-Bill Gates - Main File
+Return to Temas / Main Files
+Return to Globalization - The Octopus of The New World Order

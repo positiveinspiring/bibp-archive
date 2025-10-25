@@ -1,0 +1,1324 @@
+# Globalization and The European Union - Globalización y La Unión Europea
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_globalization_eu.htm
+
+- "1984" turns 70 Years Old in a World that Looks a Lot Like the Book
+- 2017 - La que se Avecina en Europa
+- Académico Advierte de "Próxima Guerra Civil en Europa"
+- A Day of Reckoning for The Euro has Arrived - 26 TRILLION in Currency Derivatives at Risk
+- A Disturbing Series of Events - Governments Around the World Seem to Be Preparing for War
+- A Europe of Nations? Again... - Trying to Understand the World
+- Alexander Dugin invoca "Cambi di Regime" in Francia, Regno Unito e Germania
+Español
+- Algunos Países Europeos Levantan Muros por Todas Partes
+- A Line of Demarcation Through The Eurozone is Taking Shape
+- America as 'Republic', Not as 'Empire' - Europe's 'Sound and Fury' after jaw-dropping pivots in U.S. Policy
+- América Latina gira a un Mundo Multipolar - Mientras la UE sigue a la "Potencia en Decadencia, EE.UU."
+- A Multipolar World is Emerging
+- Anatomy of False-Flag Events
+- A New American Empire - Trump, Russia, and the End of Globalism
+- A New Era of Mass Surveillance is Emerging Across Europe
+- Angela Merkel's Benign Dictatorship
+- Anti-Lockdown Protests All Across Europe
+- A Public Bank Option for Scotland
+- Are We About to See a "European Monetary Fund?"
+- Ártico en el Punto de Mira - ¿Por qué son tan Atractivas las Regiones Polares?
+- A Scandal in Brussels Captures Everything Europhobes can't Stand about the EU
+- As Europe moves Right, Portugal veers Left... and Thrives
+- As Globalists Centralize, Secession Fever Grows Worldwide
+- Así es Como Luce la Tercera Guerra Mundial
+- Así reacciona Occidente a la decisión de Putin de reconocer las Repúblicas de Donbás
+- Así se Sientan las Bases de la Tiranía en las "Democracias Europeas"
+- A Strong Europe in a World of Uncertainties
+- Austria Bucking Trend against 'Digital Currency'
+- A Warning from Europe - The Worst is Yet to Come
+- "Bail-In" Era for Europe's Banking Crisis Begins
+- "Berlín ha Decidido Seguir los Pasos de la Administración Saliente de EE.UU." - María Zajárova
+- Beyond a Failing European Super State
+- Beyond The Arab Spring, The European Winter - Hungary Becomes Third European State to Suspend Demo...
+- Blow for EU as Czech's Reject Eurozone Entry - 'Just 30% Want It'
+- Britain's Inexorable Slide into Fascism - The Denial of the Right to an Opinion
+- Bruselas se Alza en Rebelión contra Washington - Un Punto de Inflexión en la Relación USA-Europa
+- Brussels Bombing Psyop a Victory for the Ruling Elite and Global Police State
+- Brussels EU 'President' Jean-Claude Juncker's 'State of The Union' Address - Fiddling while Europe Burns
+- Brussels Rises in Revolt Against Washington - A Turning Point in the US-European Relationship
+- China al G7 - Se Acabó que un 'Grupo de Países' dicte las Decisiones Globales
+- China - Cómo el Socialismo aventaja al Capitalismo
+- China wants to be at Center of New World Order - Top EU Official Says
+- Christine Lagarde dejaría el BCE anticipadamente para dirigir el FEM - Dice Klaus Schwab
+- Cinco Negociaciones Clave que Tienen Lugar esta Semana y que Podrían Cambiar el Mundo
+- Cinco Razones por las la OTAN No Puede Vencer a Rusia
+- Come i Rockefeller 'Trumpizzarono' il Mondo
+- ¿Comienza Finalmente a funcionar la Estrategia de Putin?
+- Cómo el Fantasma del Nazismo marcha por Europa
+- "Como en un Chiste" - Zajárova comenta el extraño Video de Macron, Merz y Starmer
+- Cómo Europa escribió el Guión de la Historia del Mundo y Borró a Quien lo había Inventado
+- Cómo la "Escasez de Alimentos" y el Colapso Económico protegen el Status Quo
+- ¿Cómo Llegaron a ese Punto? - Francia, Alemania y Reino Unido podrían estar al borde del Colapso Económico
+- Cómo los Rockefellers 'Trumpearon' al Mundo
+- ¿Constitución Europea? - La Gran Mentira
+- Cosa Costerebbe ad un Paese lasciare l'Euro? - Questo è Quello che Ognuno Vorrebbe Sapere
+- Covid-19 Shatters the Facade of the European 'Union'
+- "Covid-19 - Un Acto de Guerra Biológica" - EE.UU. "Liberó Intencionadamente el Virus en Wuhan", cumbre U.E.
+- Crece la Tensión - Rusia es Capaz de Ocupar el Báltico en Dos Días... y la OTAN Podría Responder...
+- Darker Clouds over Europe
+- Da Roma a Londra - Un'Europa a Due Velocità
+- Deal or No-Deal, BREXIT Dooms the EURO
+- De-Dollarization - Europe Joins the Party
+- Delirio de Grandeza y Decadencia de Occidente
+- Denmark Becomes the First Country to Suspend ALL COVID Vaccinations
+- De Roma a Londres - Una Europa de Dos Velocidades
+- Desde tropas Europeas a el Ingreso en la OTAN - Las Garantías que Zelenski espera de los 'Aliados'
+- ¿Después del Coronavirus? - El "Gran Reseteo"...
+- Destruir Millones de Empleos o Salvarlos a Toda Costa - EE.UU. y Europa eligen Caminos Opuestos
+- Detalles del Escándalo de Corrupción que pone contra las cuerdas al Parlamento Europeo
+- Deudas Impagables y una Crisis Existencial Financiera en la UE
+- Dinamarca Autoriza la Construcción deL Nord Stream 2 en sus Aguas Territoriales
+- Diplomacy by Disembowelment - Old Europe's Self-Destructive DC tour...
+- Discurso Completo de Donald Trump ante la ONU en 2025 - "¿Qué Sentido tienen las Naciones Unidas?"
+- Discurso de Lavrov en la ONU - Una "Rotunda Defensa del Nuevo Orden Multipolar"
+- Discurso de Vladimir Putin en el SPIEF 2023 - 'Foro Económico Internacional de San Petersburgo'
+- Does The European Union Have an Expiry Date?
+- Donald Trump desvincula a Estados Unidos de la Unión Europea
+- ¿Dónde están los Líderes? - Acusan a los Dirigentes Occidentales de Analfabetismo Geopolítico
+- Dos Sucias Maniobras de Manipulación Social en la UE en 48 Horas
+- Dove sono i Leader? - Accusano i Dirigenti Occidentali di Analfabetismo Geopolitico
+- ECB Head Mario Draghi Admits for First Time EU May Break-Up
+- ECB Seeks to Inject Up to 1.1 Trillion Euros into Economy in Deflation Fight
+- Ecco come Appare la Terza Guerra Mondiale
+- Ecco il "Nuovo Boss" - Putin reindirizza gli Idrocarburi importanti verso Est lasciando l'Europa "Senza Risorse"
+- Economic Rape of Europe Nearly Complete
+- Economista Ganador del Premio Nobel, Stiglitz, nos cuenta porqué "El Neoliberalismo ha Muerto"
+- EE.UU. Condena el "Robo de Crimea" por Rusia mientras que Apoya a Israel por el "Robo de Palestina"
+- EE.UU. y Europa Lloran - No Aguantaron cuando China empezó a jugar el Juego del Libre Mercado
+- Eight Years after U.S. Banking Collapse, Implosion of Megabank Poised to Decimate the Global Economy
+- El Año que Viviremos Peligrosamente a nivel Global
+- El Ataque Terrorista de Paris y el Nuevo Disfraz de la Tiranía
+- El BCE Aprieta el Lazo Sobre las Cuentas Bancarias
+- El Colapso Planificado de EE.UU. y Europa
+- El Extraño Video de Merz, Starmer y Macron en su viaje a Ucrania - ¿Drogados...?
+- Elezioni UE 2024 - I Vincenti e i Perdenti
+- El Fin de la Dominación Occidental
+- El Fin del Capitalismo Ha Comenzado
+- El FMI constata la debacle de Europa y EE.UU.
+- El "Golpe Militar" de Europa - Militarización Antidemocrática
+- El Hombre que Predijo el Colapso del Euro ante el Franco Suizo hace una Predicción Demoledora
+- El Inesperado Aliado Europeo de Rusia en la Construcción del "Nord Stream 2"
+- El Mega Año Electoral 2024 en el que la Mitad de la Población Mundial irá a las Urnas
+- El Momento Unipolar ha Terminado
+- El Mundo ha Perdido su Brújula
+- El Nacionalsocialismo y la Unión Europea
+- El Orden Mundial diseñado al Final de la II Guerra Mundial se hunde en Europa
+- El Orden Mundial ya Cambió en 2022
+- El Pacto Rusia-China y la Conspiración Marx-Rothschild
+- El Parlamento Europeo Aprueba la Resolución Contra los Medios Rusos
+- El Parlamento Europeo Aprueba Nuevamente el Uso del Glifosato-RoundUp aún Sabiendo que es...
+- El Plan para El Fin de Europa - La Nueva URSS
+- El Principio del Fin de La Unión Europea - UE
+- El Síndrome del 'Trastorno por César'
+- El Sistema Neocolonial Mundial "ha Dejado de Existir" - "El Mundo Multipolar se está Consolidando" - Putin
+- El Vicepresidente de EE.UU. pidió un "Cambio de Régimen" en Europa - Discurso de J.D. Vance en Múnich
+- En China los Líderes se eligen como si fueran CEOs
+- Energy Crisis chips away at Europe's Industrial Might
+- En Europa tildan la Reelección de Trump de la "Peor Pesadilla Económica" para el Continente
+- En la Europa Cerrada al Coronavirus la UE abre las Puertas a las Tropas de Estados Unidos
+- En la U.E."Gana la Derecha" - Pero el Objetivo Globalista, a todas luces, No se Detiene...
+- En la Unión Europea los Periodistas comen de la Mano de los Políticos
+- Enlightened World Leadership Does Not Exist
+- En toda Europa las Muertes son Mucho Mayores Ahora que en los 'Años Pandémicos' de 2020 y 2021
+- España - Al Borde del Precipicio
+- ¿Esperan un Desastre Nuclear en Bélgica y Alemania?
+- Estados Unidos tiene por Objetivo Impedir una Alianza entre Rusia y Alemania - dice STRATFOR
+- ¿Está Europa al Borde del Colapso?
+- ¿Está la Doble Moral Occidental socavando el Orden Global?
+- E.U. 2024 Elections - The Winners and the Losers
+- E.U. and Russia Extend Sanctions Against Each Other
+- E.U. approval of Glyphosate Based on Review that Plagiarized Monsanto Studies
+- E.U. approves House Crickets and Mealworms for Human Consumption
+- E.U. Bosses Step Up Bullying and Propaganda to Combat Euroskepticism
+- E.U. Commits to Lockdowns, Vaccine Passports, Mask Mandates
+- E.U. Foreign Policy Chief calls for Rapprochement with Russia and End of "American-led System
+- E.U. Leaders went to Washington Begging to be Cucked
+- E.U. Parliament Moves to Counter Russian Media 'Propaganda' - Claims RT News 'Distorts Truth'
+- E.U. Paves the Way for Biometric Mass Surveillance
+- E.U. proposal to Scan All Private Messages gains momentum...
+- Euro - 20 Años de Vida, 10 Años de Ruina
+- Euro Depression is 'Deliberate' EU Choice - Says Former Bank of England Chief
+- Euro Elite Using Financial Crisis to Centralize Power
+- Europa al Desguace - Múltiples Profecías del Fin de Europa Resumidas en El Rescate del "Concordia"
+- Europa ante la Tormenta - Una llamada a la 'Preparación Ciudadana' frente a un Futuro Incierto
+- Europa debe Decidir Sobre el Conflicto contra Rusia
+- Europa - Eclipse y Declinación
+- Europa - Eclisse e Declino
+- Europa Gastará el 10 por ciento Anual de todo su PIB para 'Reducir' las Emisiones de CO2
+- Europa - Lo Que No Se Dice de La Crisis
+- "Europa no es aliado de EE.UU., sino su Lacayo" - Protestan en Italia contra Expansionismo de la OTAN
+- Europa - Revolución a la Desesperada
+- Europa se Asoma al Abismo del Control Digital - La UE podría escanear todos los Chats, incluso Cifrados...
+- Europa se enfrenta a una "Tormenta 'Polar' Perfecta"
+- Europa Tiene Mucho Que Aprender de La Nueva América Latina - Entrevista al Investigador Francés...
+- Europa verso la Rottamazione - Molte Profezie sulla Fine dell'Europa si Riassumono nel Salvataggio della...
+- Europa "Vuelve a los Viejos Tiempos" - La Creciente Demanda de Leña por la Crisis Energética - Bloomberg
+- Europa y sus Enemigos
+- European Consumer Lobby Group BEUC Exposed - Supported by Currency Speculator George Soros...
+- European Disintegration - Opposition Grows to Merkel-Macron EU Superstate
+- European Empire Now in Danger of Crumbling
+- Europeans are 'Waking Up' to Government Covid-19 Tyranny - Why is America still Asleep?
+- Europeans Planted Seeds of Crisis in Cyprus
+- European Union Collapse Scenario - Will the European Union Share the Fate of the Soviet Union?
+- Europe Embraces China's 'Belt and Road Initiative'
+- Europe in 'Panic Mode' over Economy as USA Soars
+- Europe is almost 'Out of Time' to defend its Place in a Brutal World
+- Europe is Drifting and Divided - This Feels More Like 1914 than 2014
+- Europe on the Brink of Collapse?
+- Europe Rises Up against 'Coronavirus Restrictions' - Massive Simultaneous Protests in London, Paris and Berlin
+- Europe's Glory Days at An End - Warns Juncker
+- Europe's last Security Project is Quietly Collapsing
+- Europe's long War with Islam
+- Europe's "Military Coup" - Anti-Democratic Militarization
+- EUROPOL
+- Euroskepticism Growing, Threatening European Union
+- E.U. Running Out of Money - Handelsblatt
+- E.U., Russia, Iran, and China unveil New Global Payment System Independent of U.S.
+- E.U. Superstate Dream is OVER amid Voter Backlash - 'We'll Never Become a State' Juncker says
+- E.U. the Toothless Tiger - Totally Dysfunctional Until it Disintegrates into Oblivion
+- E.U. warns Google CEO Sundar Pichai - It Won't allow the Web to remain the 'Wild West' any longer
+- Ex-Disidente Soviético Alerta Sobre el Peligro de Una Dictatura en La Unión Europea - Vladimir Bukovksy
+- Ex-Primer Ministro de Italia afirma que la UE afronta un "Reto Existencial"
+- Ex-Primo Ministro d'Italia afferma che la UE affronta una "Sfida Esistenziale"
+- Facing Crisis - EU Leaders Settle for Show of Unity and Vague Proposals
+- Fall of Empires - London, Washington and Paris on Brink of Collapse
+- Falsificar la Contabilidad para Financiar el Rearme Europeo
+- ¿Fascismo o la Bancarrota de la Izquierda? - El Movimiento Anti-Unión Europea se Extiende por Toda...
+- "Financial Independence" from American Empire say EU, China, Russia...
+- ¿Fin de la Globalización? - El Futuro que le espera al Comercio Mundial
+- Finland Prepares for Euro Break Up Scenario
+- Flashback 2016 - Technocracy will Rise Out of the Ashes of Western Civilization
+- Former Bank of England Governor Confirms European Financial Crisis is Deliberate
+- Former ECB Chief Economist says ECB is In Panic, as Czech President Warns The End of Democracy is...
+- Former Soviet Dissident Warns for EU Dictatorship - Vladimir Bukovksy
+- Get Ready for a Major Geopolitical Chessboard Rumble
+- Gladio B, Paris Terror and ISIS Fakery Admitted - Vindicated
+- Gli Europei si stanno "Risvegliando" contro la Tirannia del Governo per il Covid 19 - Gli Americani Dormono?
+Italiano
+- Gli Stati Uniti sono la Maggiore Causa della Instabilità Globale - Ma Pretendono di essere la Soluzione
+- Global Governance Versus the People - Big Stakes in the French Presidential Election
+- Global Terror - The British Connection
+- Global Trade War U.S./E.U. Against BRICS
+- Gloomy Putin World View Comments
+- Goodbye Democracy and Capitalism - It Was Fun...
+- Goodbye G20 - Hello BRICS+
+- "Go To Hell" - Brave EU Politician delivers damning Message to Global Tyrants
+- Guerra ai Tempi Nostri? - Abbiamo bisogno degli 'Uomini in Camice Bianco'...
+- Half of the West is Doomed - Here's Why...
+- ¿Ha Pedido el Gobierno Checo a sus Ciudadanos que "Se Preparen para lo Peor"?
+- 'Histeria' en EE.UU. y sus Satélites por Avance Geopolítico de Rusia y China
+- Historia de las Universidades Africanas antes de la Llegada de los Europeos
+- History is Being Made in the East this Week - While War is Being Made in the West...!
+- Holanda cerrará 11.200 Granjas para cumplir los 'Objetivos Climáticos'
+- How a Secretive Elite created the EU to Build a World Government
+- How Europe must respond as Trump and Putin smash the Post-War Order
+- How the EU can take on Dirty Money - The Darker Side of Globalization
+- How the Rockefellers "Trumped" the World
+- Hungría aprueba la Ley "Stop Soros" - Se ilegalizarán ONGs financiadas desde el Extranjero que atenten...
+- I Giorni di Gloria dell'Europa Sono Arrivati alla Fine - Juncker ci Avvisa
+- Il Collasso Pianificato di Stati Uniti e Europa
+- Il Medioevo prossimo Venturo - Sfacelo Politico, Economico e Spirituale dei paesi della U.E.
+- Il Pericoloso Nazionalismo Ucraino
+- Il Tecno-Populismo - Un Nuovo Regime di Governo Europeo
+- "Imperio del Caos" - Europa prefiere Gastar Millones en Ucrania que Resolver sus Problemas
+- Indicios de Guerra en el Este de Europa
+- Investors Prepare for Euro Collapse - Currency's Days Feared Numbered
+- Ireland and The European Banking Crisis - A Really Really Special Case Requires a Really Really Special...
+- Is Europe Too Brainwashed to Normalize Relations with Russia?
+- Is Putin's Strategy finally Beginning to Work?
+- Is the EU's United Front on Russia Finally Starting to Crack?
+- It's Time to Start Getting Enraged at what Western Imperialists have done to Syria
+- Justificaciones que Insultan
+- Kissinger Nails It... For Once...
+- La Agonía de Occidente
+- La Alianza Occidental está Derrumbándose - La UE está Abandonando a Estados Unidos sobre Derrocar...
+- La Autodestrucción de Europa
+- La Caduta degli Imperi - Londra, Washington e Parigi sono sull'Orlo del Collasso
+- La Caída de los Imperios - Londres, Washington y París están al Borde del Colapso
+- ¿La Comunidad Política Europea? - Un Hueco en el Agua...
+- La Confianza está a Prueba en Europa y en el Mundo
+- La Controtendenza dell'Orientamento dell'Austria contro la Valuta Digitale
+- La Corrupción en el Parlamento Europeo se extiende al Premio Sajarov
+- La Crisi indebolisce la Potenza Industriale Europea
+- La Cultura de la Muerte se ha Apoderado de Europa
+- La Decadencia de Europa se hace Imparable - Bloomberg
+- La Derrota Electoral de Macron y Scholz es el resultado de "Centrarse en la Agenda de Washington"
+- La Desdolarización - Europa se Une a la Fiesta
+- La Deuda Reclamada a Portugal es Insostenible y No es Legítima
+- La Dislocación de Occidente - Las Amenazas
+- La Economía de Guerra ha Fortalecido a Rusia y Hundido a las Potencias Occidentales
+- La "Entente cordiale" Franco-Británica
+- La Era de la Confrontación
+- La Estabilidad Política de Rusia Garantizada mientras Occidente se Hunde
+- ¿La Europa de las Libertades?
+- La Europa que 'No Está...'
+- ¡La Extrema Derecha en El Poder en Bélgica!
+- La Fantasía del Mundo 'Libre' - ¿Están realmente Unidas las Democracias contra Rusia?
+- La Farsa de la Unión Europea
+- La Filtración en un Chat de la Casa Blanca revela su 'Desprecio' hacia Europa
+- La Fragmentación de la Unión Europea
+- La Gran Bretagna Scivola Inesorabilmente verso il Fascismo - La Negazione del Diritto di Opinione
+- La Guerra Económica - "Bombardeo" contra Europa
+- La Guerra está Frente a Nuestros Ojos...
+- La Guerra más Estúpida y Peligrosa del Mundo
+- La Histeria Nuclear en Occidente tras el discurso de Putin - ¿Quién realmente Amenaza a Quién?
+- La Impudicia de la Indulgencia
+- La Larga Historia del Enfrentamiento entre Madrid y Barcelona
+- La Ley del Almirantazgo y la Esclavitud a Través del Lenguaje
+- La Morte della Vecchia Europa - I "Cadaveri Viventi" a Bruxelles hanno dimenticato Come Combattere per...
+- Landmark Legal Ruling finds that Covid Tests are Not Fit for Purpose - So what do the MSM do? They ignore it...
+- L'Anno che Vivremo Pericolosamente a livello Globale
+- La Nueva Geopolítica Mundial y la U.E. - La Historia está Discurriendo ante Nuestros Ojos
+- La Nueva Política Exterior Británica
+- La Nueva UE es aún Más Demente que la Antigua UE
+- La Nuova UE è ancora Più Demente della vecchia UE
+- La Organización Mundial de la Salud (OMS) declarada Terrorista por miembro del Parlamento Europeo
+- La OTAN y la Amenaza Existencial para Rusia
+- La Petrolera ExxonMobil Ignora las Sanciones y Empieza las Perforaciones en el Ártico Ruso
+- La Poco Conocida Historia del Euro - La Crisis fue 'Horneada' desde el Principio
+- La Poco Conosciuta Storia dell'Euro - La Crisi era "Preparata" Fin dal Principio
+- La Próxima Edad Media - El Hundimiento Político, Económico, Energético y Espiritual de la U.E.
+- La Ralentización de la Corriente Atlántica que Helará Europa
+- La Relación Putin-Trump - Cuando la Firmeza Rusa supera las Ambiciones Estadounidenses
+- La Ruptura - Los Dos Imperios Financieros más Poderosos de la Historia Moderna
+- Las Elecciones que Podrían Destrozar a la Unión Europea
+- Las Fuerzas Multipolares día a día se Consolidan Más en sus Posiciones
+- Las Libertades Públicas están Muriendo Silenciosamente en Europa
+- Las Nuevas Sanciones Antirrusas provocan Discordia en la UE y EE.UU.
+- La Sorprendente Proposta della Russia all'Europa che Potrebbe Cambiare il Volto del Mondo
+- La Sorprendente Propuesta de Rusia a Europa que Podría Cambiar la Faz del Mundo
+- Las Raíces Nazis de la Unión Europea
+- "Las Sanciones contra Rusia conducirán a Europa a una Recesión Histórica"
+- La Stabilità Politica della Russia è Garantita mentre l'Occidente Affonda
+- La Storia si sta facendo all'Est questa Settimana mentre a Ovest si sta facendo la Guerra...!
+- La Tardía 'Reconquista' de la Unión Europea en América Latina - Qué esperar de la Cumbre UE-Celac
+- La Tardiva "Riconquista" dell'Unione Europea in America Latina - Cosa aspettarsi dal Vertice UE-Celac
+- "La Torre de Babel de la UE puede Caer por Culpa de sus Líderes Políticos"
+- La Transformación de las Sociedades en la Estela del Covid-19 anuncia la Militarización de Europa
+- La UE cede ante Trump - Acepta un Arancel del 15%
+- La UE considera un Nuevo Enfoque para Hacer Frente a la Desinformación en Línea
+- La UE se Prepara para un "Invierno sin Gas Ruso"
+- La UE si Prepara a un "Inverno senza Gas Russo"
+- La Ultima Maniobra de Putin para Destruir a La Unión Europea y a La OTAN
+- La Ultima Arma de "Destrucción Masiva Económica" de Rusia contra el Sistema Occidental
+- La Unión Europea fue una Idea Estadounidense
+- La Unión Europea Inicia su Disolución
+- La Verdad Detrás del Capitalismo
+- Leaked 1955 Bilderberg Document Outline Plan For Single European Currency
+- Le Lobby - Ancora un Lato Oscuro nell'UE - A Bruxelles ci sono tra i 30.000 e i 40.000 Lobbisti
+- L'Era del Confronto
+- L'Europa che "Non c'è..."
+- L'Europa Divisa di Oggi ci Ricorda quella dell'Anteguerra del 1914
+- L'Europa e i Suoi Nemici
+- L'Europa si dirige verso la Discarica della Storia nel mezzo della Tempesta?
+- Líderes Europeos "Se Rebelan" Contra las Sanciones Antirrusas de EE.UU.
+- L'Indecenza dell'Indulgenza
+- L'inesperato Alleato Europeo per la costruzione del "Nord Sream 2"
+- L'Irreveribile Successo delle Sanzioni UE
+- Little-Known History of the Euro - Crisis Was Baked In from the Start
+- Living with Russia - The Alternative is what, Exactly...?
+- Lo que en Verdad busca La Troika - La Crisis Económica de La Unión Europea Vista Desde Latinoamérica
+- Lo que la Ciencia dice sobre la Política
+- L'Ordine Mondiale disegnato alla Fine della II Guerra Mondiale affonda l'Europa
+- Los BRICS y la Estructura de un Mundo Heptapolar - Contra la Unipolaridad Anglosajona
+- Los Conspiranoicos tenían Razon - Jasiel Paris confunde a Susana Griso
+- Los Días de Gloria de Europa han Llegado a su Fin - Advierte Juncker
+- Los Dictadores deberían Temer a la IA
+- Los Instigadores Ocultos de la UE - Por qué todos los Ciudadanos de la UE están hoy en Guerra
+- Los Líderes Mundiales acuerdan 'Etiquetar al Ganado' del Planeta
+- Los Macedonios Rechazan la Adhesión a la OTAN y a la Unión Europea
+- Los Países Nórdicos se solidarizan con Groenlandia y Dinamarca ante las ambiciones de Anexión de Trump
+- L'Ultima Manovra di Putin per Distruggere l'Unione Europea e la NATO
+- L'Ungheria approva la Legge "Stop a Soros" - Saranno illegali le ONG finanziate dall'Estero che attentano...
+- L'Unione Europea approva Grilli e Vermi della Farina per Consumo Domestico
+- L'Uomo che ha Predetto il Collasso dell'Euro grazie al Franco Svizzero fa una Predizione Schiacciante
+- Luxembourg Takes the Heat, but the World's Worst Tax Haven - The City of London - Remains Unscathed
+- Macedonia se Convierte en "Democracia" al Estilo Estadounidense
+- Macron tells NATO Russia Must Come in from the Cold War
+- Man Who Predicted Collapse of Euro Against Swiss Franc Makes Second Terrifying Prediction
+- Many EU Countries roll back 'COVID Restrictions' - Israel Scraps 'Green Pass'
+- Marine Le Pen - En el Nombre del Pueblo
+- Marine Le Pen - In Nome del Popolo
+- "Martial Law" being seen in U.S. and Europe over COVID-19 is the Bigger Threat
+- Más Conocimiento Previo de esta Actual Plandemia
+- Meet the 'New Boss' - Putin reroutes Critical Hydrocarbons Eastward leaving Europe 'High-and-Dry'
+- Meloni prohíbe los Paneles Solares en Tierras Cultivables - Mientras Sánchez avanza en la Tala de Miles de Olivos
+- Mensaje a la UE: Ustedes tienen la Oportunidad de Dejar de Alimentar la Devastación en el Amazonas
+- Merkel insta a Europa a Prepararse para un Mundo 'Sin el Liderazgo de EE.UU.'
+- Message to the EU: You have the Chance to Stop Fuelling Devastation in the Amazon
+- More Plandemic Foreknowledge...
+- "Movimento Pro-Putin" si espande in tutto l'Ex Blocco Sovietico della UE - Ecco Perchè
+- MSM melts down over 'Jaw-Dropping Pivot in U.S. Foreign Policy' after Trump ripped 'Dictator' Zelenskyy
+- Neoliberalism - The 'Zombie Doctrine' at the Root of All Our Problems
+- 'New World Order' vs. 'Empire of Lies' - Key takeaways from Lavrov's UN Speech
+- Nobel-Prize Winning Economist says Brussels EU heading towards Cataclysmic Event and Currency...
+- Nobel Prize-Winning Economist Stiglitz Tells us Why 'Neoliberalism is Dead'
+- No hay "Valores Comunes" entre los Europeos y Estados Unidos
+- No Necesitamos Nuevos Presidentes - Necesitamos una Nueva Conciencia y un Nuevo Sistema
+- "No Podemos Seguir" Luchando contra Rusia - Junker Tira la Toalla
+- No 'Unfriendly Nations' for Russia, Only 'Unfriendly Elites' - Putin
+- Nubes Muy Oscuras sobre Europa
+- Nuestra Sociedad tiene los Mismos Síntomas que el Imperio Romano justo antes de su Caída - ¿Colapso...
+- Occidente Devora a sus Hijos
+- Occidente se ha Dividido en Tres Partes
+- Ordo ab Chao - Una Psy-Op en la U.E.
+- Orígenes de La Unión Europea - Un Plan Encubierto de EE.UU.
+- Origins of the EU - USA Covert Operations to Assimilate Europe Into a Federal State
+- OTAN - El Tabú de la Izquierda
+- ¿OTAN Global o Paz Global...?
+- Our Society has the Same Symptoms as the Roman Empire just Before the Fall - Is a Collapse Inevitable?
+- Para la Unión Europea llegó el momento de Usar la Fuerza
+- ¿Para qué Guerra se Está Preparando Alemania?
+- Partidos de la Oposición Alemanes Advierten que el Gobierno Merkel se Prepara para "Disturbios Civiles"
+- Perché l'Occidente Non Può Tollerare i Russi
+- Political Union In Europe - Governance Of, By, and For The Elite
+- Populists and Technocrats in Europe's Fragmented Democracies
+- Por qué el Occidente odia a Putin - Lo que No le están Diciendo
+- Por qué Europa debe Tener Cuidado de Turquía
+- Por qué Todo el Mundo debe Alzarse en Armas sobre la Catástrofe en Internet que se Avecina en la UE
+- Preparándose para el Ragnarök
+- Principles, Not Bitterness will Determine History
+- "Pro-Putin Movement" Expands across the Former Soviet bloc of the EU - Here's Why...
+- Putin announced the Doctrine of Global Confrontation with the United States
+- Putin anuncia la Doctrina de la Confrontación Global con los Estados Unidos
+- Putin asegura que las Élites Europeas se pondrán a los pies de su Dueño y "Menearán la Cola" - ...Trump
+- Putin atribuye a "la Política Miope" de la U.E. y EE.UU. la Crisis Energética y Alimentaria
+- Putin explicó 'hace un Año' lo que está pasando en Europa ¡ahora...!
+- Putin llamó a Liberarse de la "Dictadura del Modelo Financiero" cuyo objetivo es "Endeudar y Colonizar"
+- Putin marca el Fin del Mundo Unipolar y Avecina un Cambio de Élites a nivel Global
+- Putin reminds the West - Those who Ignore History are Doomed to Repeat It...!
+- Putin segna la Fine del Mondo Unipolare e rende prossimo un Cambiamento delle Elites a Livello Globale
+- Putin spiegò "Un Anno Fa" ciò che sta accadendo in Europa adesso...!
+- Putin targets U.S. Monetary System - "Aims to Eliminate the U.S. Dollar and the Euro from Trade"
+- Putin's Ultimate Move to Crush the EU and NATO
+- ¿Qué le está pasando a Europa? - De la Promesa a la Preocupación
+- ¿Qué significa el Acercamiento entre Rusia y China para Occidente?
+- ¿Quién Diablos le da a la ONU, la OMS y la UE el Derecho de Imponer Certificados Digitales de Vacunas?
+- ¿Quién Pierde Más con las Sanciones a Rusia que incluyen la "Opción Petrolera"?
+- ¿Quién se Beneficia con el Acto de Terrorismo en los Oleoductos?
+- ¿Quién Sufrirá Más del "Impago Artificial" de Rusia?
+- ¿Recuerda la Europa Dividida de Hoy a la de La Preguerra de 1914?
+- Revolution is Brewing in Europe
+- Rusia abre la Puerta para que los Europeos participen en las Negociaciones de Paz
+- Rusia, EE.UU. y Francia Formarán una Amplia Coalición que "Dará un Golpe Definitivo al EI" - Dice Hollande
+- Rusia Noquea a Europa...
+- Rusia reconoce de "Forma Inmediata" la Independencia de las Repúblicas Autoproclamadas de Donetsk y Lugansk
+- Rusia se ha Preparado durante Años para esta Confrontación que Occidente Subestimó
+- Rusia Ya ha Ganado la Guerra contra Occidente... ¿Quieres saber Porqué?
+- Rusia y Rusofobia...
+- Russia aiming to realize the 'Greater Eurasia Dream'
+- Russia and The EU - Main File
+- Russia Not to Blame for Global 'Food Crisis' - Putin
+- Russia's European Journey is Over - Sergey Karaganov
+- Russia's Political Stability Ensured while the West Sinks
+- Russia's "Startling" Proposal to Europe - Dump the U.S., Join the Eurasian Economic Union
+- "Sanctions" - Economic Aggression-Revisited
+- Scotland Forced to Freedom
+- Secesión en la Unión Europea
+- Secession Movements Intensify - Separatism in Europe
+- Secret Map shows what European Nations REALLY think of 'Doomed' EU
+- ¿Se dirige Europa hacia el Basurero de la Historia en Medio de la Tormenta?
+- ¿Se ha convertido la Democracia en una forma de Superstición?
+- ¿Se ha dado Cuenta Putin de que El Mundo Está en Sus Manos?
+- ¿Se necesita a la OTAN para Asegurar la Paz en Europa? - 75 años de OTAN
+- "Sensación de Miedo e Inseguridad aumenta" - La poco envidiable posición de Europa entre China y EE.UU.
+- "Se pondrán a los Pies de su Amo y moverán la Cola suavemente" - Siete Frases de Febrero desde Rusia
+- Showdown in Europe - Tech Giants Brace for Sweeping EU Privacy Law
+- Siga el Dinero - Cómo Rusia sorteará la Guerra Económica de Occidente
+- Sinister Sites - The European Union Parliament
+- Situación Explosiva en Europa
+- Some Reasons Why We do Not Need a President
+- Starting from Zero at the E.U. - Finlandization 2,0?
+- "Stop al Lockdown" - Cresce nel Mondo la Protesta
+- Tácticas Occidentales Engañosas para desprestigiar a China - Distraen a las Masas de los Conflictos Internos
+- Tambores de Guerra - Europa habla de Guerra y Prepara a su Población
+- The American Dream Has Moved to Scandinavia
+- The Battle for the 'Global South' - An Ancient Evil rears its Head...
+- The Beginning of the End for the European Union - EU?
+- The Bilderberg Group and The Project of European Unification
+- The Break Up - The Two Most Powerful Financial Empires in Modern History
+- The Choice Before Europe about a Conflict with Russia
+- The Collapse of the European Union - Return to National Sovereignty and to Happy Europeans?
+- The Collapse of Western Democracy
+- The Controlled Demolition of Europe
+- The 'Dark Forces' in control of the 'Anglo-American-Zionist Empire' are the Source of the World Crisis
+- The Death of Old Europe - The 'Living Corpses' in Brussels have forgotten How to Fight for their World
+- The Democratic Experiment is Finished
+- The Dutch Revolt Against Net Zero
+- The End of All That is Good and Pure about the Internet
+- The End of Capitalism has Begun
+- The EU - A CIA Covert Operation
+- The EU Considers a New Approach to Confront Disinformation Online
+- The European Spider's Web!
+- The European Surprise - Why we misread the Continent's Shifts
+- The European Union is a "Failed" Experiment in "International Governance" - Says George Soros
+- The European Union Was an AMERICAN Idea
+- The EU's Best Hope for Survival
+- The EU's Illusion of Relevance - No Vision, no Power, no Future...
+- The EU's 'Investment Deal' with Beijing punctures America's dream of a 'Transatlantic Alliance' against China
+- The Fall of Europe...
+- The Fragmentation of the European Union
+- The Fury of Europe's Farmers shocks EU Technocrats
+- The Future of Countries
+- The Global Majority Speaks - A Billion more People just Joined the BRICS...!
+- The Hidden Nazi Background of Walter Hallstein - Founding President of The Brussels EU Commission
+- "The Kremlin's Playbook" - Washington Views Russia-EU Cooperation a Threat to U.S. National Security
+- The Last Western Empire?
+- The Left's Descent to Fascism
+- The Many Faces of Secrecy - Amy Benjamin
+- The Mediterranean Union - Emergence of A New Order - World Geopolitics and The Battle for The...
+- The New British Foreign Policy
+- The New EU is Even More Insane than the Old EU
+- The Old World Order was Buried in China - Here's why It Matters
+- The Origin of Climate and Population Alarmism - Club of Rome and Sweden
+- The Plan for The End of Europe - The New USSR
+- The Poetry of "Diplomacy" - What do Zelenskyy, Putin, Xi Jinping, Orbán and Trump have in Common?
+- The Post-Capitalist Society is Already Emerging in Denmark
+- The Production of Fear - European Democracies in The Age of Populisms and Technocracies
+- The Putin-Trump Alliance against the European Union
+- The Real Crisis starts Now in Europe
+- There is No Way Out for Europe
+- The State of Internet Censorship in Europe
+- The Tectonic Plates of Geopolitics are Starting to Shift
+- The Truth Behind Capitalism
+- The Unusual Union that Led to the World's First Feminist Government
+- The USA and NATO oust Crisis-ridden EU
+- The U.S. and EU will Collapse Regardless of Economic 'Contagion'
+- The U.S.' fury over the China-Europe Investment Deal shows how Rattled and Isolated they Are
+- The U.S. is the Biggest Cause of Global Instability - But it Pretends to be the Solution
+- The Vladimir Putin Interview - February 2024
+- The Western Alliance is Crumbling - EU is Abandoning U.S. on Overthrowing Assad
+- This is what World War III Looks Like
+- Today's Youth Rejects Capitalism and Socialism - Will Technocracy Appeal to Them?
+- Todos los Caminos conducen a... Eurasia
+- Too Many EU Banks Fail 'Stress Test', Exposing $31bn Shortfall
+- Top 30 Países Más Inteligentes del Mundo
+- Towards "NATO-Exit"? - Shift in the Structure of Military Coalitions
+- Tratado de Lisboa
+- Tratado de Lisboa - Europeos Amordazados
+- 'Trattato per Investimenti' della UE con Pechino infrange sogno Americano del 'Patto Transatlantico' contro la Cina
+- Tres Razones por las que Francia No Pide la Ayuda de la OTAN en la Lucha Contra el Estado Islámico
+- Tribunal de Justicia de la U.E. - Los Médicos únicos Responsables de Consecuencias de Vacunas Covid
+- Trilateral Commission Influence in The Eurozone
+- Trump es 'imprudente' con el Dilema Europeo y su Crisis Existencial...
+- Trump è temerario con il Dilemma Europeo e le crisi Esistenziali che ha
+- Trump is 'reckless' with the European Dilemma and its Existential Crisis...
+- Trump mandó un "mensaje" a Zelenski pidiéndole que se prepare para un Alto el Fuego - Dice el periódico El Pais
+- Trump, Orbàn, Putin - Why are all the 'Dictators' hellbent on Peace?
+- Trump quiere que los Europeos paguen las Facturas
+- Trump's America is No Friend - Russia must Stay the Course
+- Trump Team leaves behind an Alliance in Crisis
+- Trump vuole che gli Europei Paghino i Conti
+- Trump wants to Break the EU - Will he Instead End Up Being its Savior
+- Trump y Putin sellan su relación en Alaska pero sin un Acuerdo para Ucrania - Reunión "productiva" pero no hay...
+- 'Trust In Government' is No Longer Possible
+- Turchia dice NO agli USA e alla UE
+- Turquía dice NO a los EE.UU. y a la UE
+- Twenty Facts About The Collapse of Europe That Everyone Should Know
+- UKIP 'Saves the Internet' - EU's Attack on Memes Voted Down, Delayed
+- Una Mirada a las Elecciones al Parlamento Europeo 2019
+- Una Nueva Doctrina echa Raíces - Una Nueva Era de Dominio Coaccionado
+- Una Sentenza Giuridica Storica rivela che I Test Covid non sono Adatti allo Scopo quindi cosa fa l'MMS? Ignora...
+- Una Tormenta en Occidente - El Paradigma Intelectual Liberal se ha roto
+- ¿Una U.E. en los BRICS?
+- Un G7 sin China es solo un Grupo de Consulta con "Buenas Intenciones"
+- 'Unite the Kingdom' is a harbinger of a Western European Cataclysm
+- Un "Muerto Viviente" en Busca de Sangre que deambula por Europa y que se llama OTAN
+- Un Partido Mundial
+- Unpayable Debts and an Existential EU Financial Crisis
+- U.S. 'Intentionally released Covid Virus in Wuhan' - EU Summit Told...
+- U.S. State Department expands plans for Closing Embassies and Consulates
+- Vivere con la Russia - Qual è esattamente l'Alternativa...?
+- War in Our Time? - We need the 'Men in White Coats'...
+- War on Cash ALERT in the EU - Now Pushing "Restrictions on Payments in Cash"
+- War or Peace?
+- Washington Amenaza - No Tolerará la Creación de unos Estados Unidos de Europa
+- Washington Minaccia - Non tollererà la Creazione degli Stati Uniti d'Europa
+- "We Can't Go On" Fighting Russia - Junker Throws-In the Towel
+- We Don't Need New Presidents - We Need a New Consciousness and a New System
+- West's Moral Bankruptcy Exposed
+- What Don't They Want You to Know? - Eurocrats Now Making Record Numbers of EU Laws in Secret
+- What Europe's Crisis Means for You and Your Savings
+- What Would it Cost a Country to Leave the Euro? - That's What Everyone Suddenly Wants to Know
+- Where Europeans See Catastrophe in Trump's Victory, Asians See Chance for Change
+- Which Way to the Future? - There is No Going Back...!
+- Who in Hell gives the UN, WHO and the EU the Right to Impose Digital Vaxx Certificates?
+- Why do We elect Politicians and Governments that Wage War on Sovereign States?
+- Why Europe Should Beware of Turkey
+- Why EU Voters are Rebelling against the Establishment
+- Why is Slovakia, a Proud EU and NATO Member, Drifting toward Russia?
+- Why is 'The West' so Weak and Russia so Strong?
+- Why the Eurozone and the Euro are Both Doomed
+- Why the West Cannot Stomach Russians
+- Why the West Hates Putin - What You're Not being Told...
+- Why the Whole World Should Be Up in Arms about the EU's Looming Internet Catastrophe
+- Wikileaks Reveals IMF Plan to "Cause a Credit Event in Greece and Destabilize Europe"
+- Will Europe's Unemployment Crisis Spark a Return for Fascism?
+- America's Imperial Empire - The Sun Never Sets but the Mote remains in the Emperor's Eye
+- A Transparent Process for Evidence-Informed Policy Making
+- A World Effectively Controlled by the United Nations
+- Biotech Industry Pushing 'GM 2.0' Across Europe - Not Science Fiction
+- Bruselas se Convierte en la Primera Gran Ciudad en Detener la Implantación de la 5G por Motivos de Salud
+- Brussels Becomes First Major City to Halt 5G Due to Health Effects
+- 'Chilcot Report' on Iraq Invasion Shows Threat of Lesser Evils
+- China y Rusia derrotan al Tío Sam en su Propio Juego
+- Climate Dictatorship Proposed to Solve 'Global Warming' - Europe
+- Cosa Significa Aver Tolto le Sanzioni contro l'Iran?
+- Coups Inside NATO - A Disturbing History
+- ¿Cuáles son las Ciudades más Caras para Vivir en América Latina y el Mundo?
+- Cuando Stalin Propuso la Reunificación de Alemania
+- Damning Chilcot Report Confirms Iraq Invasion Was Bush/Blair's War of Choice
+- Denmark to 'Scrap All Covid-19 Restrictions'
+- Detectan Contaminación Radioactiva en Europa de Origen Desconocido
+- Dieci Piccoli Stati Europei poco conosciuti che Non Esistono Più
+- Diez Pequeños Estados Europeos poco Conocidos que ya No Existen
+- Discovering the 'Great War' of China
+- EE.UU. y la UE tienen "Verdadera Ansia" por Enfrentarse a Rusia
+- El Águila, el Oso y el Dragón
+- El Banco Nacional de Suiza Provoca una Tormenta Financiera de Consecuencias Imprevisibles
+- El Camino hacia la Gran Eurasia
+- El Centro del Mal en el Mundo - El Estado en la Sombra Británico
+- El "Fin" del "Principio"
+- ¿El Gobierno de Bolsonaro está Quemando el Amazonas o hay Algo Más en la Mesa?
+- El Incesante Aumento de la Migración en Europa en los Últimos 10.000 Años
+- El Mapa del Mundo Paralelo - Conozca Países que no Existen para la ONU
+- El Nuevo Orden Mundial Comenzará con Alemania y China
+- El Origen de la Neutralidad Suiza
+- El País Menos Autoritario de Europa - El enfoque Bielorruso hacia Covid-19 expone la Mentira del Confinamiento
+- El Pentágono Está Dispuesto a Cooperar con Rusia en Siria
+- El Pueblo Sirio Apoya a Assad - Pero la BBC lo Acalla, dice Baronesa Británica
+- El "Top-Ten" de los Países Más Inteligentes del Planeta
+- El Triunfo del Ello y el Conservadurismo - La Caída del Hombre Occidental
+- Empire of Mammon - Secret History of the World's Financial Capital
+- Estado Islámico - Una Operación Globalista
+- Estos Países Europeos se sienten 'Superiores' a Todos los Demás
+- Estos son los Países Percibidos como con Mejor Influencia en el Mundo
+- ¿Es Usted Feliz? - Países Ricos y Pobres Califican su Nivel de 'Felicidad'
+- EU Agricultural Reform Fails on Biodiversity
+- EU Approves 'Historic' Ban on Bee Killing Pesticides
+- Europe Drops Charges against Edward Snowden - Offers Asylum and Protection
+- Europe's Billion-euro Quantum Project Takes Shape
+- Europe's 'Top Health Officials' say Masks aren't Helpful in Beating COVID-19
+- Even the World's Most Cashless Nation Doesn't Want to Go Fully Cashless
+- Farage Unleashed - "You Are Common Criminals"
+- François Hollande Visitará Moscú la Próxima Semana - Noviembre 2015
+- Freedom is Receding Around the World
+- G7 - An Obsolete, Useless Talking Shop
+- G7 en Biarritz - Sólo un Circo Mediático
+- Gaddafi Predicted and Tried to Stop this Terror Wave in UK - So the U.S. Murdered Him...
+- Gennaio 2020 - Tutto quello che è Accaduto nel Mondo
+- George Soros - A Psychopath's Psychopath
+- Governing Elites Think We're All Morons - New Study
+- Government Banking - New Perspectives on Sustainable Development and Social Inclusion from Europe...
+- Guía para Desenmascarar a las Falsas 'Izquierdas'
+- ¿Ha Financiado Alemania las Armas Nucleares de Israel?
+- Here is the Assad Interview "CNN" will Never Show You - "EU is Supporting Terrorists in Syria from the Very...
+- Here's How 43 Advanced, Emerging, and Developing Countries Rated their Happiness
+- How Belarus Exposes the 'Lockdown Lie'
+- How to Avoid Second Passport Scams and Traps
+- I Clobbered Every Cash Confiscatory Agency Known to Man
+- If America Continues to Go Down the Same Path as Europe, this is What Life Will Be Like
+- Il Debito Globale arriva a 63 Trilioni di Dollari
+- Il Popolo siriano Appoggia Assad - Pero la BBC lo Zittisce, lo dice la Baronessa Britannica
+- Intel Agent Reveals how NATO Planned to Tear Russia Apart
+- I Retroscena dell'Inganno Globale
+- Jacob Rothschild, John Paulson and George Soros are All Betting that Financial Disaster is Coming
+- Killing us Softly - Glyphosate Herbicide or Genocide?
+- La Consciencia de Los Ciudadanos y La Inconsciencia de Los Gobiernos
+- La Corte Caucásica Internacional - Justicia Selectiva en tiempos de Impunidad Global
+- La Crisis de Siria en Manos de Auténticos Locos
+- La Cultura de la Ignorancia
+- La Desgastante Diplomacia de Putin deja al Occidente Permanentemente Fuera de Balance
+- La Deuda Global se Dispara a los 63 Billones de Dólares
+- La Estenuante Diplomazia di Putin lascia l'Occidente sempre Senza Vigore
+- La Independencia por Encima de Todo - Rusia Corta las Amarras Energéticas de Washington
+- La Mappa del Mondo Parallelo - Per farvi Conoscere Paesi che per l'ONU Non Esistono
+- La Nueva Cortina de Hierro - "La Amenaza Rusa"
+- La Nuova Cortina di Ferro - "La Minaccia Russa"
+- L'Aquila, l'Orso e il Drago
+- "Las Crisis Están Creadas para Beneficiar a los Ricos" - Dice Nobel de Economía 2015
+- La Turchia si può Unire alla OCS
+- La Verdad sobre las "Fake News"
+- L'incessante Aumento della Migrazione in Europa negli ultimi 10.000 Anni
+- L'Origine del Salario Minimo - La Peste del Medio Evo e il Vaticano
+- Los BRICS - Main File
+- Los Combustibles Convencionales siguen siendo la Principal Fuente de Energía
+- Los Dönmeh - El Secreto Más Susurrado del Medio Oriente
+- Los Primeros Británicos eran Negros con Ojos Azules
+- Los Principales Funcionarios de Salud de Europa dicen que las Máscarillas No son Útiles para el COVID-19
+- Los Reyes de la Miseria
+- Make EU trade with Brazil sustainable
+- 'Malos' Augurios para la Economía Global 2016 - 100 Dólares el Barril de Crudo, el Dólar Cae, la Pobreza...
+- Monsanto/Bayer's GM Plants Contaminate Europe Despite Ban
+- Mucho Mas que Nuclear - DVD, la Peligrosa y Misteriosa Organización de la que Nadie ha Oído Hablar
+- Origen del Salario Mínimo - La Peste de la Edad Media y el Vaticano
+- Otra Noticia Extraña sobre las Reservas de Oro
+- People in Emerging Markets Catch Up to Advanced Economies in Life Satisfaction
+- Pesticide Residues Detected in Almost All European Foods
+- Pope Says Not Right to Identify Islam with Violence
+- Porqué la Tercera Guerra Mundial se Vislumbra en el Horizonte
+- ¿Porqué se Siente como si el Mundo se Hubiera Vuelto Loco? - El Dominó y la Caída
+- Pressure Growing for War Criminal Tony Blair to Be Brought to Justice at the International Criminal Court
+- Putin's Attritional Diplomacy Leaves the West Permanently Off Balance
+- ¿Qué Interés hay Detrás del Boicot al Mundial de Futbol Rusia 2018?
+- ¿Qué Significa el Levantamiento de las Sanciones contra Irán?
+- Ranking de las Ciudades Europeas con más Mortalidad por la Falta de Espacios Verdes
+- Results of 2014 EU-Wide-Stress Test
+- Rusia, China y Arabia Saudita ponen en Jaque a la Hegemonía del Dólar
+- Russia, Cina e Arabia Saudita mettono a Repentaglio l'Egemonia del Dollaro
+- "¿Será el Momento para EE.UU. de Salir de la OTAN?"
+- 'Shocking' 2016 Predictions - $100 Crude, Strong Ruble
+- Sicilia - Base de Ataque de Estados Unidos y la OTAN
+- Siete Poderes y un Destino - Convivir con el Éxito de la Civilización China
+- Social Transformation - The Truth Behind Capitalism Decoded
+- Some Implications of the World Company - A Bilderberg Document
+- So Much More Than Nuclear - DVD, the Dangerous and Mysterious Organization Nobody is Aware Of
+- Study finds Europe was Warmer and Wetter for most of the Last 9,000 Years
+- Suiza le Sigue a Islandia en Declarar la Guerra Contra los Banqueros-Gángsters
+- Summarizing the "Black Monday" Carnage So Far
+- Switzerland Follows Iceland in Declaring War Against the Banksters
+- The Black Nobility - Main File
+- The BRICS - Main File
+- The Eagle, the Bear and the Dragon
+- The Easiest Way to a Second Passport
+- The European Union assessments of Radiofrequency Radiation Health Risks
+- The Fall of Western Man
+- The Future of Passports and Citizenship by Investment
+- The G20 Fractures - Tensions in Hamburg
+- The New Iron Curtain - "The Russian Menace"
+- The Road from Rome - The Fall of the Roman Empire wasn't a Tragedy for Civilization
+- The Road toward Greater Eurasia
+- The Unshakeable 'Putin-Erdogan Nexus'
+- The U.S. Needs its Own Chilcot Report
+- The U.S. versus the World - A Majority of One, a Minority of 192 in UN General Assembly Resolutions
+- The Weaponization of Information - The Need for Cognitive Security
+- The World's Tiniest Countries and the Eccentrics Who Rule Them
+- Transformación Social - Decodificada la Verdad Detrás del Capitalismo
+- Turquía Puede Unirse a la OCS
+- Una Idea Loca y Peligrosa Salta a la Luz Pública
+- U.N. Climate-Change Envoy Mary Robinson Criticizes UK and Germany
+- Unexpected Diversity of Feral Genetically Modified Oilseed Rape Despite a Cultivation and Import Ban in...
+- What in The World Just Happened in Switzerland? - Swiss National Bank Shocked the Financial World
+- When Terrorism Becomes Counter-Terrorism - The State Sponsors of Terrorism are "Going After the...
+- White Paper on the Future of Europe - Reflections and scenarios for the EU27 by 2025
+- Why Do We Love Violence? - The Tainted Glory of the Gladiator
+- Why has Trump finally Pulled the Plug on Deep State Propaganda?
+- Why the World Feels Like It's Going Crazy - The Dominos and the Fall
+- You Can Now Only Buy Heirloom Seeds if You are Part of a Private Members Club in The UK
+- Your Guide to a World on Fire - 'Gen Z Protests' 2025 Edition...
+- "10 Años de Vida" - Candidato a la Presidencia de Francia Cree que el Euro tiene los Días Contados
+- All Power to the Banks! - The Winners-Take-All Regime of Emmanuel Macron
+- ¿A qué se debe la Decisión de Macron de Crear un Ejército Europeo?
+- ¿Con Quién Está en Deuda Emmanuel Macron?
+- Coordinated Insanity over Climate Change
+- El Deterioro de la Familia y la Religión 'explican' el Descontento Social en Francia
+- El escenario Perfecto para la Videovigilancia Masiva - Los Juegos Olímpicos 2024 en Francia
+- France and Massive Protests against Macron's Compulsory Covid Vaccines
+- France is on Fire - How Bad is it this Time?
+- France is the Socialist Future we Should Dread
+- France's Longest Protests since 1968 - Striking Workers Continue the Fight against Neoliberalism
+- Francia es el Futuro Socialista que debemos Temer
+- Francia es el Primer País en Prohibir los Cinco Plaguicidas relacionados con la Muerte de las Abejas
+- Francia - País Bloqueado para los Próximos 4 Años
+- Il Deterioramento della Famiglia e la Religione "spiegano" il Malcontento Sociale in Francia
+- La Cara de Macron cuando Trump se niega a llamar "Dictador" a Putin
+- La Francia è il Futuro Socialista che Dobbiamo Temere
+- La Lenta Disolución de la República en Francia
+- Las Olimpiadas 2024 se celebran en medio de la Bancarrota Económica de Francia
+- L'Occidente è Lasciato Solo - Un Dipinto Dantesco ripudiato dalla Stragrande Maggioranza - Olimpiadi 2024
+- Lo que Francia necesita NO ES otro Primer Ministro sino un Nuevo Contable
+- Los Franceses Hunden su Propio Barco
+- Los Recovecos Nauseabundos de la 'República' Francesa - La Indecente Arrogancia de Ricos y Poderosos
+- Macron and Le Pen - Two Faces of the Same Con
+- #MacronLeaks Uncensored - The CIA Takeover of Smart Card Company Gemplus (Gemalto)
+- Macron Plummets in the polls as Marine Le Pen enjoys boost a Week Away from French Election Vote
+- Meet Emmanuel Macron - The Consummate Banker Puppet, Bizarre Elitist Creation
+- "Naciste Hombre y Hombre morirás" - 'Influencer' responde a Brigitte Macron tras ser demandada...
+- Nuclear War? - No, We Were Born for Something Better
+- "Ovvio Satanismo" - Mosca commenta la Chiusura dei Giochi Olimpici di Parigi
+- Occidente se Queda Solo - Un cuadro Dantesco repudiado por la Enorme Mayoría - Olimpíadas 2024
+- ¿Por qué el Género de la Esposa de Macron provoca tanta Polémica?
+- Protestas contra Macron - En París Manifestantes toman sede de BlackRock el Mayor fondo financiero Mundial
+- Public Letter to President Macron, from Honorary Colonel Jacques Amiot
+- Renunciar al Sistema - La Nueva Tendencia Laboral en Francia y el Mundo
+- Rinunciare al Sistema - La Nuova Tendenza del Lavoro in Francia e nel Mondo
+- Rothschilds invia il Presidente Francese Macron in Cina - Cerca di salvare l'Europa visto che l'Impero...
+- Rothschilds send French President Macron to China - Attempt to Save Europe as U.S. Rockefeller Empire Panics
+- "Satanismo Obvio" - Moscú comenta el Cierre de los Juegos Olímpicos de París
+- Siete Mentiras sobre Afganistán
+- Sublevación Global - ¿Cambiar de Regímenes Políticos?
+- Technocracy and Backlash - Macron's Victory in France is Less than What It Seems
+- Tecnocracia y Contragolpe - La Victoria de Macron en Francia es Menos de lo que Parece
+- The Symbology of the Paris 2024 Olympic Opening and Closing Ceremony - Thor Han
+- The United States of Europe - Germany and France Hatch a Plan to Create an E.U. Superstate
+- Trump condena la 'Apertura de los JJ.OO. de París 2024' - "Fue Terrible, fue una Vergüenza"
+- Y el Incendio de Notre Dame ¿me debería Emocionar...?
+- 13/11 Paris Massacre - Cui Bono?
+- CONFIRMED - French Government Knew Extremists BEFORE Attack
+- Capo dell'Intelligence Francese avvisa Rischio di "Guerra Civile" in Francia
+- Conozca al Hombre Que Financia ISIS - Bilal Erdogan el Hijo del Presidente de Turquía
+- French Say Assad Must Go - Assad Responds "No Thanks, Get Serious"
+- Ha Qualcosa a Che Fare il TTIP con Il Massacro di Parigi?
+- Jefe de la Inteligencia Francesa advierte Riesgo de "Guerra Civil" en Francia
+- "La UE es para los Yihadistas como una Casa con una Puerta Abierta para el Ladrón"
+- Lunatics in Washington Want NATO Article 5 Invoked for Total War
+- Masacre en Niza - Esto es lo que Significará
+- Meet the Man Who Funds ISIS - Bilal Erdogan, the Son of Turkey's President
+- Nice, 14th of July Massacre - Towards Martial Law? The Islamic State (ISIS-Daesh) Claims Responsibility?
+- One Year Before Paris Attacks, France Denounced Monstrous TTIP Trade Deal
+- Perché Conosciate l'Uomo che Finanzia ISIS Bilal Edogan, il Figlio del Presidente di Turchia
+- Profile of a False Flag
+- Terrorismo en Paris - El 'Timing' lo Dice Todo
+- Terror Junkies - The West's Addiction to Funding Radical Groups
+- The Nice Terror Attack - Towards a Permanent State of Emergency?
+- The Paris Terrorist Attacks - "9/11 French-Style", "Le 11 septembre à la française"
+- ¿Tiene Algo Que Ver el TTIP con la Masacre de Paris?
+- Corporate Media Doing its "Job" - Blacking Out the Yellow Vests on Cable News
+- El Movimiento de los Chalecos Amarillos comienza una nueva forma de protesta: la quema de billetes
+- El 'Movimiento de los Chalecos Amarillos' se ha Extendido como Reguero de Pólvora en Todo el Mundo
+- El 'Movimiento de los Chalecos Amarillos' se ha Globalizado
+- Fearing Yellow Vests, Macron attacks French Civil Liberties
+- Forgotten France Rises Up
+- France's Yellow Vests - Fuel Tax Hike triggers Poverty, finances War and Repayment of the Public Debt
+- La Olvidada Francia se Levanta
+- Las Exigencias del 'Movimiento Chalecos Amarillos' se dirigen hacia un Verdadero Cambio Sistémico
+- Las 'Protestas de los Chalecos Amarillos' son un Canario en la Mina de Carbón
+- Los Medios Corporativos haciendo su 'Trabajo' - Completo 'Blackout' de Noticias de los 'Chalecos Amarillos'
+- Macron ha Unido a la Gente de Francia en contra del Globalismo
+- ¿Porqué los 'Chalecos Amarillos' estarían Cantando '¡Queremos a Trump!'?
+- Por temor a los Chalecos Amarillos, Macron ataca las Libertades Civiles de los Franceses
+- The Demands of the 'Yellow Vest Movement' are heading Towards Real Systemic Change
+- The People vs. Paris
+- The 'Yellow Vest Movement' has Gone Global
+- The 'Yellow Vest Movement' has Spread like Wildfire Across the World
+- The 'Yellow Vest' Protests are a Canary in The Coal Mine
+- Una Primavera Europea Llama a la Puerta
+- Will a Scandal and the Yellow Vest Crackdown Trip Up France's Macron?
+- Yellow Vest Movement Starts a New Form of Protest - Burning Banknotes...
+Multimedia:
+- The Yellow Vests Movement - Complete Western Media Blackout! - Paris Week 15
+- Alemania Advierte de una Hambruna Global
+- ¿Alemania Coquetea con China? - La postura de Scholz levanta polémica en Europa
+- Alemania dice Adiós a los Coches Eléctricos - Vuelve al Diésel
+- Alemania - Una Bomba Social a Punto de Estallar
+- Alemania y China Construyen La Nueva Ruta de La Seda a Través de Rusia
+- "All this Chaos is Staged and just an Illusion to put us in Panic Mode" - Dr. Reiner Fuellmich
+- Angela Merkel says Nation States Must "Give Up Sovereignty" to New World Order
+- A Roadmap to Escape the West's Stranglehold - Michael Hudson
+- Bilderberg 1955 - Garmisch-Partenkirchen, Germany, September 1955
+- 'Catastrophically Wrong' - German Court declares regional Lockdown Unconstitutional in 'Politically Explosive'...
+- 'Coronavirus Scandal' breaking in Merkel's Germany
+- ¿Cuál es el 'rejuego' entre Estados Unidos y Alemania?
+- El 'Nord Stream 2' ofrece a Alemania una Cita con el Destino
+- Europe's 'Energy Armageddon' from Berlin and Brussels, Not Moscow
+- French and Germans Explore Idea of Smaller Euro Zone
+- Funcionario Alemán hace Público un Informe que Denuncia al Coronavirus como "Una Falsa Alarma Global"
+- German Government admits there was No Pandemic
+- Germania e Cina Costruiscono La Nuova Via della Seta Attraverso la Russia
+- Germania - Una Bomba Sociale sul Punto di Scoppiare
+- Germans Leaving Germany 'In Droves'
+- Germans Stock Up on Weapons for Self-Defense
+- Germans Take Over 14 Greek Airports in Privatization Deal
+- Germany arrests 25 suspected of Planning to Overthrow Government
+- Germany Calls for Referendum as 'People Want to Be Free of EU' - Merkel's Worst Nightmare
+- Germany hits Wall of Energy Reality - Reconnects First Coal Power Plant to Grid
+- Germany's ET Contacts? - Its Legacy on The Twentieth Century and After... - Main File
+- Germany's Green Movement has 'Run Amok at the Expense of People and Nature'
+- Germany's Merkel Now Comes Out as Basically a U.S. Agent
+- Germany Weighs Up Federal Europe Plan to End Debt Crisis
+- How the German Government Collapsed and what will Happen Now...
+- Intento de Golpe en Alemania - El Movimiento Reichsbürger
+- Is the German Chancellor betraying the U.S. 'Emperor'? - The New Germany-China "Connection"
+- Italy, Germany and the EU's Future
+- La Cuestión Alemana - ¿Qué pasa si Europa se Separa?
+- La Germania chiede un Referendum poiché "La Gente Vuole Essere Libera dall'Unione Europea"
+- La Manifestación de Berlín - Covid-19
+- Los Países de la OTAN dan muestras de Descomposición Interna
+- Merkel Cede ante las Críticas y Anula el Confinamiento Estricto pactado para Semana Santa
+- Merkel Traccia la Linea contro Trump
+- Merkel Traza la Línea contra Trump
+- Pfizer Appears to Have Corrupted the Entire Western World
+- 'Pharma/EU Cabal' set Trap for Reiner Füellmich
+- Preparativi in Germania - Aspettano una Guerra o un Disastro?
+- Preparativos en Alemania - ¿Esperan una Guerra o un Desastre?
+- Putin administra los Tiempos para que la Caída Anglosajona no arrastre al Mundo a una Guerra Nuclear
+- "Sbagliato in modo Catastrofico" - Il Tribunale Tedesco dichiara il Lockdown regionale Incostituzionale...
+- Schwab Family Values
+- 'Stop TTIP' - Thousands of Activists Gather in Germany to Protest Corporate Trade Deal
+- The Eurozone's Rescue Fund - German High Court Capitulates to Bankers
+- The Legacy of Angela Merkel - Kicking the Can Down the Road...
+- The New World Order will Begin with Germany and China
+- Un Movimiento Agrario de Última Generación estalla en Alemania
+- Xi Jinping - China y Alemania refuerzan su Confianza y su Cooperación
+- European Patent Office Grants Monsanto Patent on Natural Broccoli Seeds, Florets
+- Europe Rejects GMO Crops - 'Kinder Gentler' America Seeks Labeling
+- France Takes Stand Against GMOs-Monsanto Despite End of Ban
+- Hungary Throws Out Monsanto and The IMF
+- Hungría Se Deshace de Monsanto y del FMI
+- Italy and Austria join Growing List of Countries that are Banning GMO Agriculture
+- Italy Becomes The 9th EU Nation to Ban Monsanto's GMO Corn
+- Más de la Mitad de Países de la UE están Optando por Dejar los Transgénicos
+- Monsanto and Dupont/Pioneer Continue Pulling GM Crops from EU
+- Monsanto Gives Up on GM Crops in Europe, Pursues Patenting of Conventional Crops
+- Monsanto Not to Apply for New GM Seeds in Europe
+- Over Half of EU Countries are Opting Out of GMOs
+- Poland Bans Genetically Modified Maize and Potatoes
+- Poland Joins Ranks of Grassroots Anti-Monsanto Activism
+- Set Stage - Will Europe Now Ban GMO Cultivation?
+- Total Ban on GM Corn in France Follows Popular Opposition
+- The Monsanto Protection Plan - Monsanto's Deception Game on GMO in Europe
+- Banks Ready Contingency Plans in Case of Greek Eurozone Exit - Citigroup, Goldman Sachs, ICAP...
+- Carta Abierta de Alexis Tsipras a los Ciudadanos Alemanes
+- Does the IMF Actually Want to Cause a Greek Debt Default?
+- El Parlamento de Grecia no Puede Invalidar el Voto del NO - El Acuerdo con los Acreedores es Ilegal
+- En Grecia somos Testigos del Jaque Mate de las Élites
+- Grecia, China... ¿Estamos al Inicio de un Colapso Financiero?
+- Grecia es una Nación Bajo Ocupación - Culpando a La Víctima
+- Grecia - La Lección que Todo el Mundo Debería Aprender
+- Grecia se Convierte en el Caballo de Troya de Rusia dentro de la OTAN
+- Grecia y la Burbuja de 26 Billones de Dólares en Derivados que Puede Hundir la Economía Global
+- Grecia y la Unión Europea - Primero como una Tragedia, Segundo como una Farsa, Tercero como un...
+- Greece and the European Union - First as Tragedy, Second as Farce, Thirdly as Vassal State
+- Greece - Dump The EU Now For An Economic Recovery!
+- Greece is a Nation Under Occupation - Blaming the Victim
+- Greece' PM Tsipras Banishing Ministers Opposing Sellout to Creditors - Syriza Sharply Divided
+- Greece's Parliament Cannot Override the NO Vote - The Agreement with the Creditors is Illegal
+- Greek Vote Pushes EU to Limit
+- ¿Ha Engañado Syriza al Pueblo Griego? - Un Documento Filtrado Revelaría que Toda la Negociación ha...
+- In Greece we are Now Witnessing the Elites' EndGame
+- Is Greece About to Play its Geopolitical Trump Card and Ignite a Chain Reaction Across Europe?
+- Is Soros Preparing a Color Revolution for Greece?
+- It Is About to Get Ugly - Oil is Crashing and So is Greece
+- La Grecia Diventa il Cavallo di Troia della Russia all'Interno della NATO
+- La Grecia e la Bolla di 26 Bilioni di Dollari di Derivati che Può Affondare l'Economia Globale
+- La Siguiente Gran Crisis Financiera Europea ha Comenzado
+- Lettera Aperta di Alexis Tsipras ai Cittadini Tedeschi
+- Lo que No Te Cuentan de La Crisis de Grecia
+- Nonsense at the G7 Summit - Russia, Greece and Convenient Threats
+- Primer Ministro Griego Tsipras saca a Ministros que se Oponen a Venderse a los Acreedores
+- Representante Griego Revela que Fondo Monetario Internacional ha Manipulado la Prensa sobre la Crisis...
+- The Fall of Greece - Yes, It Really is a Capitalist Plot
+- Washington Fears Losing Greece to Moscow
+- Why the Eurogroup Rushed to Approve the Greek Reform Package? - The Reason...
+- Grecia - Este es Un Golpe de Estado - Un Film de 'Field of Vision'
+- Greece - This Is A Coup - A 'Field of Vision' Film
+- '5G Opposition in Italy' includes 400+ Municipalities taking action to Halt Installation
+- A Hope for all of Europe - Italy's Embrace of the Silk Road
+- Anger Builds in Italy as Old Guard Plots Fresh Technocrat Take-Over
+- As Renzi's Referendum Gamble Approaches, Italy Could Be the EU's Next Headache
+- Ben 113 Basi Americane in Italia Finanziate con le Nostre Tasse
+- Cade la Prima Tessera del Domino? - L'Italia si Prepara a Salvare le sue Banche dopo la Brexit
+- ¿Cae la Primera Pieza del Dominó? - Italia se Prepara para Rescatar a sus Bancos tras el 'Brexit'
+- Chi Sono e Cosa Vogliono i 'Gilet Arancioni'
+- Conozca el Mini-BOT - Italia Romperá la Zona Euro
+- Covid - The Destruction of Institutions and Beyond
+- Criminalità Organizzata, Mafie e Terrorismo - Problemi Interpretativi e Terminologici
+- È la nuova Primo Ministro dell'Italia Giorgia Meloni un altro Cavallo di Troia Globalista?
+- El Coronavirus devuelve Aguas Cristalinas a los Canales de Venecia
+- ¿Elecciones en Italia? - La OTAN ya Votó
+- El Estado Italiano apunta a su Oro
+- El Mosad Espía y Extorsiona al Gobierno Italiano
+- El "No" Ciudadano a la Reforma Belicista de la Constitución de Italia
+- ¿Es la nueva Primera Ministra de Italia, Giorgia Meloni, otro Caballo de Troya Globalista?
+- Europa Addio - Perché l'Italia deve andare verso i BRICS
+- Fake News e Proiezione - Malattie del Nostro Tempo... ma una Cura C'è
+- Former Italian 'Health Minister Roberto Speranza' under Investigation amid Vaccine Scandal
+- George Soros Viaja en Secreto a Italia mientas se Destapan Escándalos de sus ONG's en el Mediterráneo
+- Gli USA fanno pressione sull'Italia per uscire dalla "Belt and Road" Cinese - Rimanere o No nella BRI?
+- Gran Pasticcio nel Rapporto sui Decessi - Per l'ISS gran parte dei Morti non li ha causati il Covid
+- Guerre - La Storia Cancellata - Pangea Grandangolo
+- How Will Renzi's Failed Referendum Reverberate in Italy, and Across Europe?
+- "Il Coronavirus Non è la Sars - La Curva si sta Appiattendo" - Giorgio Palù
+- "Il Futuro è nei BRICS, non in un'Europa Morente..."
+- In Bleak Prognosis, Italy's Financial Regulator threatens EU with Return to a "National Currency"
+- I Sistemi Elettorali e la Democrazia - Breve Excursus sui Sistemi Elettorali Italiani dall'Unità ai giorni nostri
+- Is this what's Behind Italy's Outrageous 10% Mortality Rate from COVID-19?
+- Italia - 80 Millones de Euros Diarios de Gasto Militar
+- Italia a las Órdenes de Estados Unidos contra Rusia
+- Italia - Bajo la Bandera Tricolor que Ondea en Camp Darby
+- Italia Cortejando a China - Una Jugada Maestra de Caos
+- Italia Encabeza la Agricultura Verde en Europa
+- Italia estima que más de 1,4 Millones se habrían Infectado de Coronavirus - Bajísima Tasa de Mortalidad
+- Italianos toman las Calles en Protesta por la entrada en vigencia del 'Pase Covid' para Trabajar
+- Italians 'Rise Up' against "Health Dictatorship" as Country Moves toward New Lockdown
+- Italia podría ser el 'Evento Cataclísmico' que Conduce a la Caída de la Eurozona
+- Italia recibe 26 Toneladas de Suministros Médicos de China
+- Italia - Terreno Fertile per una Scalata Tecnocratica
+- Italy 2020 - Inside Covid's 'Ground Zero' in Europe
+- Italy bans ChatGPT
+- Italy becomes the 9th EU Nation to Ban Monsanto's GMO Corn
+- Italy Could Be the 'Cataclysmic Event' that Leads to the Fall of the Eurozone - Joseph Stiglitz
+- Italy - Fertile Ground for Technocrat Takeover
+- Italy Paralyzed as Grillo Plots Exit Route from Euro
+- Italy planning to become First Country to 'Ban Synthetic Food'
+- Italy's 'Belt and Road' Deal with China widens Rifts in the Euro-Atlantic Alliance
+- Italy's Meloni says Technocrats may join New Government
+- Italy Spurns Renzi - Next Up Clash with EU
+- Italy's suspected Covid Death Tally corrected from 132,161 to 3,783... - Covid Hysteria was 97% Fiction
+- Italy's Weird Technopopulism could be the New Normal
+- "It Could Open a Pandora's Box" - Italy's 2 Richest Regions are Voting in Historic Autonomy Referendums
+- La Fabbrica di Migranti che Salvini Non toccherà mai
+- La Farsa Covid sta per Finire - Solo l'Italia resta nell'Incubo
+- "La Felicidad Nace del Interior" - Un Hombre que lleva 14 Años Solo en una Aldea Italiana explica Cómo Pasar...
+- L'Agenda del Nuovo Ordine Mondiale richiede che l'Italia dovrebbe soccombere - Arcivescovo Carlo Maria Viganò
+- Las Calles de Italia se llenan de Música en plena Cuarentena por el Coronavirus
+- La Ultima "Maniobra Agresiva" de Rusia es Una Proposición de Paz
+- "L'Emergenza Covid è Finita da Due Mesi - Basta Panico e Morte Sociale" - Alberto Zangrillo
+- L'Italia Pianifica di diventare il Primo Paese a "Bandire Alimenti Sintetici"
+- Los 'Chalecos Naranja' en las Plazas de Italia - Multitud de Manifestantes sin Máscaras o Distancias
+- Lo Strano Tecno-populismo Italiano potrebbe essere la Nuova Normalità
+- Mafia 'Steps In' to Provide Food for Italians Struggling during Lockdown
+- Marco Polo está de Vuelta en China - Italia y la Iniciativa China 'Belt and Road'
+- Médicos Italianos desobedecen la 'Orden de No Realizar Autopsias' y descubren que el 'Protocolo de la OMS...
+- Meloni dell'Italia dice i Tecnocrati possono unirsi al Nuovo Governo
+- Nuevo Gobierno en Italia - ¿Por quién Repica la Campanilla?
+- Operación de Conquista de las Mentes
+- Operation Gladio - NATO's Secret Wars - Main File
+- Perché il Coronavirus ha Colpito così Forte l'Italia
+- Political Observer Explains why Italy didn't Back Other EU States on Venezuela
+- Por qué el Coronavirus ha Golpeado tan Fuerte a Italia
+- "Primer OVNI caído se estrelló en Italia y el Vaticano estuvo Implicado" - Revela ex oficial de Inteligencia
+- ¿Qué pueden adquirir Italia y China a lo largo del BRI?
+- Rejection of Globalism - Hungary and Italy Pass Laws to Protect Citizens from Insect use in Food
+- Russia Blamed for Italian Election Outcome
+- "Seis Débiles y Meloni" - ¿Por qué la Cumbre del G7-2024 es comparada con 'La Última Cena'?
+- "Se non fermate il 'Patto Ue' finirete come la Grecia" - Intervista a Yanis Varoufakis
+- Setenta Años de Sometimiento de Italia a Estados Unidos y a la OTAN
+- "Stato d'Emergenza? - Basta" - Virologi smascherano Conte
+- 'The New World Order Agenda requires that Italy should Perish' - Archbishop Carlo Maria Viganò
+- U.S. pressures Italy to Exit the Chinese "Belt and Road" - To Stay or Not to Stay in the BRI?
+- Why the Coronavirus hit Italy so Hard
+- Young Italian Prime Minister Dares to Defy the Troika
+- Nuovo Ordine Mondiale, Covid-19 e la Fondazione Gates - Sara Cunial
+- The Truth About 'Refugees' in Italy
+- You are Lying about the Number of Deaths caused by the Coronavirus - Vittorio Sgarbi in Italy
+NATO - OTAN
+- AFRICOM - La Invasión de Los Ejércitos Corporativos OTAN
+- Al-Qaeda, Eterno Auxiliar de La OTAN
+- A Military Mafia - NATO - The World's Gendarme
+- Choosing Hegemony - Turkey, NATO and The Path to War
+- Congresistas Norteamericanos junto a Elon Musk piden la salida de EE.UU. de la OTAN - "Sáquennos"...
+- Crece la Tensión - Rusia es Capaz de Ocupar el Báltico en Dos Días... y la OTAN Podría Responder con...
+- Defeated NATO Dangerously Desperate in Syria
+- Descent Into Barbarism - The US and NATO Wage War on The World
+- ¿Es Real la Posibilidad de una Guerra Mundial?
+- Expansión de La OTAN - Despliegue de Misiles y Nueva Doctrina Militar de Rusia
+- Full Circle - NATO Completes Takeover of Former Yugoslavia
+- Global Military Agenda - Increased US-NATO Military Presence in Southeast Asia - Completing Plans For...
+- Imperial NATO - Before and After Brexit
+- Japanese Military Joins U.S. and NATO in Horn of Africa - When Empires Join Hands
+- La Ignorancia Organizada - Peligros para el Hombre y el Medioambiente en la Víspera del Siglo XXI
+- La NATO c'è Sempre - Non è organizzazione militare per la Difesa né aiuta a risolvere Conflitti in modo Pacifico
+- La NATO di Fronte 'L'Ingratitudine' Dei Libici - Il Neocolonialismo per il Petrolio
+- La NATO sta Preparando Una Grande Operazione di Disinformazione
+- La OTAN Ante La 'Ingratitud' de Los Libios - Neocolonialismo Por El Petróleo
+- La OTAN existe para Responder a los Conflictos que Ella Misma Provoca
+- La OTAN - Feudalismo Contemporáneo
+- La OTAN le Declara la Guerra de la Información a Rusia
+- La OTAN Prepara La Mayor Operación de Desinformación de La Historia
+- La OTAN Pretende Prohibirles a Rusia y China que Se Desarrollen
+- Libya - From Africa's Richest State under Gaddafi, to Failed State after NATO Intervention
+- Los Preparativos de la OTAN para una Guerra Global caminan a Paso Acelerado
+- Matanza de La OTAN en Trípoli
+- NATO Carnage in Tripoli
+- NATO Drilling for Nuclear Attack on Iran and Syria?
+- NATO - From Defense to Offense
+- NATO Incorporates Libyan Experience For Global War Template
+Deutsch
+- NATO in Vorbereitung für Nuklearer Angriff auf Iran und Syrien?
+- NATO of The South - Chile, South Africa, Australia, Antarctica
+- NATO Preparing Vast Disinformation Campaign
+- NATO Security Briefing
+- NATO's Inevitable War - The Flood of Lies Regarding Libya
+- NATO's "Operation Gladio" - Sibel Edmonds on NATO, Terrorism, 9/11 and Drug Running
+- NATO's Role in The Military Encirclement of Iran
+- Nuclear Weapons In Europe - NATO's Secret Transatlantic Bond
+- Reinician las Negociaciones entre Colombia y la OTAN
+- Rusia y la OTAN 'Tocan Fondo' en sus Relaciones
+- Russian Warships Enter Syrian Waters to Prevent NATO Attack
+- Seven Actions that NATO Countries are taking which Indicate that 'Something Really Big' is coming
+- Siempre está la OTAN - Ni organización militar Defensiva ni ayudar a resolver Conflictos de manera Pacífica
+- Stoltenberg resume los Puntos Clave de la Cumbre de la OTAN - Londres 2019
+- Stoltenberg riassume i Punti Chiave del Vertice della NATO - Londra 2019
+- Syria - NATO Genocide Approaches - U.N. Syria Report Co-Authored by Director of U.S. Corporate Think...
+- Terroristas Islamistas - ¿Títeres Controlados por Occidente?
+- The Future of NATO
+- The Goal is Government of All the World
+- The NATO/UN Army - Perpetual War and Bankruptcy for U.S.
+- The US-NATO "Arc of War" Stretches From Afghanistan to The Caspian Sea and The Caucasus
+- The US-NATO Preemptive Nuclear Doctrine - Trigger A Middle East Nuclear Holocaust To Defend 'The...
+- Turkey - A Criminal State, a NATO State
+- United Nations Defends NATO's Premeditated Genocide in Syria
+- U.S. and NATO Accelerate Military Build-Up in Black Sea Region
+- U.S. and NATO Are On The March Worldwide
+- U.S. and NATO Target Latin America - Rumors of Coups And War
+- U.S.-NATO "Humanitarian Interventions" have Resulted in "Crimes against Humanity"
+- Vedi Napoli e Poi Muori - "L'Arte della Guerra"
+- Ver Nápoles y Morir - "El Arte de La Guerra"
+- Washington Funded Houla-Style Massacres - Analyst Said
+- El Volcán de Islandia y La OTAN - Dra. Rauni Kilde
+- Cosas que Nos Ocultan sobre La Crisis de los Refugiados
+- Crisis de Refugiados Europeos - Anatomía de un Encubrimiento
+- Desarrollo Sostenible, Migración y la Destrucción Multi-Cultural del Estado Nación
+- Erdogan Blackmails NATO Allies
+- European Refugee Crisis - The Anatomy of a Cover-Up
+- E.U. Terrorizes Switzerland Over Vote to Limit Immigration
+- Éxodo - Descentralización Poblacional
+- Impidiendo el Rapto de Europa - El Aumento de las Brigadas Independientes
+- Inmigración - Muchos Mitos y Escasa Realidad
+- La Cuidadosamente Calculada Agenda de Migración en Masa
+- "La UE per gli Jihadisti è come una Casa con una Porta Aperta per il Ladro"
+- Ligeros de Equipaje
+- Los Alemanes Están Abandonando Alemania "En Tropel"
+- Macroeconomic Evidence suggests that Asylum Seekers are Not a "Burden" for Western European Countries
+- Neocolonialism and the "Migrant Crisis"
+- Pesadilla Migratoria - Una "Vergüenza" Europea que Corroe la Unión - "¡Que se haga algo ya!"
+- Plan de George Soros y la CIA para Desestabilizar Europa
+- Pope Calls Migrant Crisis 'Arab Invasion' - Says Europe Must 'Rediscover its Cultural Roots'
+- Que el Mundo lo Sepa - Alemania Se Está Hundiendo
+- Sobre la Invasión Inmigratoria en Europa
+- Sustainable Development, Migration and the Multi-Cultural Destruction of the Nation State
+- The Barbarism of the Migrant
+- The Carefully Calculated Mass Migration Agenda
+- The Rape of Europe Prevented - Rise of the Freelance Brigades
+- The Truth about How the 'Refugee Crisis' was Rigged from Start to Finish
+- With Open Gates - The Forced Collective Suicide of European Nations
+- Acerca de la Leyenda Negra de la Conquista Española
+- A Letter from Spain in the Year 2050
+- Algo está Cambiando en el Mundo
+- Así Exterminó el Ejército de Estados Unidos todo rastro de la Herencia Española en Filipinas
+- Claudia Sheinbaum Pardo y la Monarquía Española - Respuesta del Gobierno de Tabarnia
+- Confirmado que lo que Sucede en Cataluña es una Rebelión contra las Élites
+- Diputada de Vox desmonta la Agenda 2030 de Pablo Iglesias
+- Edmundo González reconoció el Fallo del Supremo Venezolano que Convalida Reelección de Maduro
+- El 'Catargate' apunta a una Red de Sobornos de Marruecos a Eurodiputados - "Hacían todo lo que Rabat quería"
+- El Gobierno de España le Admitió a Pablo Iglesias que fue un Error Reconocer a Guaidó
+- El Gobierno de Israel organiza el Mayor Grupo de Estafas Internacionales
+- El Gobierno Español Declara la Guerra a Formas Naturales de Medicina
+- El Gobierno sabía más de Seis Horas antes de la Tragedia de Valencia que llegaban Riadas Devastadoras
+- El Nuevo Mapa de Europa - ¿Quiénes Apoyan la Independencia de Cataluña?
+- El último 'Tonto Útil' del régimen de Pekín
+- España: el Pacto y la Furia - Una Historia Politica de nuestro pais del 11M al presente - por Enric Juliana
+- Ex-Embajador Británico revela que "Ciudadanos" fue Creado por los Servicios Secretos Alemanes
+- Fmr. IMF Chief Sent to Jail as Spain Prosecutes 65 Elite Bankers in Enormous Corruption Scandal
+- Gladio sigue Operando en España
+- How Government Masks the Plight of Spain's Lost Generation
+- If Catalonia Fails, We All Fail...!
+- Il Governo di Israele organizza il Gruppo Più Grande di Truffe Internazionali
+- Is Catalonia the 'Canary in the Coal Mine' for National Identity in Europe?
+- Jean Claude Juncker y la Crisis Catalana
+- La Homeopatía seguirá Denominándose Medicamento - Europa le dice a España
+- La Megacorrupción del Partido Popular Español y la Defenestración de Mariano Rajoy
+- La Red Secreta de Soros en España al descubiero gracias a Joaquín Abad
+- Las Matemáticas explican la Inestabilidad Política en España
+- ¿Más Cerca del Banquillo? - Hallan en Andorra otra Cuenta Bancaria vinculada a Juan Carlos I
+- Media Silent as a Record 1 Million Protesters March in Spain to End Government Corruption
+- ¿Por qué Hablar de la Violencia de la Conquista Española no es "Cosa del Pasado"?
+- Spain Braces for its Biggest Corporate Insolvency Ever!
+- Spain is Beyond Doomed - The 2 Scariest Unemployment Charts Ever
+- Spanish Government Declares War on Natural Forms of Medicine
+- Spain Just Lit a Fuse Under Catalonia... its Richest Region!
+- Spain Now Faces a Systemic, Societal, and Sovereign Collapse
+- Spain Sets Massive Precedent - Charges its Central Bankers in Court
+- Spain's Rajoy Yields to Merkel, Agrees that EU Countries Must Cede Sovereignty
+- Study Spain if You Want to Understand the Next 10 Years
+- The Spain and Portugal Blackout - A Warning from the Future of 'Green' Energy
+- 'Timocracia' - 300 Ejemplos de cómo las Empresas y los Gobiernos toman el pelo a los Españoles
+- To 'Protect the Press' Spain Tries to Muffle the Internet
+- Tormentas en España - Voces contra las Armas Meteorológicas y la Agenda 2030
+- Una Carta desde España en el Año 2050
+- Una Lettera dalla Spagna nell'anno 2050
+- ¡Y ahora Acusan a Putin de estar Tras el Proceso Independentista Catalán!
+- Historia de Cataluña en 10 Minutos
+- La Élite ordenó Destruir España
+- La UCO asesta duro golpe a Investigación sobre Begoña Gómez/Pedro Sánchez - Corrupción Política
+- European Super State One Step Closer or Approaching Imminent Collapse?
+- E.U.'s Secret Plan to Create Super Government
+- E.U. Unmasked - After Brexit, Plans for Full EU Superstate Revealed
+- Porqué debe haber Resistencia a un Super Estado Europeo
+- Why a European Super State Must Be Resisted
+- Acuerdo Transatlántico - ¡Peligro para Europa!
+- Algunas Razones por las que Debe Preocuparte el TTIP
+- Angela Merkel Sounds Death Knell for TTIP - But don't thank Donald Trump
+- "Antes Pedíamos que EE.UU. se Fuera de Vietnam - Era Más Fácil que Explicar el TTIP" - dice S.George
+- "Back-Door" Canada-EU Trade Agreement (CETA) Sets the Stage for the TTIP - Towards NAFTA-EU...
+- Britain Ignores United Nations on TTIP as EU Commission Sanctions "Revolution Against Law"
+- CETA - Playing with the Politics of Power
+- Corrupt "Secret" Global Trade and Investor Agreements - EU Facilitating Corporate Plunder
+- Crunch Time for the Global Corporatocracy
+- Diez Grandes Corporaciones Culpables de Asesinato
+- El Sueño de Monsanto del Acuerdo de Comercio TTIP - Cientos de Miles Cierran Berlín para Protestar...
+- E.U.-U.S. Trade Pact Can Halt West's Decline - Brzezinski Says
+- France Threatens to Walk Away from TTIP Negotiations
+- Francia Amenaza con Salirse de las Negociaciones del TTIP
+- How we Looked into Think Tanks and TTIP
+- Is Europe About to Lose the Fight Against GMO's?
+- La Organización de Cooperación de Shanghái Encabeza la Gran Transformación de Eurasia
+- Latest Leak Confirms TTIP a 'Serious Threat to Democracy as We Know It'
+- Leaked Docs Reveal TTIP Trade Deal in Jeopardy as "Irreconcilable Differences" Emerge
+- Leaked TTIP Documents Cast Doubt on EU-US Trade Deal
+- Los Oscuros Planes de La Comisión Trilateral - TPP, Monsanto, Rockefeller, Brzezinski
+- Meet the Corporations Lobbying the Hardest for TTIP and Ending Democracy
+- Monsanto's Dream Trade Deal - Hundreds of Thousands Shut Down Berlin to Protest 'Trojan Horse
+- "No hay que Cambiar el Tratado con EE.UU. - Hay que Librarnos de él Porque es Peligrosísimo" - S. George
+- Obama Blocks Making TTIP Trade-Deal Terms Public
+- Obama's TTIP Trade Deal with Europe Would Be Disastrous for Europe - Says the First Independent Study
+- ¿Porqué están tan Histéricos los Políticos y Medios Españoles con la Victoria de Trump?
+- Porqué Obama tiene Tanta Prisa por Firmar el TTIP
+- Primeros Pasos del TTIP - Aprueba Uso del Fracking en Alemania
+- Primi Passi del TTIP - Approvazione per l'Utilizzo del Fracking in Germania
+- Reported Death of TTIP - An Abhorrent Political Deception
+- Revealed the Hidden Web of Big-Business Money Backing Europe and America's pro-TTIP "Think Tanks"
+- Rule by The Corporations - The TTIP, The Corporate Empowerment Act
+- Ten Corporations that Got Away with Murder
+- The Integration of Trade Agreements into the United Nations '2030 Agenda'
+- The Three Ugly Sisters - TTIP, CETA and TISA
+- The TPP, TTIP and the UN's 2030 Agenda are Secretly Designed as Precursors to a One World Corp...
+- The Trans-Atlantic Trade and Investment Partnership - European Disintegration, Unemployment and...
+- The TTIP and TPP Trade Deals - Enough of the Secrecy
+- TISA - An International "Trade in Services Agreement"?
+- TISA, TTIP and TPP = Corporate Hegemony and Global Economic Warfare
+- 'Today Marks the End of TTIP' - Greenpeace Leak Exposes Corporate Takeover
+- TTIP - Big Business and U.S. to have Major Say in EU Trade Deals - Leak Reveals
+- TTIP - Breve Historia de una Agenda para el Saqueo Corporativo
+- TTIP Enters New and Dangerous Stage as Democracy is Dismantled in Secret
+- TTIP - Greenpeace Netherlands Released Secret Negotiation Documents
+- TTIP Proposal for Chapter: Good Regulatory Practices
+- TTIP - What Consumers Have to 'Gain' - Speech by EU Trade Commissioner Cecilia Malmström
+- Vorstufe zum TTIP - Bundesregierung bringt Fracking nach Deutschland
+- TTIP - La Dictadura de las Multinacionales
+- TTIP - Might is Right
+- Approfondiamo - Perché l'Alternativa è Peggiore...
+- Berlin Alarmed by Aggressive NATO Stance on Ukraine - Breedlove's Bellicosity
+- Chi ha davvero Sabotato la Pace in Ucraina? - La Verità dell'ex Osservatore OSCE
+- Cómo es el 'Agujero Negro' Financiero Mundial creado por Occidente en torno a Ucrania
+- Cómo Occidente está Rompiendo Ucrania
+- Digging Deeper - Because the Alternative is Worse...
+- El Conflicto Ucraniano es una Guerra por Delegación de EE.UU. y la OTAN - Rusia está dispuesta a Ganar...
+- El Declive de Europa y Ucrania
+- El Final de Ucrania - ¿Qué hará y qué dirá Europa...?
+- El Peligroso Nacionalismo Ucraniano
+- El Predecible Fin de Ucrania
+- Envío de Armas a Ucrania - El Mejor Negocio Militar de la Historia para Estados Unidos
+- ¿Es Ucrania un 'Estado Clave' en el Nuevo Orden Mundial?
+- Europa al borde de una Profunda Crisis por apoyar a Ucrania - "Es lo que EE.UU. ha estado deseando"
+- Europa y EE.UU. estarían "Al Borde de la Desvinculación" por el Conflicto Ucraniano
+- Excavando mas Profundo - Porque la Alternativa es Peor...
+- Fine dell'Ucraina - Cosa farà e dirà l'Europa...?
+- Gazprom Prevé Cerrar el Tránsito de Gas Ruso a Europa a través de Ucrania
+- Gli Occidentali e il Conflitto in Ucraina
+- Guerra en Ucrania para mantener a la Unión Europea Bajo Tutela
+- Kissinger and the War in Ukraine - The Messenger and the Master
+- La Derrota en Ucrania ha convertido a Europa en un Campamento Militar
+- La Disfatta in Ucraina ha trasformato l'Europa in un Accampamento Militare
+- La Guerra era la Parte Facile - Aspettate solo di arrivare alla Politica
+- La Guerra fue la Parte Fácil - Sólo esperen hasta que lleguemos a la Política
+- La Mentira - La Principal Arma de Guerra en Ucrania
+- La Prevedibile Fine dell'Ucraina
+- Las Armas procedentes de Ucrania inundarán Europa y más allá - Según un informe
+- Las Tácticas de Putin en Ucrania Confunden a Occidente y Preocupan a la OTAN
+- La Triple Crisis Global - 'Pandemia', Conflicto en Ucrania e Inflación Récord
+- La UE Apuesta a que el Conflicto en Ucrania "No Tenga Solución en el Corto Plazo"
+- L'Europa al limite di Una Crisi Profonda visto l'appoggio all'Ucraina - "E' ciò che gli Stati Uniti ha desiderato"
+- Making Sense of the 2019 Paris Summit on Ukraine Conflict - A Quick Analysis
+- New Video Evidence of America's Coup in Ukraine - And What it Means
+- Occidente y el Conflicto en Ucrania
+- Perché l'Unione Europea non vuole che la Pace arrivi presto in Ucraina
+- Por qué la Unión Europea no quiere que la Paz llegue pronto a Ucrania
+- Por qué Trump rompió el 'Relato Occidental' sobre el Conflicto en Ucrania
+- 'Post-Alaska Cronos' con Putin - Ilegitimidad de Starmer/Macron/Merz e ilegalidad de Zelensky
+- Previniendo la Tercera Guerra Mundial - Las Fuerzas Corporativas que impulsan la Crisis en Ucrania son...
+- Putin's statement on Trump's Ukraine ceasefire Proposal
+- Quello che i Sub-umani Politici U.E. non riescono a Capire su Trump e Putin
+- The Future of Organized Crime beyond the Russo Ukrainian War
+- The War was the Easy Bit - Just wait until we get to the Politics
+- Trump tells Zelenskiy that Putin wants more of Ukraine - Urges Kyiv make a Deal
+- Ucrania - Ese 'Oscuro Objeto' del Deseo
+- Ucrania - Mercado Negro de Armas
+- Ucrania - ¿Nuevo Estado Satélite de Estados Unidos?
+- Ucrania - ¿Una Nación al Borde de la Banca Rota?
+- Westerners and the Conflict in Ukraine
+- Why did Biden want the War in Ukraine to Continue? - Germany's ex-leader Gerhard Schroeder's Revelations
+- Why did Russia REALLY invade Ukraine?
+- Zelensky frente a Trump - ¿Suicidio Europeo o Síndrome de Masada?
+- Zelenskyy 'regrets' what happened during 'Oval Office Meltdown' - Ukrainian Officials "Desperate" to get deal...
+- Europa - Garantías de Guerra
+- Italy, NATO and Ukraine
+- Ucrania y Occidente - Una Fábrica de Mentiras
+- Ukraine, NATO provoked Russia in Donbas War - French Monitor...
+- Además de la Guerra, la Unión Europea financia la Corrupción en Ucrania
+- El Expediente Ursula von der Leyen - Presidenta de la Comisión Europea
+- European Psychosis - The EU's Mad March to Globalist Oblivion
+- E.U. states 'Fed Up' with von der Leyen
+- How Europe sealed a 'Pfizer Vaccine Deal' with Texts and Calls
+- "La Anciana Tóxica" - Medvédev lanza Duros Dardos contra Von der Leyen en vísperas de que se "Decida...
+- La Fiscalía Europea entorpece la Investigación de las relaciones de Von der Layen con Pfizer
+- Landmark Court ruling against von der Leyen in Pfizergate Trial
+- Las Vacunas de Pfizer llevan a Ursula von der Layen ante un Tribunal Belga
+- Nuovi Guai per von der Leyen - Procura Europea indaga sulle sue Trattative con Pfizer per i Vaccini Covid
+- Pfizergate - Tribunal de la U.E. dictaminó que Ursula von der Leyen violó las Normas de Transparencia
+- Posible Acuerdo de Libre Comercio Mercosur-Unión Europea - "Ganancia para Europa", según von der Leyen
+- "Reina Ursula" - Cómo Von der Leyen 'Usurpó el Poder en Europa'
+- "Stalin of the E.U." - How the 'Unelected Queen' of the Union plans to Keep her grip on Power
+- The Ursula von der Leyen File - EU Commission President
+- Ursula Von der Leyen enfrenta una Investigación por Corrupción sobre Contratos con Pfizer
+- Cuando la Casa se Quema - por Giorgio Agamben
+- ¿En qué Punto Estamos? La Epidemia como Política - por Giorgio Agamben
+- Il Medioevo prossimo Venturo - di Roberto Vacca
+- Infected - by J.D. Morvan and Huang Jia Wei - EU Publications
+- Las Raices Nazis de La "UE de Bruselas" - por P. Anthony Taylor, A. Niedzwiecki, M. Rath y A. Kowalczyk
+- Leo Strauss and the Conservative Movement in America - A Critical Appraisal - by Paul E. Gottfried
+- Pawns in the Game - by William Guy Carr
+- Socialism Betrayed - Behind the Collapse of the Soviet Union - by Roger Keeran and Thomas Kenny
+- Super-Imperialism - The Economic Strategy of American Empire - by Michael Hudson
+- The Clash of Civilizations and The Remaking of World Order - by Samuel Huntington
+- The Covid Consensus - The Global Assault on Democracy and the Poor - by Thomas Fazi
+- The Defeat of the West - by Emmanuel Todd
+- The Great Deception - Can the European Union Survive? - The Secret History of the EU - by C. Booker...
+- The Many Faces of Secrecy - by Amy Benjamin
+- The Nazi Roots of The "Brussels EU" - by P. Anthony Taylor, A. Niedzwiecki, M. Rath and A. Kowalczyk
+- The Shocking History of the EU - by Zina Cohen aka Vernon Coleman
+- The Third Wave - by Alvin Toffler
+- Análisis del Escenario Geopolítico Actual - 2014
+- Break Up The Euro and Restore Human Dignity - UKIP Nigel Farage - 22 May 2012
+- China se Apodera de Europa - La Nueva Ruta de la Seda
+- Construyendo la Opinión Publica (Abril 5, 2008)
+- David Icke Talks on the European Union "In/Out Referendum"
+- Earth's Liberation from the Deep State - Galactic Community and the Earth Alliance
+- El Marronazo de Lisboa - El Tratado de Lisboa Nos Conduce a Una Europa Totalitaria y Policial
+- España, Reino Unido y Australia a la Vanguardia del 'Totalitarismo Global'
+- Euro Digital e Identificación - Así te Controlarán sin que Te Des Cuenta
+- Europa - ¿Economía Arrodillada...?
+- Europa en la Cuerda Floja
+- Europa - Pánico en el Jardín...
+- European Union Corruption - Christopher Story
+- Fascismo Internacional prohibe la entrada a David Icke en 26 Paises
+- Islam in Europe - Geert Wilders Speaks in the Danish Parliament Building
+- Kissinger Message to WEF Meeting at Davos - 2022
+- La Cina s'Impossessa dell'Europa - La Nuova Via della Seta
+- La Crisis de Europa y el Fin del Euro
+- Le Sanzioni Russe per l'Europa
+- London Calling - BBC Bias during the 2014 Scottish Independence Referendum
+- MEP Exposes The EU Lisbon Treaty!!! (Enero 25, 2008)
+- Origins and Symbolism of The European Union (EU) - David Icke
+- Reino Unido - Sembrando Cizaña
+- Revolt at European Parliament - You will Never See This on TV (December 12, 2007)
+- Russian Sanctions on Europe
+- The Biggest Corruption Scandal in Human History
+- The Cynical Use of Emotion to Sell an Horrific Agenda - David Icke
+- The Enemy in Brussels - What do the Right-wing Populist Want?
+- Tratado Lisboa - Parlamento Europeo (Febrero 20, 2008)
+- American "Empire" - Main File
+- Asia - The Reemerge of a Giant - Main File
+- Capitalism is a Collapsing System - What's Next? - Main File
+- NATO - Powerful and Necessary, or Costly and Obsolete? - Main File
+- The Bilderberg Group - Main File
+- Trump - Main File
+Return to Temas / Main Files
+Return to Globalization - The Octopus of The New World Order

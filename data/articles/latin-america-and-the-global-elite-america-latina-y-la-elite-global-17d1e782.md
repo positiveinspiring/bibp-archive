@@ -1,0 +1,1038 @@
+# Latin America and The Global Elite - America Latina y La Elite Global
+
+> Source: https://www.bibliotecapleyades.net/Sociopolitica/sociopol_globalelite_la.htm
+
+SouthCom
+Control de la América Latina Desde el siglo XIX, Estados Unidos considera Latinoamérica como su zona de influencia (Doctrina Monroe), pero no fue hasta 1903 que creó el SouthCom o "Comando Sur", como se le denomina en ese continente.
+El objetivo, en aquel entonces, era apropiarse de la zona del ferrocarril que conectaba el Atlántico con el Pacífico para abrir allí un canal interoceánico.
+En detrimento de Colombia, Washington suscitó entonces un movimiento secesionista que dio lugar a la aparición de Panamá como país y envió sus tropas para
+"garantizar la seguridad del nuevo Estado". Durante la guerra fría, el Comando Sur o SouthCom respaldó abiertamente las dictaduras militares de derecha y, más discretamente, dirigió incluso la represión contra las guerrillas marxistas, bajo el pretexto de luchar contra el narcotráfico.
+Esta evolución dio lugar a una reforma estructural paulatina del SouthCom, que ahora trabaja en estrecha coordinación con numerosas agencias estadounidenses en vez de hacerlo únicamente bajo las órdenes del Departamento de Defensa. Hoy se prevé un fortalecimiento del SouthCom, a medida que Estados Unidos vaya retirándose del Gran Medio Oriente, para concentrar sus esfuerzos en las zonas petrolíferas del Caribe.
+Para mostrar músculo ante Venezuela y Cuba, Washington reactivó la IV Flota en 2008, derrocó en 2009 el gobierno de Honduras que quiso cerrar la base estadounidense de escucha de
+Soto Cano y abrió 7 nuevas bases militares en Colombia, también en 2009.
+Fuente
+- 2019 - Movilizaciones Ciudadanas y Cambios Disruptivos en América Latina
+- 2022 - El Año en que América Latina se Renovó
+- A 30 Años de la Invasión de EE.UU., Panamá busca Alejarse de la Hegemonía de Washington
+- About the Pandora Papers
+- A Century of U.S. Intervention in Central America created the Immigration Crisis
+- Agravada una Crisis Humanitaria en América Central
+- Agresión a Defensores de DDHH es 'pan de cada día' en América Latina
+- Algunos 'Muros de la Vergüenza' en America Latina
+- América del Sur acelera "Vuelcos Políticos" que Conectan con el Pasado
+- América del Sur Clama: Neoliberalismo - ¡Nunca Más...!
+- América Latina conduce en Reversa en el Objetivo de Hambre Cero
+- América Latina gira a un Mundo Multipolar - Mientras la UE sigue a la "Potencia en Decadencia, EE.UU."
+- América Latina - La Nueva Arma arrojadiza de EE.UU. contra China
+- América Latina - La Unidad Continental es un Destino Común
+- América Latina - La Zona de Influencia del Gobierno Trump
+- América Latina - ¿Más Desunida que Nunca en el Siglo XXI?
+- América Latina necesita Polarizarse - Pero No se da Cuenta...
+- América Latina no quiere una nueva Guerra Fría
+- América Latina reacciona a los Primeros Pasos de la 'Era Trump'
+- América Latina renueva Atropellos Políticos tras Democratización
+- América Latina repiensa su Desarrollo para Superar la Desigualdad
+- América Latina tendrá un Papel Protagónico en la Política Mundial - Putin
+- América no es EE.UU. - La Lección que debería Aprender la OEA
+- Analista sobre la Cumbre de los BRICS - Es un "Parteaguas en la Historia Geopolítica"
+- A New Political Situation in Latin America - What Lies Ahead?
+- Asesinatos, Detenciones, Abusos - El 'Lado B' de la Minería en América Latina
+- Backdoor Talks on Trans-Pacific Trade Deal Aim to Globalize Corporatocracy
+Español
+- Balance Político y Perspectivas 2023 en América Latina y el Caribe
+- Biden y los Demócratas van a Sembrar el Caos en América Latina
+- Biopiratería de Multinacionales acecha a las Plantas Nativas de América Latina
+- ¿Borrón y Cuenta Nueva...? - Obama a America Latina
+- Brasil Supera los 28.000 Homicidios en el Primer Semestre del Año
+- Brasil y Lula entre la Soberanía, el Poder Constitucional y la Fuerza
+- Cambios en Sudamérica traen a la Nueva Ruta de la Seda a las Américas a Medida que el Orden Neoliberal...
+- Cárcel, Suicidio y Extremismos ante Corrupción Política en América Latina
+- China - Cómo el Socialismo aventaja al Capitalismo
+- China 'mueve ficha' en Sudamérica y busca un 'jaque' a Trump con Dos Alianzas
+- China rompe el Dominio de la Deuda Occidental en Latino América y el Mundo
+- China, Rusia, India, el Sur - La Era de la Revancha
+- Claudia Sheinbaum Pardo y la Monarquía Española - Respuesta del Gobierno de Tabarnia
+- Coca-Cola and Nestlé to Privatize the Largest Reserve of Water in South America
+- Colombians Successfully Revolt Against Seed Control and Agricultural Tyranny
+- Comenzó el Golpe Institucional contra Dilma y Lula
+- Cómo un Colapso en Sud América podría Desencadenar la Ley Marcial en los Estados Unidos
+- Conexiones Interoceánicas - La Ventaja Estratégica Latinoamericana para el Comercio Mundial
+- Conoce de Qué Manera está Involucrada la CIA en un Espionaje Masivo en Uruguay
+- Contra el Imperio de La Vigilancia - Entrevista con Noam Chomsky
+- Corrupción - La Última Promesa de la Política
+- Costa Rica Elimina Obligatoriedad de Mascarillas y Vacunas contra COVID-19
+- Covid-19 Lockdowns in Third World result in 'Starvation and Police Assaults'...
+- Crear Laboratorios Biológicos con Fines Militares - Plan de Estados Unidos en la Amazonía
+- Crece Percepción de Distribución Injusta de la Riqueza entre Latinoamericanos
+- Crisis en América Latina y el Caribe 2022 - El Peligro de un Estancamiento Secular
+- Cristina Fernández - Objeto de un Ataque Israelí bajo Falsa Bandera
+- ¿Cuáles son los Intereses de los Países Latinoamericanos del G20?
+- ¿Cuáles son los Salarios Mínimos más Altos y más Bajos de Latinoamérica?
+- Da Monroe a Trump - Gli USA hanno sponsorizzato Colpi di Stato Militari in Latino America
+- David Rockefeller and a Dark Legacy in Brasil - A Critical Obituary
+- Declaración de Santa Cruz
+- Declaration of Santa Cruz
+- Defensores de Derechos Humanos llegaron al "Punto de Crisis"
+- Desaceleración Económica se Generaliza en 2019 en América Latina
+- Descontrol del Covid-19 en América Latina
+- "Desdén y Amenazas" - Cómo EE.UU. sigue Repitiendo los Mismos Errores en América Latina
+- Discurso de 'Evo Morales' sobre La Verdadera Deuda Externa
+- "Donde Rusia y China tienen Buena Presencia y Cooperan, hay Tranquilidad"
+- Economías de América Latina y el Caribe en Trampa de Baja Capacidad - CEPAL
+- EE.UU. Avanza sobre el Brasil de Temer
+- EE.UU., Canadá y México Militarizan el NAFTA - Investigaciones del Proyecto Censurado 2009
+- EE.UU. desea Convertir a los Países Latinoamericanos en "Chicos Obedientes"
+- EE.UU. el Sheriff de las Américas Al Servicio del Capitalismo
+- EE.UU. intimida a los Países de América Latina por su Negativa a Unirse a la Campaña Antirrusa
+- EE.UU. pierde Latinoamérica ante China por su 'Pésimo Manejo Migratorio' y su Falta de Inversiones
+- EE.UU. pierde Poder en la OEA - México, Brasil y Argentina se Rebelan por el Conflicto en Ucrania
+- EE.UU. Trató de Chantajear a Morales para Evitar la Nacionalización de los Hidrocarburos
+- El Acuerdo Transpacífico (TPP) da Derecho a Empresas a Demandar a los Países Latinoamericanos
+- El Acuífero Guaraní y La Patraña del Peligro Terrorista en La Triple Frontera
+- El Año en que una Mujer destruyó el Anclado Bipartidismo en Honduras
+- El Año que Viviremos Peligrosamente a nivel Global
+- El Asalto Global a los Pueblos Indígenas
+- El Dólar es una Herramienta para Castigar a los Países del Tercer Mundo
+- El Éxodo Migratorio refleja el Fracaso de las Élites en Honduras
+- ¿El Fin de la Disputa Electoral en América Latina?
+- El Fin del Capitalismo Ha Comenzado
+- El Grupo BRICS Pisotea a EE.UU. en América del Sur
+- El 'Grupo de Puebla' empieza a Coordinar la Política de la Izquierda Latinoamericana
+- El 'Lawfare' en América Latina - Guerra contra la Política
+- El Mega Año Electoral 2024 en el que la Mitad de la Población Mundial irá a las Urnas
+- El Pacto de Princeton - Una Alianza para la Miseria y el Sometimiento
+- El País que se Convertirá en el Centro Financiero de China en América Latina
+- El peligro Acechante - A qué teme Washington en América Latina - La Pérdida del Control y lo Que Viene
+- El peligroso 'Experimento Libertario' que ejecuta su silenciosa Expansión Mundial
+- El peor Año de Brasil en Mucho Tiempo
+- El Plan Maestro - Nada de lo Que Ocurre Actualmente en América Latina Ocurre por Azar
+- El Plan Marshall Chino en América del Sur y Central
+- El Poder Fáctico No se Esconde - Elon Musk mueve sus Fichas en Latinoamérica
+- El Poder Transnacional y los Nuevos TLCs
+- El TLC y La Globalización en Acción en Centro America - Alerta America Latina!
+- El TPP - Nuevo Tablero Mundial
+- En América Latina 'El Imperio' Devuelve el Golpe
+- En América Latina y Más Allá, Otro Mundo Aún es Posible
+- "En Épocas de Crisis el Racismo Recrudece" - La Brecha entre Blancos y Negros en Latinoamérica
+- En Familia - Casos de Nepotismo en los Gobiernos de América Latina
+- Enlightened World Leadership Does Not Exist
+- En Moscú, Xi y Putin entierran la 'Pax Americana'
+- Entre "Embates y Chantajes" de Trump - Así avanza la relación de China con América Latina
+- En una Economía Mundial Convulsa tres Divisas Latinoamericanas cierran bien el 2022
+- Environmental Defenders Being Killed in Record Numbers Globally - New Research Reveals
+- ¿Es América Latina el Objetivo Fundamental de EE.UU.?
+- Escape from Protection - The Catastrophe of Conservation in Panama
+- Estados Unidos Prepara una Guerra entre Latinoamericanos
+- Estados Unidos usa América Latina para Desarrollar Armas Bacteriológicas
+- Estos serán los Representantes de América Latina en Davos
+- Exacerbated a Humanitarian Crisis in Central America
+- ¿Federalismo o Centralismo en América Latina?
+- ¿Fin de Ciclo en América del Sur? - Los Movimientos Populares, la Crisis de los "Progresismos"...
+- Firman el Reglamento del Tren Bioceánico que cruzará Cuatro Naciones de Suramérica
+- From Monroe to Trump - U.S. Sponsored Military Coups in Latin America
+- ¿Gira América Latina nuevamente hacia la Izquierda?
+- Goodbye G20 - Hello BRICS+
+- ¡Good bye OEA!
+- ¿Hacia una "Primavera Latina"?
+- "Hay una Injerencia Brutal en América Latina" - ¿Qué esperar de la Crisis entre México y Ecuador?
+- How a Collapse in South America Could Trigger Martial Law in the U.S.
+- How Reagan Promoted Genocide - Guatemala's Populace Extermination
+- How South America's Rainforests are Being Sacrificed on the Altar of Energy
+- How South America Went from a Haven of Stability to a Mess in 18 Months
+- Imparable el Empobrecimiento de Los Trabajadores
+- Indígenas de Guatemala Denuncian que los Planes de Transnacionales los Dejan Sin Hogar
+- Indigenous Communities in Guatemala Prevail against Monsanto
+- In Latin America and Beyond, Another World is Still Possible
+- In Latin America "The Empire" Strikes Back
+- Intelectuales Denuncian Intentos de EE.UU. de Recolonizar Latinoamérica
+- Its Economic Role Models in Shambles - What's Ahead for Latin America?
+- Justificaciones que Insultan
+- La Asociación Trans-Pacífico - TPP - Main File
+- Laboratorios Biológicos de Estados Unidos - ¿Una Nueva Era de Control Mundial?
+- La Cumbre Maduro-Petro 2024 - La "Línea de Contención" del Progresismo Latinoamericano
+- La Defensa Ideológica de la Democracia No Funciona en América Latina
+- La Desigualdad que Lleva a la Inestabilidad
+- La Devastadora Epidemia de Crimen e Inseguridad en América Latina
+- La Economía Explicaría Todo - Incluso Vuelcos Políticos en América del Sur...
+- La Gran Mayoría de Temas Acordados Dentro del G77 Demuestra que Hay Compromiso por Trazar un...
+- La "Guerra Sucia" y el Financiamiento contra Evo Morales
+- La Huella Invisible de la Restauración Conservadora en América Latina
+- La Impudicia de la Indulgencia
+- La "Injerencia" de EE.UU. en América Latina cambia de Forma - Pero No se Rinde
+- La Instauración del "Día de la Resistencia Indígena"
+- La Inversión Extranjera directa en América Latina cayó 34,7% en 2020 - Solo en Cinco países Creció
+- L'Anno che Vivremo Pericolosamente a livello Globale
+- L'Anno Peggiore del Brasile da Molto Tempo
+- La OTAN también Expande sus Ramas en América Latina
+- La 'pandemia' aceleró Censura en Latinoamérica - dice RSF...
+- La Ruta de la Seda envuelve a EE.UU. en América Latina
+- Las Fuerzas Multipolares día a día se Consolidan Más en sus Posiciones
+- Las 'Joyas de la Familia' en Operaciones de la CIA en Suramérica salen a la luz...
+- La Tardía 'Reconquista' de la Unión Europea en América Latina - Qué esperar de la Cumbre UE-Celac
+- La Tardiva "Riconquista" dell'Unione Europea in America Latina - Cosa aspettarsi dal Vertice UE-Celac
+- La Tentación Militar en América Latina
+- Latin America - Growth, Stability and Inequalities - Lessons for The U.S. and E.U.
+- Latin America's 'Double Burden' of Malnutrition - Rising Obesity and Undernourishment
+- Latin America - The Aborted Neo-Liberal Offensive
+- Latin America - The Political Pendulum Swings to the Right
+- Latinoamérica bajo el 'Arancelómetro' de Trump - Quién gana y quién pierde...
+- Latinoamérica - La Balcanización del Sur
+- Latinoamérica - Panorama Convulsionado para 2022
+- La "Triple Frontera" - Crimen Organizado y 'Delito de Cuello Blanco' en Paraguay
+Italiano
+- La Via della Seta accerchia gli USA in America Latina
+- La Violencia Política - Una Peligrosa Costumbre en América Latina
+- Ley Monsanto y el Saqueo de Las Semillas Indígenas
+- L'Indecenza dell'Indulgenza
+- "Lo Necesitamos" - Firman petición para que Putin Intervenga en México y Acabe con su "Mal Gobierno"
+- Lo que la Ciencia dice sobre la Política
+- Los Archivos del Horror de la Operación Cóndor
+- Los Cinco Países que Más Crecerán en Latinoamérica este Año 2025
+- Los días que 'Cambiaron la Mirada' entre EE.UU. y América Latina
+- Los Dictadores deberían Temer a la IA
+- Los Golpes de Estado "Blandos" en Latinoamérica - Un Caso de Manual
+- Los Intereses de Estados Unidos en Brasil detrás de la Decisión Contra Lula
+- Los Mega Acuerdos Comerciales y sus Amenazas para America Latina
+- Los Megaproyectos de Transporte de América Latina que podrían revolucionar el Comercio Internacional
+- Los Pretextos - y Verdaderos Objetivos - de las Intervenciones de EE.UU. en América Latina
+- Los Siete Días de Trump que Remecen el Tablero de América Latina
+- Lo "Woke" Empobrece
+- Mafias Digitales Amenazan Campañas Políticas Latinoamericanas
+- Majority of Mexicans see the United States as Greatest Threat - New Poll Shows
+- México Anuncia Acuerdo de Asociación Transpacífica de 11 Países
+- México, Argentina y Brasil - Los Países que Pagarán por la Política Imprudente de Occidente
+- México - La "Huerta" de Amapola de Estados Unidos
+- Mexico is "The New China"? - Pippa Malmgren
+- México se Lanza contra las Multinacionales - "Son el Motor de las Enfermedades Crónicas"
+- Militarized NAFTA - Security and Prosperity Partnership
+- Millones de Latinoamericanos de Clase Media caen en la Pobreza - Covid-19
+- Mitad de Jóvenes de Barrios Pobres Centroamericanos desean Migrar
+- Mujeres Latinoamericanas programan su Mundo contra Brecha Digital
+- Multiplicidades de China en America Latina
+- Neocolonialism and the "Migrant Crisis"
+- Neo-Liberal Restoration in Latin-America - Twilight of the Idols - Rise and Fall of the Personalities Left
+- "No han querido Entender qué Tipo de Relación tendremos con la OTAN" - Juan Manuel Santos a Correa
+- No Llores por Mí, Sudamérica...
+- Nueva Ola Progresista Latinoamericana elude impacto con EE.UU.
+- Ocho Contradicciones del "Orden Basado en Reglas" del Imperio
+- Otra Crisis Acecha a los Países del Sur en Desarrollo
+- Países Latinoamericanos hacen "Entreguismo Desesperado" de sus Recursos Naturales a China y Rusia
+- Países Latinoamericanos Liberan a Miles de Delincuentes de las Cárceles
+- ¿Paraíso o Enclave Colonial? - La Isla sin ley para Millonarios que amenaza a un País entero
+- Parlamentarios de América Latina y el Caribe piden Acciones Urgentes ante el Aumento del Hambre
+- Pegasus - El Software Espía Israelí que ya está en America Latina
+- Pentagon Continues Contracting U.S. Companies in Latin America
+- Perché Emigra la Popolazione del Triangolo Nord Centroamericano?
+- Piden un 'Impeachment' contra Temer por una Grabación Comprometedora - Brasil
+- Poder Permanente y Poder Temporal en América Latina - Un Debate Pendiente
+- ¿Por qué Hablar de la Violencia de la Conquista Española no es "Cosa del Pasado"?
+- ¿Por qué Migra la Población del Triángulo Norte Centroamericano?
+- Posible Acuerdo de Libre Comercio Mercosur-Unión Europea - "Ganancia para Europa", según von der Leyen
+- Progresismo Latinoamericano y su 'Nuevo Tipo de Líderes' - Los Gestores
+- Propiedad Intelectual en el Tratado Transpacífico - Más Costos que Beneficios
+- Próspera - Paraíso Libertario que podría llevar a la Quiebra a Honduras
+- Protegiendo el Espacio de las Mujeres en la Política
+- Protestas Globales - Sistemas de Abordaje y Síntomas
+- Proyecto Mechnikov - Laboratorio Latinoamericano de Biotecnología - Una Oportunidad para America Latina
+- Pueblos Indígenas de América Latina están Muriendo por Culpa de las Multinacionales
+- Putin llamó a Liberarse de la "Dictadura del Modelo Financiero" cuyo objetivo es "Endeudar y Colonizar"
+- Putin y Rousseff - Personajes del Año para la Prensa de América Latina
+- ¿Qué busca Antony Blinken en su Gira por América Latina?
+- ¿Qué calidad Democrática y Moral tienen muchos Gobiernos de America Latina?
+- ¿Qué es el Comando Sur, el 'Pentágono en Miniatura' de EE.UU.?
+- ¿Qué le espera a las Monedas Latinoamericanas en los Próximos Días de Enero 2016?
+- Qué Países de América Latina han Autorizado al Sector Privado a comprar y aplicar Vacunas contra el Covid-19
+- Qué pasó en Acapulco y por qué el Huracán Otis fue tan Devastador
+- ¿Qué puede esperar América Latina de las elecciones 2024 en EE.UU.?
+- Quiénes son los Seis Latinoamericanos entre los 100 "Más Influyentes" del Planeta
+- Rabia Contra las Élites - Otra Revolución de Octubre en América Latina
+- Rafael Correa, Evo Morales - ¡Brillantes, Equívocos Ilusorios Paradigmas!
+- Reajuste Mundial de la Izquierda Globalista
+- Regional Action Plan for the Implementation of the New Urban Agenda in Latin America and the Caribbean...
+- Silencio Internacional - Lo que No te han Contado sobre la Crisis en Honduras
+- Sin Noticias de Cristina Fernández de Kirchner
+- "Si sancionas a Rusia, sancionas al Mundo" - El Peligro de la Inflación en América Latina
+- Some Reasons Why We do Not Need a President
+- South America Cries Out - Neoliberalism - Never Again...!
+- South America's Offshore Oil buries 'Net Zero' Agenda - Crude Reality
+- Sudamérica en Disputa - La Nueva Guerra de los Commodities
+- Tecnología sin Soberanía - Quién controla el flujo de Datos en América Latina
+- Te Contamos cómo la Guerra Comercial Afectará a los Países del Mercosur
+- The Age of Injustice and the Moral Corruption of Individuals Orchestrating Julian Assange's Arrest
+- The Battle for the 'Global South' - An Ancient Evil rears its Head...
+- 'The Economist' presentó la Era de las "Govcoins"
+- The End of Capitalism has Begun
+- The Global Assault on Indigenous Peoples
+- The Indigenous Community that Rebelled Against Narcos, Thieves, and Politicians and Won!
+- The Left's Descent to Fascism
+- The Odebrecht Scandal Reveals Latin America's Changing Attitudes on Corruption
+- The Pink Tide in Latin America - An Alliance Between Local Capital and Socialism?
+- The Recolonization of Latin America and the War on Venezuela
+- The Risks of Re-Election Fever in Latin America
+- The South American Financial Crisis of 2015
+- The Strategic Battle for Lithium - Huge Reserves in Bolivia, Argentina, Chile
+- The Tequila Crisis - The Prelude to Europe's Economic Storm
+- The Trans-Pacific Partnership - TPP - Main File
+- The Troika of "Tyranny" - The Imperialist Project in Latin America and its Epigones
+- The Ukrainian and Colombian Road to Empire Building - Violence and Terror
+- The U.S. Military is Training Third World Coup Leaders "Again"...
+- Transnacionales en La Mira - América Latina
+- UK's Tony Blair Privatizing Colombia's Public Services
+- "Una Geopolítica de Bases Militares" - El enfoque de Estados Unidos para América Latina
+- ¿Una Negociación Caricaturesca? - Lo que No te han Contado del TLCAN
+- Un Gran Proyecto para la Soberanía Sudamericana se Destruye - Pero la Lucha por un Mundo Multipolar...
+- United Nations New Urban Agenda in Latin America calls for Paradigm Shift
+- Un País sorprende en el Podio de los que más Crecerán este Año en Latinoamérica
+- Un Partido Mundial
+- Un Siglo de Intervención Estadounidense en Centroamérica creó la Crisis de Inmigración
+- Uruguay en la Encrucijada - ¿Sigue el Frente Amplio o vuelve la Derecha?
+- U.S. Expands Military Reach in Latin America
+- U.S. Govt-linked to PR Firm that ran 'Fake News Networks' for Right-wing Latin American Regimes
+- Victory of Neoliberalism? - Is South America's 'Progressive Cycle' at an End?
+- Viejas Derechas y Nuevos Discursos en América Latina
+- Water is Life - They are Stealing our Livelihood and We aren't Even Noticing
+- Why Colombia's Historic Peace Breakthrough Was the 'Easy Part'
+- Why is 'The West' so Weak and Russia so Strong?
+- Why the Roots of Paraguay's Averted Constitutional Crisis Lie in the Countryside
+- Acerca de la Leyenda Negra de la Conquista Española
+- América Latina responsable del 20 por Ciento del Desperdicio de Comida
+- America's Imperial Empire - The Sun Never Sets but the Mote remains in the Emperor's Eye
+- Assange Warns U.S. Communications Dominance Threatens Latin America's Sovereignty
+- Batalla contra el Glifosato Amenaza la Explosión de la Soja en Brasil
+- 'Big Brother-style Surveillance' gives New Insight into Amazon's Hidden Wildlife
+- BRICS Announce $100 Billion Reserve to Bypass the FED and Developed World Central Banks
+- BRICS Nations Plan New Bank to Bypass World Bank and IMF
+- BRICS Set Up Bank to Counter Western Hold on Global Finances
+- BRICS - The Coming Challenge to U.S. Economic Dominance
+- BRICS Trample U.S. in South America
+- Campesinos hacen su Propia Luz en Comunidad Salvadoreña
+- Científicos Advierten que EE.UU. Inició una Guerra Climática contra Sudamérica
+- Cincuenta Verdades Sobre Nelson Mandela
+- Come i Rockefeller 'Trumpizzarono' il Mondo
+- Cómo los Rockefellers 'Trumpearon' al Mundo
+- Compañía Petrolera se Retira de Tierra Amazónica habitada por Tribus No Contactadas
+- Contra El Imperialismo y La Colonización - Seis Estrategias por La Soberania, Dignidad y Vida de Los...
+- Corporación Latinobarómetro - Informe 2021 - Adiós a Macondo
+- ¿Cuáles son las Ciudades más Caras para Vivir en América Latina y el Mundo?
+- Desplazamientos, Desolación y Muerte - Verdades de Los Transgénicos en Latinoamérica
+- El Caballo de Troya de Iberoamérica - Anglo-Venecianos Detrás de Santander
+- El Control Mundial de los Alimentos a través de las Semillas Genéticamente Modificadas
+- El "Fin" del "Principio"
+- El Fútbol No Es un Juego
+- El Mundial Mas Importante de La Historia
+- El Vertiginoso Crecimiento de la Tecnología LTE en América Latina
+- Entre Dos Aguas - China y EE.UU. se Disputan su Influencia Sobre América Latina
+- Este es el País Suramericano que hace Un Siglo eliminó la 'Semana Santa' y "Sacralizó el Tiempo Libre"
+- Este País es el Mayor Productor del 'Súper Alimento' Latinoamericano crucial para Combatir el Hambre
+- ¿Es Usted Feliz? - Países Ricos y Pobres Califican su Nivel de 'Felicidad'
+- Fracasó Encuentro de La 'Alianza' y Empresarios - Latinoamérica y la Elite Global
+- Geoengineered Disasters in Latin America
+- Gli Stati Uniti sono la Maggiore Causa della Instabilità Globale - Ma Pretendono di essere la Soluzione
+- Goodbye Democracy and Capitalism - It Was Fun...
+- Guía para Desenmascarar a las Falsas 'Izquierdas'
+- Here's How 43 Advanced, Emerging, and Developing Countries Rated their Happiness
+- How a Tiny Central American Country is Getting Richer and Saving the Environment
+- How Canada and Mexico Have Become Part of the U.S. Policing Regime
+- How the Rockefellers "Trumped" the World
+- Iguales: Acabemos con la desigualdad extrema - Es hora de cambiar las reglas
+- Il Calcio Non è Un Gioco
+- Inundaciones Desafían la Integración Sudamericana
+- Jefes de Estado Presentes a Inicio Oficial del Pontificado del Nuevo Papa Francisco - El Caso de Costa...
+- La Amazonía busca Alternativas que pueden Revolucionar la Energía
+- La 'Città Perduta di Z' e la Misteriosa Scomparsa di Percy Fawcett
+- La Diabetes se Apodera de una Ciudad Mexicana donde la Coca-Cola Sustituye al Agua
+- La Megacorrupción del Partido Popular Español y la Defenestración de Mariano Rajoy
+- La Naturaleza Contraataca - Amaranto Inca Devora Transgénicos de Monsanto
+- La Pianta Sacra degli Inca che Combatte i Prodotti Transgenici
+- La Planta Sagrada de los Incas que Combate a los Transgénicos
+- La Revolución Tecnológica que llega a América Latina y tiene a Uruguay como Líder Mundial
+- Las Diez Etapas Que Viviría El Mundo con La Introducción de Una Divisa BRICS
+- "Las Fotos de Hitler después de la Guerra" - Por qué Afirman que el Líder Nazi no se suicidó
+- Latin American Communities Fight to Protect Heirloom Seeds from Monsanto
+- Latino Barometro - Informe 2017
+- La Triple Crisis Global - 'Pandemia', Conflicto en Ucrania e Inflación Récord
+- Le Dieci Tappe Che Vivrebbe Il Mondo con l'Introduzione di Una moneta BRIC
+- Londres, BRIC y "El Proyecto Banco Santander" - La Destrucción del Dólar
+- Lo Que en Verdad Busca La Troika - La Crisis Económica de La Unión Europea Vista Desde Latino...
+- Los BRICS - Main File
+- Los BRICS y la Estructura de un Mundo Heptapolar - Contra la Unipolaridad Anglosajona
+- Los Caballeros del Círculo Dorado - La Sociedad Secreta que Pretendía Crear un Imperio Esclavista Panamericano
+- 'Malos' Augurios para la Economía Global 2016 - 100 Dólares el Barril de Crudo, el Dólar Cae, la Pobreza...
+- Mercosur Denuncia Ante La ONU a EE.UU. por Espionaje
+- México - Cuenta Regresiva a la Tribulación
+- News You Don't Want to Read About Fukushima - Warning for South America
+- New World Bank Policies Imperil Environment and Land Defenders
+- Noticias que No Quieres Leer Referente a Fukushima - Advertencia para América del Sur
+- Nunca EE.UU. Estuvo tan Aislado en América Latina
+- Oil Company Pulls Out of Amazonian Land Inhabited by Uncontacted Tribes
+- People in Emerging Markets Catch Up to Advanced Economies in Life Satisfaction
+- Plan de Contingencia en Yellowstone Enviará a Millones a América del Sur y Australia
+- Plan Maestro para la Supra-Colonización del Continente Andino - "América"
+- ¿Quién se Beneficia y Quién Pierde tras el Alza del Dólar en Latinoamérica?
+- Raúl Castro Hace Migas con El Cielo
+- Recordatorio de lo que Nikita Khrushchev dijo hace 60 Años
+- Ricordiamo ciò che Nikita Khrushchev disse 60 Anni fa
+- Secret Trade Agreements Threaten to Undo Our Last Shreds of Food Safety - The TPP
+- 'Shocking' 2016 Predictions - $100 Crude, Strong Ruble
+- Tecnofinanzas - La Nueva Ola que Privilegia a Latinoamérica sin tocar a Venezuela
+- Ten Secret Armies of the Central Intelligence Agency
+- The BRICS "Independent Internet" Cable - In Defiance of the "US-Centric Internet"
+- The Lost 'City of Z' and the Mysterious Disappearance of Percy Fawcett
+- The Trade Deal Scam - TPP and EU-US Free Trade Agreement
+- The U.S. is the Biggest Cause of Global Instability - But it Pretends to be the Solution
+- Tratan de Frenar a los Países del BRICS con Influencia Informativa - Declara Rusia
+- Treaty for the Establishment of a BRICS Contingent Reserve Arrangement - Fortaleza, 15 July 2014
+- 'Trust In Government' is No Longer Possible
+- Un Análisis de ADN antiguo arroja luz sobre el Proceso de Asentamiento Humano Temprano de Sudamérica
+- What Will Happen to Global Economy if BRICS Announce Launch of New Currency - Bricso?
+- Why Do We Love Violence? - The Tainted Glory of the Gladiator
+- Why the Nobel Peace Prize is A Complete Joke
+- With NAFTA, U.S. Finally Creates a New World Order
+- Yellowstone Contingency Plan will Send Millions to South America and Australia
+Argentina, the Global Elite and The Vultures - Argentina, la Élite Global y Los Buitres
+- Alberto Fernández solicita a Xi Jinping la adhesión formal de Argentina al BRICS
+- Alfredo Olmedo, ¿el Bolsonaro Argentino? - Entrevista
+- Apostamos por el Cambio de Gobierno en Argentina y Estamos Peor - Nos Arruinaron
+- Argentina and Wall Street's Vulture Funds - "Economic Terrorism" and the Western Financial System
+- Argentina buscaría Limar Asperezas con China por Necesidad de Fondos
+- Argentina, el FMI y la Deuda que Nunca se Investigó
+- Argentina en la Ruta del Terrorismo de Estado Colombiano y Mexicano
+- Argentina entre los Diez Países 'elegidos' por la OMS para Probar Terapias contra el Coronavirus
+- Argentina es el País Más Endeudado de América Latina, y su Inflación llega al 49,3% en Enero 2019
+- Argentina es el Primer País del Mundo en Autorizar Trigo Transgénico
+- ¿Argentina fue Refugio de los Nazis? ¿Dónde está Hitler? - Hablamos con un Historiador
+- Argentina - Here's What it Looks Like When your Country's Economy Collapses
+- Argentina, la OTAN y el riesgo de Perder Soberanía
+- Argentina on the Political Brink - Again...
+- Argentina's Soybeans Help Feed the World but Might Be Making Locals Sick
+- Argentina Targeted by World Government - Danger over 'Patagonia'!
+- Argentina - The End of Post Neoliberalism and the Rise of the Hard Right
+- Argentina Unrest - Brought to You by Goldman Sachs
+- Argentina y Paraguay suben al 'Tren de la Integración'
+- Carne Cultivada - Una 'startup argentina' realizó la Primera Degustación en América Latina
+- Chi è Papa Francesco? - Jorge Mario Bergoglio e la "Guerra Sporca" in Argentina
+- China quiere Construir una "Supercarretera" de Granos en Argentina
+- Colonization by Bankruptcy - The High-stakes Chess Match for Argentina
+- Color Revolutions - Argentina Next?
+- Construction of Monsanto Plant in North Argentina Halted on Environmental Grounds
+- ¿Cómo se Explica la Nueva Crisis Económica Argentina que pone en Jaque al Gobierno de Macri?
+- ¿Cooperación o Subordinación? - Argentina y la Agenda de Seguridad Norteamericana
+- Cuestionada en Chile la Cría del Salmón por su Impacto Ambiental y Sanitario - Se Acerca a Argentina...
+- Cuestionado el Modelo Agrícola Argentino - Se Pregunta cómo Seguir
+- De Cómo Monsanto Destruyó la Argentina Rural
+- Del Laboratorio a la Mesa - Qué es la Carne Sintética
+- El Conflicto con Los Fondos Buitres - Entrevista a Éric Toussaint
+- El Fantasma de Perón
+- El Triunfo de Lula en Brasil supone la Esperanza de Argentina para entrar en los BRICS
+- En Argentina denuncian el uso de "Aviones Rompe-Tormentas" (Chemtrails) para Modificar el Clima...
+- En Argentina la Carne ya es un Artículo de Lujo
+- ¿Es el Cambio Climático una Oportunidad para la Agricultura Argentina?
+- ¿Fuga de Reservas de Oro a Londres? - Inquietud en Argentina en medio del Hermetismo de Milei
+- Genetically Modified Children - New Film Unveils 'Monstrous' Child Deformities by Agrochems in Argentina
+- Gran Bretaña en América Latina - Las Islas Malvinas y su Importancia Estratégica y Geopolítica en el Siglo XXI
+- Grupo de Médicos Cuestionó a los Infectólogos que Asesoran a Presidente Argentino Alberto Fernández
+- How Monsanto Destroyed Rural Argentina
+- Is Macri's Moment Already Fading in Argentina?
+- Key Factors for Founding the Sovereign Nation of Argentina
+- La Argentina Vaciada - Un proyecto Geo y Biopolítico
+- La 'Grieta' Argentina y el 'Hombre Gris - Parravicini
+- La Historia del 'Refugio Nazi' en la Selva del Norte de Argentina
+- La NASA confirma que la Argentina es uno de los Pocos Países del Mundo con Balance Positivo de Carbono
+- La OEA Respalda a Argentina en el Reclamo por la Soberanía de Malvinas
+- La Revolución de la Incultura
+- La Soja de Argentina Ayuda a Alimentar al Mundo pero Podría estar Enfermando a los Pobladores Locales
+- Lo Que se Sabe de la Misteriosa Base que China está Construyendo en la Patagonia Argentina
+- Los Mutantes de los Ríos - El Ibuprofeno en Argentina
+- Megadevaluación e Inflación en Argentina del 47,6% en 2018 - ¿El 2019 será Peor?
+- México y Argentina - Arqueología Subacuática, Devaluación, Protesta, Futbol y Crimen
+- Modelo Agrícola Argentino descuida Derecho a la Alimentación
+- Plantón en La Cumbre - Trump deja solo a Macri justo antes de la Foto Oficial en el G20
+- Pobreza e Indigencia - Alarmantes Cifras en Argentina
+- Pobreza y Desigualdad por Ingresos en la Argentina Urbana
+- ¿Por qué Argentina puede ser la Principal Candidata para unirse al Grupo BRICS?
+- Presiones de EE.UU. y Terror Mediático sobre la Base China en la Patagonia
+- Primeros Observadores de EE.UU. llegan a Argentina para Instalar Bases Militares
+- Quello che Cambia i Fiumi - L'Ibuprofene in Argentina
+- ¿Quién es el Papa Francisco? - Jorge Mario Bergoglio y la 'Guerra Sucia' de Argentina
+- Rescates Financieros del FMI en Argentina nunca permitieron Salir de las Crisis - Dice Historiador...
+- ¿Ruptura Definitiva? - Macri se distancia de Milei y se fractura el Aliado Fundamental del Oficialismo
+- Sovereign Debt for Territory - A New Global Elite Swap Strategy
+- The IMF has Put Argentina on the Road to the Worst Punishment it Can Possibly Give
+- Who is Pope Francis? - Jorge Mario Bergoglio and Argentina's "Dirty War"
+Javier Milei:
+- Argentina es el Laboratorio del Gran Reseteo y de la Agenda 2030 - Milei había rechazado en Campaña
+- Argentina withdraws from WHO
+- Bendición para Empresas y Maldición para el Pueblo - ¿En qué consiste el Régimen de Inversión de Milei?
+- Derrotas, Traiciones y Cuerdas Flojas - ¿Qué hay detrás del 'Estallido' dentro del Partido de Milei?
+- Detrás de la Carta de Milei a Lula - ¿Qué tan malo es el Vínculo entre Argentina y Brasil?
+- Discurso completo del presidente Javier Milei en la CPAC 2024 en EE.UU.
+- El Camino del Libertario - por Javier Milei
+- El Discurso de Javier Milei en el Foro de Davos 2024
+- El Giro de Argentina impresiona a Expertos - Recortes Drásticos logran un Éxito Económico muy Rápido
+- El Gobierno de Javier Milei escala en la Guerra contra los Movimientos Sociales
+- El Loco - La Vida Desconocida de Javier Milei y su irrupción en la Política Argentina - por Juan Luis González
+- Gobierno de Milei publicó su "Agenda 2030 para el Desarrollo Sostenible en lectura fácil" a pesar del dicurso...
+- ¿Ha Cumplido Milei sus Promesas? - La Motosierra bajo la Lupa
+- Javier Milei disertará en el FEM de Davos - Encuentro con Klaus Schwab y Emmanuel Macron el 17 de Enero
+- Javier Milei ya está Demostrando que el 'Establishment' Económico de Izquierda está Equivocado
+- La Agenda 2030 para el Desarrollo Sostenible en lectura facil
+- ¿La Agenda 'Woke' como Causa de la Decadencia de Occidente?
+- La Economía de Argentina se Recupera por completo y la Pobreza se hunde a Mínimos de los dos últimos años
+- Líderes de Ultraderecha se organizan para Conquistar el Mundo - Pero tienen un Problema...
+- Logros, Promesas y Retos Acuciantes - Los Diez Meses de Milei en Argentina
+- Lo que Ocultan los Datos Económicos de los que saca pecho Milei
+- Los Convulsos Seis Meses de Milei al frente del Gobierno en Argentina - Discursos Mesiánicos
+- Milei contra el Mundo - Una Desintegración Planificada
+- Milei en CNN - "Que un Ignorante como López Obrador hable mal de mí, me enaltece" - Video
+- Milei estalló ante Todos los Presidentes en la Cara de la ONU - Pacto del Futuro y la Agenda 2030
+- ¿Milei "Salva" a la Anglosfera Financierista aunque se desintegre Argentina?
+- Milei será declarado "Embajador Internacional de la Luz" de la Jabad Lubavitch
+- Milei sigue los Pasos de Trump y la Argentina se Retira de la OMS
+- Milei suma a las 'Denuncias de Plagio', datos Falsos de su Vida en la Solapa de un Libro
+- Milei - ¿Un Proyecto de Poder Controlado por Agencias de Inteligencia Internacionales?
+- "Otra Mentira que se Cae" - Milei critica el "verso" del Cambio Climático a.k.a. Calentamiento Global
+- Porque la Caída de la Inflación en Argentina No es una Buena Noticia
+- ¿Qué hay Detrás de las Fuertes Declaraciones de Milei sobre sus Homólogos?
+- "Un Conflicto Artificial" - ¿Por qué Argentina ha apostado por Tensar la Relación con Bolivia?
+- ¿Un "Modelo a lo Hong Kong" para las Islas Malvinas? - Milei revivió una Vieja Propuesta en Argentina
+- Un Presidente Argentino envuelto y sometido por sus Delirios Ideológicos
+- WEF Crumbles - Does this Signal the Arrival of The Great Reset?
+- Discurso del Presidente Milei en el Foro Económico Mundial de Davos 2025
+- Los Poderes detrás de Milei - ¿Quiénes Controlan al nuevo Presidente? - Entrevista a Fausto Frank
+Zion and Patagonia - Zion y La Patagonia:
+- La Patagonia - ¿La Nueva Palestina? - ¿Qué Están Haciendo Equipos de Reconocimiento Israelitas en...
+- La Patagonia Ocupada
+- ¿Un Nuevo Israel en La Patagonia? - La Comunidad Judía Internacional ha Comprado La Patagonia...
+- What are Israeli Army Reconnaissance Teams Doing in Patagonia?
+- El Nuevo Agronegocio de Bill Gates con MONSANTO y sus 3 Socios Argentinos
+Bolivia
+- America has No Allies, Only Hostages
+- Behind the Racist Coup in Bolivia
+- Bolivia - A 'Color Revolution' or a 'New Surge' for Latin American Independence?
+- Bolivia Builds Anti-Imperialist School to Counter U.S. Hegemony
+- Bolivia Construye Escuela Antiimperialista para Contrarrestar la Hegemonía de Estados Unidos
+- Bolivia Ended its Drug War by Kicking Out the DEA and Legalizing Coca
+- Bolivia - Laboratorio de una Nueva Estrategia de Desestabilización
+- Bolivians return 'Evo Morales's Party' to Power One Year After a U.S.-applauded Coup
+- Bolivia se Acerca a su anhelado lugar en los BRICS de la mano de Rusia
+- Bolivia's President Declares 'Total Independence' from World Bank and IMF
+- Bolivia's Trial by Fire
+- Bolivia y Rusia firman Seis Acuerdos Gasíferos
+- Cómo construye Bolivia su Soberanía Alimentaria ante el alza mundial de Precios
+- ¿Cómo fue la Lucha de los Pueblos Indígenas por instaurar el Estado Plurinacional en Bolivia?
+- Cómo los Bolivianos derrotaron los Mandatos de Vacunación del Gobierno Socialista
+- Disappointment as US-Backed Coup Gov't concedes Defeat in Bolivia - Media Responds with Apathy
+- Elecciones 2020 en Bolivia - ¿Por qué ganó el Movimiento al Socialismo en Primera Vuelta?
+- El Nuevo Gobierno de Bolivia crea el 'Ministerio de Descolonización y Culturas' - Pone al Mando a una Líder...
+- Evo Morales - An Indian Out of Place
+- Evo Morales Destaca Logros Sociales tras Liberarse de Organismos Capitalistas
+- Evo Morales Expulsa a La USAID de Bolivia
+- Evo Morales le quita la Máscara a EE.UU. en América Latina
+- Evo's "MAS Party" Regroups - While Bolivia's Coup Leaders are 'Eating Each Other Alive'
+- ¿Fueron Bolivia y Perú la Tierra del Ocaso de los Antiguos Sumerios?
+- Golpe de Estado en Bolivia liderado por Cabecilla Paramilitar Fascista Cristiano y Millonario con Apoyo...
+- 'Guerra del Agua' - Cuando hace 22 Años Despertaron los Leones de Cochabamba en Bolivia
+- How Bolivia's Morales weathered Latin America's Backlash against the Left
+- How Bolivia Triumphed over McDonalds - Fast Food Giant Shuts Down All Restaurants in Bolivia
+- Justicia Boliviana condena a Ex-presidenta Jeanine Añez a 10 años de Cárcel por Golpe de 2019
+- Los Países que nos Hemos Librado del FMI estamos Mejor que Antes - Evo Morales
+- Media Conceal Chile's State Criminality and Delegitimize Bolivian Democracy
+- New Government in Bolivia sets to 'Work Undoing Damage' left by U.S.-Backed Áñez Regime
+- The CIA is running Global Coups and Assassinations to try to Stop BRICS
+- Tren Bioceánico - Alemania considera que Bolivia es "Un Jaguar a Punto de Saltar al Futuro"
+- Victims of Bolivia's "Gas War" find Justice in a U.S. Court after Fifteen Years
+- Video Shows Bolivian Soldiers and Tanks Joining Indigenous Protests against Coup Regime
+- 'We will Coup whoever We Want' - Elon Musk and the Overthrow of Democracy in Bolivia
+- Bolivia - El Único país en Sudamérica que McDonald's No pudo Penetrar
+- ¿Porqué Quebró McDonald's en Bolivia?
+Brazil - Brasil
+- All GMO Approvals in Brazil are Illegal - Says Whistleblowing Regulator
+- Amazon Fires are Destructive - But they are not Depleting Earth's Oxygen Supply
+- "AmazonLog" - A Military Drill with Vast Amazonian Aspirations
+- Are Jair Messias Bolsonaro and Donald John Trump a Menace to the Planet?
+- A Vast Reserve of Pristine Brazilian Amazon Rainforest has Just Been Saved from Mining Operations
+- Bolsonaro - Cada vez Más Aislado en el Mundo
+- Bolsonaro firma Decreto para Abrir la Tierra Indígena de Brasil y la Amazonía a Agricultura y Minería Corp...
+- "Bolsonaro's Government poses a Great Risk for Brazil" says Lula da Silva
+- Brasil con un Gobierno cada día más Religioso y Anticientífico
+- Brasil despliega Tropas y evacua Ministerios por destructivas Protestas contra Temer
+- 'Brazilgate' se está Convirtiendo en 'Russiagate 2.0'
+- Brazilian 'Real' Tumbles after former President Michel Temer Arrested in "Car Wash" Corruption Scandal
+- Brazilians Weigh a Farewell to Paradise Brazil's due to Bloodshed and Chaos - 'I'm Totally Freaked Out'
+- Brazil's Bolsonaro Stumbles Out of the Gate
+- Brazil's Class Struggle - Big Capital and The World Cup
+- Brazil's Corruption Investigation Causes a Political Earthquake in Peru
+- Brazil's Neighbors Warn of President's 'Dangerous' Ouster - But U.S. Press isn't Listening
+- Brazil, Uruguay Move Away from U.S. Dollar in Trade
+- BRICS in the Wall of Global Greed
+- BRICS nel Muro dell'Avidità Globale
+- Burning Down the House
+- Calling for 'Corridor of Life and Culture,' Indigenous Groups from Amazon propose Creation of Largest...
+- Cambio a la Derecha a Cualquier Costo - Decidieron los Brasileños
+- Cash-Strapped Brazil Moves to Privatize Basic Services with a High Cost
+- China abandona los USD tras Nuevo Acuerdo con Brasil y establece Primer Comercio de GNL en Yuanes
+- El Arriesgado y Crucial Papel Indígena de Conservar la Tierra
+- El Descontento en Brasil por Michel Temer Crece al 70%
+- ¿El Gobierno de Bolsonaro está Quemando el Amazonas o hay Algo Más en la Mesa?
+- El Golpe de Estado Brasileño y el 'Regreso' de Washington a América Latina
+- El Tribunal Supremo de Brasil Inicia el Proceso de Juicio Político contra el Vicepresidente del País
+- Escándalo debilita al "Héroe" de la Anticorrupción en Brasil
+- Gangs in Brazil Enforce their Own Lockdown after Bolsonaro writes off Coronavirus as "Fantasy"
+- Golpe de Estado en Brasil - Así es el Nuevo Presidente que ha Sustituido a Dilma Rousseff
+- "Hay una Enorme Posibilidad de que Dilma Vuelva al Poder"
+- Il Trattato per la Pandemia - "Abbiamo i mezzi per Migliorare lo Stato del Mondo" - Klaus Schwab
+- Impeachment or NSA-Led Coup? - Alarming Efforts to Oust Brazil's Rousseff
+- Indigenous Leader who Guarded the Amazon Rainforest Killed by Illegal Loggers
+- Indigenous Peoples, 'Guardians of Nature', under Siege
+- Investigadores descubren enorme Reserva de Agua Dulce Subterránea en Brasil
+- Killing Fields of Colombia and Brazil
+- La Política Económica de Bolsonaro - Entre Nacionalismo de Fachada y el Neoliberalismo
+- La Venganza Personal como Modo de Gobernar en Brasil
+- L'Effetto Decapitazione
+- Los Indígenas - Las Primeras Víctimas del Nuevo Gobierno en Brasil
+- Los Medios Invisibilizan a Lula y Haddad - Bannon asesora a Bolsonaro
+- Los Pueblos Indígenas 'Guardianes de la Naturaleza' están Asediados
+- Lula Decepcionado por la Respuesta de Biden sobre el Cambio Climático
+- Lula Deluso per la Risposta di Biden sul Cambiamento Climatico
+- Lula - One of the Most Audacious Traitors in Brazil's Recent History?
+- Lula - ¿Uno de los Traidores más Audaces de la Historia Reciente de Brasil?
+- Lula y el BRICS - El veto a Venezuela y las Contradicciones de un Brasil dividido
+- Lula y los BRICS - La Fórmula que podría Detonar la Industria del Litio en América Latina
+- Make EU trade with Brazil sustainable
+- Mensaje a la UE - Ustedes tienen la Oportunidad de Dejar de Alimentar la Devastación en el Amazonas
+- Message to the EU: You have the Chance to Stop Fuelling Devastation in the Amazon
+- Miles de Manifestantes Tomaron Calles de Brasil para Decir: ¡No Habrá golpe!
+- Multitudinario Apoyo a Dilma Rousseff en Brasil
+- Porqué Protestan Contra El Mundial de Fútbol - Brasil
+- Putin administra los Tiempos para que la Caída Anglosajona no arrastre al Mundo a una Guerra Nuclear
+- ¿Quién es Jair Bolsonaro nuevo Presidente de Brasil de Extrema Derecha que tanto Preocupa a la...
+- Reiniciar el Capitalismo en Brasil - La Meta del Nuevo Gobierno
+- Remote Amazon Tribe gets Internet Access - You already Know what happens Next...!
+- Resignados a una Larga Guerra...
+- Revancha Militar contra la Redemocratización de Brasil
+- Río de Janeiro - Las Muertes por Coronavirus Caen desde hace Cuatro Semanas
+- Safe with 'Oligarchs and Imperialists' in U.S. - Brazil's New President Admits Coup Plot
+- Satélites Muestran que la Deforestación Amazónica aumenta en el Brasil de Bolsonaro
+- Secret Brazil Archive 2019 - Reports on Operation Car Wash, Justice Minister Sergio Moro and Lula da Silva
+- Se Filtra el Discurso que el Vicepresidente Brasileño Preparó para el "Impeachment"
+- Sindican a firmas de EE.UU. de ser "Cómplices" de Deforestación y Abusos en la Amazonía
+- ¿Son Jair Messias Bolsonaro y Donald John Trump una Amenaza para el Planeta?
+- Soros y la CIA Apoyan a Neves para Derrotar a Rousseff en Brasil
+- Sovereignty is Having a Moment...!
+- Supremo de Brasil tacha de "Error Histórico" la Prisión de Lula y anula las Pruebas del caso
+- Temer Convicted of Breaking Election Laws as Thousands March for Democracy in Brazil
+- Terremoto Político en Brasil tras la Anulación de las Condenas a Lula da Silva
+- The Amazon is on Fire - Here are 5 things you Need to Know
+- The Biggest Attack on the Amazon in 50 Years - Has Just Begun in Brazil
+- The Brazilian Coup and Washington's "Rollback" in Latin America
+- The 'Decapitation Effect'
+- The Pandemic Treaty - "We have the Means to Improve the State of the World" - Klaus Schwab
+- Trading Forests - Land-use change and carbon emissions embodied in production and exports of forest...
+- Tropas de EE.UU. en la Amazonía - Se Cumple el 'Sueño Americano'
+- Trump's Trade War was Bad Enough for Brazil's Amazon - Then Came Bolsonaro...
+- Turkey and Brazil Protests Part of Same, Foreign-Led Conspiracy to Destabilize Governments - Erdogan...
+- ¿Un Gobierno Incompatible con la Cultura Nacional de Brasil?
+- What Does the Future Hold for Brazil's Embattled Workers' Party?
+- What now, Brazil?
+- WikiLeaks Exposes Newly 'Selected' Brazilian President as Puppet for U.S. Intelligence
+- Fidel Castro advierte en 1992 del Actual Desastre Ecológico de Brasil en la Amazonía
+- Guardians of the Amazon
+- Las Elecciones del Fin del Mundo - Episodio 1: El Mundo tiene sus Ojos sobre Brasil
+Chile
+- Bolivia y Chile - ¿Solución Pacífica en el Pacífico?
+- Chilean Miners' Rescue - Human Interest Story of The Decade
+- Chilean Protests - A Revolt against Neoliberalism the Media Refuses to Acknowledge
+- ¿Chile Bajo Amenaza Masónica?
+- Chile in Flames - The Neoliberal Model in Crisis throughout the Region
+- Comisión de Derechos Humanos de Chile amplía una Querella contra Piñera por 'Delitos de Lesa Humanidad'
+- Despotism, Neoliberalism and the "Chilean Miracle"
+- El Secreto de Chile para tener la Internet más Rápida del Mundo
+- Estallido Social en Chile - Discursos de Piñera 'Bajo la Lupa' de la Inteligencia Artificial
+- Explosión de "Indignados" pone en el 'Banquillo de los Acusados' al modelo Capitalista Neoliberal Chileno
+- Gabriel Boric - Un nuevo Liderazgo que entusiasma a Chile
+- Hidrógeno Verde - El Nuevo Potencial de Chile
+- Hidrógeno Verde - Generación, usos y perspectivas
+- La Guerra Que Chile Necesita
+- Megaterremoto y Tsunami hace 3.800 años - Cazadores-recolectores de Chile en el interior durante 1.000 años
+- ¿Porqué la Delincuencia hoy se siente Desbordante en Chile? - Primeras Medidas de Fondo para Combatirla
+- ¿Porqué solo Chile, Colombia y Perú son los Países de América Latina que Sobreviven a la Recesión?
+- Protestas Chilenas - Una Revuelta contra el Neoliberalismo que los Medios de Comunicación se Niegan a...
+- Referendo 2020 en Chile - Seguir o No a la Sombra de la Dictadura
+- Renuncia el Comandante en Jefe del Ejército Chileno tras ser Inculpado por Fraude
+- "Thousands are Starving" - Protesters Demanding Food Clash with Soldiers as Covid-19 Cases Rise in Chile
+Multimedia:
+- Chile o La Tiranía del Libre Mercado
+- Discurso del Presidente de Chile sobre 5g - Máquinas para Leer e Insertar Pensamientos - Sebastian Piñera
+Colombia
+- Amapola, Opio y Heroína - La producción de Colombia y México
+- Biden backs Revival of 'His Brainchild' Plan Colombia 2.0 set to begin April 2021 - The Drug War
+- Biden sostiene la Rinascita della 'Sua Idea' piano Colombia 2.0 impostato per iniziare ad Aprile 2021
+- Colombia - ¡Basta Ya! - Memorias de Guerra y Dignidad...
+- Colombia en La Geopolítica Imperialista - Las Bases Militares Norteamericanas en América Latina
+- Colombia Resiste al Fracking - Implicaciones de la Decisión adoptada por la Comisión de Expertos
+- EE.UU. Amenaza a Colombia por Querer Rebajar el Precio de un Medicamento Contra el Cáncer
+- El Escalofriante Dossier de Álvaro Uribe - Ex-presidente Colombiano ante La Corte Penal Internacional
+- El Fracking en Colombia - La Batalla Continúa
+- El Gran Daño del Fracking en Colombia
+- El Plan Colombia - "Un Éxito Militar y un Fracaso Social"
+- El TLC Recoloniza a Colombia - Acusación a Álvaro Uribe Vélez
+- ¿Es Colombia un Estado Fallido?
+- Estalla Colombia y Derrota al Gobierno de Ultraderecha
+- "Fracking Responsable" y otros Disparates del Gobierno Colombiano
+- Injerencia Absurda en América Latina - Santos anuncia Formalización de Ingreso de Colombia a la OTAN
+- La Difícil Encrucijada de Petro y el Comercio Internacional de Armas a Ucrania
+- La Dura Pelea contra el Fracking en Colombia
+- La Potencia que No Fue - ¿Por qué se Disolvió la Gran Colombia?
+- Leaked Memos Show U.S. Threaten Continued Violence if Colombia Challenges Big Pharma Monopoly
+- Legalizar la Cocaína - América Latina lidera el Debate
+- Ley de Semillas en Colombia Favorece a Monsanto - Advierten Agricultores
+- Los BRICS - La Apuesta Geopolítica de Colombia ante una Región en Crisis
+- Perché solo Cile, Colombia e Perù sono i Paesi dell'America Latina che Sopravvivono alla Recessione?
+- Petro, Maduro y Bolívar - La "Nueva Era" que comienza entre Colombia y Venezuela
+- ¿Porqué EE.UU. debe Temer la Alianza Económica entre China y América Latina?
+- Reinician las Negociaciones entre Colombia y la OTAN
+- Tener Una Semilla es Un Delito - La Nueva Dictadura Alimentaria ahora en Colombia
+- Triunfo Campesino sobre Monsanto/Bayer
+- U.S. and Colombia Plan to Attack Venezuela
+- U.S.-Colombia - Conspiracy Against Venezuela
+- U.S. Sponsored "Democracy" in Colombia - Political Assassinations, Poverty and Neoliberalism
+- Pandemia y Super-ricos
+- Tráfico de Cocaína - Un Negocio como cualquier otro
+Cuba
+- Cuba - 50 Verdades Que Ocultará Yoani Sánchez
+- Cuba Abre Sus Cárceles a La Mirada de Occidente
+- "Cuba es el Símbolo de la Valentía de un Pueblo"
+- Cuba Reaches Out to Partners Far and Wide to Hedge Against U.S. Engagement
+- Después de Acusarla de Narcoterrorismo durante Varias Décadas, Estados Unidos negoció con Cuba
+- El Acercamiento entre EE.UU. y Cuba - Nada es lo que Parece
+- El Hermano Obama - Artículo de Fidel
+- Fidel Castro Gives Rare Speech saying He's Nearing the End
+- Fidel Castro - Luces y Sombras
+- Fidel Castro's Legacy will Live
+- Fifty Truths about Fidel Castro
+- "Humanitarios y Sencillos" - Así Viven los Médicos Cubanos en Uruguay
+- Human Rights Hypocrisy - U.S. Criticizes Cuba
+- Out of Benefactors from Abroad Cuba Turns to its Caribbean Neighbors
+- Para Mejorar los Lazos con EE.UU. No Renunciaremos a Nuestras Ideas - Dice Raúl Castro
+- Russia, Cuba and the Truth about Putin the U.S. Media Doesn't Want You to Know
+- Trump's Hard Line on Cuba is a Bluff and Havana Knows It
+- USAID Exposed in Cuba - What it Tells us About The U.S. Subversion Worldwide
+- El Eterno Revolucionario - Fidel Castro
+Ecuador
+- A Green Paradox - Deforesting the Amazon for Wind Energy in the Global North
+- Economic Hitman John Perkins Outraged After Ecuador Government Shuts Down Pachamama Alliance
+- Ecuador Afronta una Tormenta Perfecta
+- Ecuador Sets Tree Planting World Record in One Day with 647,250 Trees Planted
+- El Oficio de Curar con Plantas - Cuando la Medicina no viene en Pastillas
+- Experto Independiente Nombrado por la ONU visitó Ecuador y Venezuela
+- Las Elecciones 2017 en Ecuador - Una Batalla Geopolítica de las Dimensiones de Pichincha
+- Latin America No Longer U.S.' Backyard - Ecuadorian Foreign Minister
+- ¿Una Dolarización Innecesaria y un FMI Impopular? - La Experiencia y el Futuro del Dólar en Ecuador
+- Washington Wants "Regime Change" in Ecuador
+John Perkins - An Economic Hit Man
+- Confesiones de Un Sicario Económico
+- Confessions of An Economic Hit Man
+- Confessions of An Economic Hit Man - Concise Summary
+- Confessions of a Panama Papers Hit Man
+- Global Intelligence-Gate - From Confessions of An Economic Hit Man to The Stratfor Corporation
+- Interview to Former Economic Hitman John Perkins - 2012, Government Corruption and More...
+- Latin America Beware - The Imperialists are Coming for More
+- How the Richest of the Rich Steal from the Poorest of the Poor
+- How the U.S. Uses Globalization to Cheat Poor Countries Out of Trillions - Confessions of an Economic...
+- The New Confessions of an Economic Hit Man - Objective Reality vs. Perceived Reality
+- WikiLeaks' Julian Assange Exposes Truth About Evil Empires and Their War on Journalists and...
+- A Conversation With John Perkins - Democracy Now
+- John Perkins en un Extracto de Zeitgeist Addendum
+- Latin America Hates the USA
+- The Corporatocracy and Central and South America
+- Why Corporations are Inherently Evil
+Paraguay
+- Bush and Moonies Make Huge Land Grabs in Paraguay
+- Dark Armies, Secret Bases, and Rummy, Oh My!
+- EE.UU. está tratando de Combatir el Nacionalismo de las FF.AA. Sudamericanas
+- I Vichinghi Erano in Sud America 400 Anni prima di Colombo?
+- Mariscal Estigarribia - U.S. Military Base, Paraguay
+- Media Reports That 16,000 U.S. Troop Invade Paraguay
+- Paraguayans Accuse Moon of Carving Out an Empire of Smack
+- Paraguay Revokes U.S. Military Immunity
+- Pentagon Quietly Builds Up South American Bases
+- Secret Invasion - U.S. Troops Steal into Paraguay
+- The Bushes and The 2012 Paraguayan Putsch
+- The Guarani Aquifer - Protecting The Hidden Treasure
+- The Roving Eye
+- The U.S. Military Descends on Paraguay
+- U.S. Inroads Raise Alarm
+- U.S. Seizing Vast South American Water Reserve - Conspiracists Allege
+- Water Is The Next Oil - Beautiful Paraguay
+- Were Vikings in South America over 400 Years before Columbus?
+- While Baghdad Burns, Bush Buys
+Perú
+- After Narrow Win in Peru, Kuczynski Must Still Contend with Fujimori
+- At Least 13 Killed in Peru Nightclub Stampede triggered by Police 'Social Distancing' Raid
+- Batalla por los Recursos de Perú - Embajadora de EE.UU., veterana de la CIA, discute 'Inversiones' con Ministros
+- Bill Gates, MOSIP y el Sistema Digital de Identificación Global en America Latina
+- Cambiar la Justicia para Reducir la Corrupción - El Desafío de Perú
+- Castillo vs. Fujimori - Perú ante una Elección Imposible
+- China consolida su presencia en Latinoamérica con la Inauguración en Perú del Megapuerto de Chancay
+- Cómo Perú Deslumbró al Mundo al Reducir más de 50% de la Pobreza en 10 Años
+- Congresista denuncia a Boluarte por "Usurpación de Función Pública" en Perú
+- COVID-19 Excess Deaths in Peru's 25 States in 2020 - Nationwide Trends, Confounding Factors, and...
+- Debunking the Western Media's Coverage in Peru of the War on Syria
+- Deforestación en Perú - La Búsqueda de Oro Devasta la Selva
+- Destruction of the Environment - Gold Mining in the Peruvian Amazon Rainforest Surges 400%
+- Dina Boluarte autorizó el ingreso de Tropas Norteamericanas con Armas de Guerra a Perú
+- Dina Boluarte jura como Presidenta de Perú tras la Destitución de Castillo
+- Dina Boluarte sería Marioneta del Nuevo Orden Mundial - Perú
+- El 85 % de los casi 20.000 Fallecidos por COVID-19 en Perú Padecía Obesidad
+- 'Elecciones de Infarto' en Perú - Castillo supera por la Mínima a Fujimori en Perú con 92,6% de Actas Contadas
+- Eleven Governments are Meeting in Peru to Figure Out How they Can Control the Internet
+- El 'Muro de la Vergüenza' en Perú - Entre el Lujo y la Miseria, a Ojo de Dron
+- El nuevo Presidente Ultraderechista del Congreso Peruano es uno de los Aliados de Vox en Latinoamérica
+- El País Latinoamericano que ha Sacado de la Pobreza a 7 Millones de Personas en 5 Años - Perú
+- En Perú Alertan Falta de Control en Uso de Plaguicidas
+- Fed Up with Inaction Peruvian Tribe takes Hostages following Amazon Oil Spills
+- Forced Sterilizations in Peru - Paid for by U.S. Taxpayers
+- George Soros Financed Peru Riots in July 2000
+- George Soros financia Política Peruana
+- "Huge Win for Wildlife" - Peru Vows to End Deforestation driven by Palm Oil
+- Incertidumbre en Perú - Aumenta la Tensión por las Exigencias para que Castillo cambie a un Gabinete
+- Ivermectin Worked - New Peer-Reviewed Study Proves It - Peru, India, Brazil, Japan, Africa...
+- "Ivermectin Worked!" - Peer-Reviewed study finds 74% Reduction in Excess Covid Deaths in Peru
+- Jicamarca-Perú y las Antenas HAARP de las que Nadie Habla
+- La Agenda Secreta del 'Foro Democrático' - Hacer de Perú otra Bosnia - La Guerra Cultural contra Perú
+- La Gesta del 'Perú Profundo' a Lima - El izquierdista Castillo se impone a Fujimori en las Presidenciales...
+- La Ivermectina Funcionó - Nuevo Estudio Revisado por Pares lo Demuestra - Perú, India, Brasil, Japón, África...
+- La 'Open Society' de Soros se va del Perú - Mala Noticia para los "Caviares"
+- Last Stand in the Amazon - Peru
+- L'Ivermectina Funziona - Un nuovo Studio sottoposto a Revisione lo Prova - Peru, India, Brasile Giappone, Africa...
+- Minería Ilegal - El Descubrimiento que hizo la NASA en Perú y que Preocupa a Todos
+- Mining the Heart of the Mother of God - Peru's Gold Rush Claims More Forest
+- Niveles de Mercurio Analizados en Perú Superan Seis Veces la Norma
+- Pedro Castillo detenido y asumió Dina Boluarte, referente de la "Izquierda Caviar" del Perú aliada a Davos
+- Pedro Castillo - Una Nueva Incógnita en Latinoamérica
+- Perú - ¿Asediado por EE.UU., la CIA y el Foro Económico Mundial?
+- Perú - ¿Cuál será la Naturaleza de un Gobierno encabezado por Pedro Castillo?
+- Perú - Democracia en UCI (Unidad de Cuidados Intensivos)
+- Perú Negocia Acuerdo que Facilita a Transnacionales Millonarias Indemnizaciones - Investigación de...
+- Peru Now has a 'Licence to Kill' Environmental Protesters
+- Perú y México - A la Vanguardia del Comercio entre América Latina y Eurasia
+- ¿Planea EE.UU. hacer un 'Remake' del Golpe de Estado en Chile, en Perú?
+- Presidenta de Perú Dina Boluarte miente en Davos 2025
+- Protestas en Perú
+- ¿Quién le Teme a Pedro Castillo?
+- Racismo en un Perú en Crisis - Flagelo Social y Coartada de un Gobierno en Apuros
+- 'Risk for Future Generations'? - Peru clashes with Pfizer over Big Pharma's 'Legal Immunity' Covid-19 Vaccine...
+- "Si las Cosas no Mejoran estamos Dispuestos a Ofrecer la Vida" - Indígenas del Norte de Perú y Petrolera
+- Sudamérica Bajo Amenaza - EE.UU. Instalará una Nueva Base Militar en Perú
+- Suiza y su "La Rinconada" en Perú - El Paraíso del Diablo o La Peor Cara del Oro
+- Switzerland and its "La Rinconada" in Peru - The Devil's Paradise
+- The United States shall Set Up a New Military Base in Peru
+- "Trump es un Presidente que llega absolutamente Preparado y conoce bien a sus Enemigos"
+Uruguay y Pepe Mujica
+- Chomsky y Mujica - Documental Reúne a estas 2 Grandes Conciencias Políticas
+- Correa, Morales y Mujica - Entre los Cinco Líderes Más Populares del Mundo
+- De Guerrillero a la Silla Presidencial - El Camino de José Mujica, en fotos...
+- José Mujica - 'El Presidente más Pobre del Mundo' y 6 Cautivadores hechos de la Vida, que te harán...
+- Jose Mujica - 'World's Poorest President' Shares 6 Captivating Facts about Life that will Make You Question...
+- Latinoamérica No Llegará a Nada si Cede al Enfrentamiento - Dice ex-presidente Mujica
+- Muere José Mujica - El ex-Presidente Uruguayo que sorprendió al Mundo con su Austeridad
+- "No quiero que Clarín o Globo sean Dueños de la Prensa en Uruguay" - dice José Mujica
+- Un Día con José Mujica
+- Uruguay - El Primer Paso del Banco de los BRICS en Sudamérica después de Brasil
+- Uruguay - Il Primo Passo della Banca BRICS in Sud America dopo il Brasile
+- "A mi Edad, el Amor es Una Dulce Costumbre" - José Mujica
+- Camino de Vuelta - Conociendo a Pepe Mujica - 2019
+- Chomsky y Mujica - El Documental
+- El Pepe - Una Vida Suprema
+- Entrevista con José Mujica - "Es difícil Construir Edificios Socialistas con Albañiles Capitalistas"
+- José "Pepe" Mujica - Mi Último Adiós
+- La Amazonía y la Vida
+- La Filosofía del Uruguayo 'Pepe' Mujica - Entrevista
+- Pepe Mújica - Mi Entrevista más Sincera
+- Pepe Mujica - Montesquieu, los Oligarcas Rusos, la Elite Global y Conciencia
+- Rebautizando América Latina - Conciencia Sur
+- The Philosophy of Uruguayan 'Pepe' Mujica - Interview
+- Valora tu Tiempo de Vida - Pepe Mujica
+- "Yo seré Socialista, pero No quiero Ser bobo" - Capitalismo y Comunismo son una Enfermedad - Pepe Mujica
+Venezuela
+- 4th Generation Warfare (4GW) used by USG to Attack Venezuela
+- 72% de Venezolanos Quieren la Salida Anticipada de Maduro
+- "800 Bases en 70 Países" - Caracas ve "Cínica" la reacción de EE.UU. por su Cooperación con Moscú
+- ¿Al Conflicto de Venezuela Solo le Queda la Salida Militar?
+- Así fue como Venezuela solucionó la Violencia - "La Seguridad ya No es un Dolor de Cabeza"
+- A Tale of Two Constitutions - Or What Venezuela Can Learn from Chile
+- "Barack Obama dio el Paso más Agresivo Contra Venezuela en la Historia de Estados Unidos" - Maduro
+- Chavez and Thaksin - A Tale of Two Socialists and Western Hypocrisy
+- Chavez - Another CIA Assassination Victim?
+- ¿Chávez Asesinado por su Asistente Personal? - EE.UU. trata de Cubrir sus Huellas en el Caso
+- Chavez - ¿Otra Víctima de Asesinato por La CIA?
+- Chávez - Un Cadáver y Cinco Asesinos - 17 Presidentes Americanos han Muerto por Cáncer
+- CFR Report Suggests U.S. Preparing for Upcoming Venezuela Coup, Exploiting Civil Unrest
+- Comunicado Especial de La Alianza Bolivariana de Los Pueblos - Triunfo de Nicolás Maduro en Las...
+- Comunismo 'A La Norteamericana'
+- Con o sin actas Estados Unidos quiere "el Petróleo de Venezuela" - Entrevista a Claudio Katz
+- Contempla la Impresionante Debilidad ¡de "El Imperio"...!
+- Dead on Arrival - A Brief Post-Mortem on the U.S.' Regime-Change Operation in Venezuela
+- Declaración del 'Grupo de Lima'
+- Did the NSA Kill Hugo Chavez?
+- Diez Países del 'Grupo de Lima' reconocen la Manipulación Orquestada por Estados Unidos contra Venezuela
+- Edmundo González reconoció el Fallo del Supremo Venezolano que Convalida Reelección de Maduro
+- El Gobierno de España le Admitió a Pablo Iglesias que fue un Error Reconocer a Guaidó
+- El Juego Peligroso de Henrique Capriles y La Oposición Venezolana
+- El Kremlin desvela el texto del 'Acuerdo Estratégico con Venezuela' - ¿Qué Contempla?
+- El Nobel - Un Belicoso Premio a la Intervención Colonial
+- El País y La Victoria Electoral de Hugo Chávez
+- El Puente entre Colombia y Venezuela - Símbolo Falso para que EE.UU. justifique la Intervención
+- El Secreto Gobierno Mundial y la Venezuela de 2014
+- El 'Suicidio Político' de Capriles Radonski Prosigue - Abandona la Coalición Opositora Venezolana
+- Entrevista de Colección a Michael Hudson sobre Venezuela
+- Estados Unidos Planea Apoderarse del Petróleo de Venezuela
+- Estados Unidos viola el Derecho Internacional con su Intento de Golpe de Estado contra Venezuela
+- Frustra Venezuela Complot Desestabilizador
+- "Ganó la Paz" - Maduro se dirige a los Venezolanos a un Mes de su Victoria en las Urnas
+- Héroes Populares y Revoluciones Frustradas
+- How a 'Private Coup' in Venezuela funded by U.S. Billionaires Fell Apart
+- Hugo Chávez, Líderes Mundiales y Muertes por Cáncer - Indicaciones Que la Cura Existe (Pero Sólo...
+- Hugo Chavez, World Leaders and Cancer Deaths - Indications That The Cure Exists (But Only for a...
+- Identificada el Arma con que Mataron Célula por Célula al Comandante Chávez
+- Identifican el Arma "de Alta Tecnología" con la que Indujeron Cáncer a Hugo Chávez
+- Il Gioco Pericoloso di Henrique Capriles e L'Opposizione Venezuelana
+- Il Ponte tra Colombia e Venezuela - Un Falso Simbolo per giustificare l'Intervento degli Stati Uniti
+- India reanudará las Importaciones de Petróleo de Venezuela desafiando las 'Sanciones'
+- Información Falsa sobre Venezuela
+- Informazione Falsa su Venezuela
+- ¿Intervendrá Estados Unidos en Venezuela? - Una Hipótesis en Varios Indicios
+- Juan Guaidó es Sustituido por Luis Parra como Líder de la 'Asamblea Nacional en Desacato' de Venezuela
+- La Campaña Antidroga de EE.UU. - "Una Excusa para hacerse con el Control del Petróleo Venezolano"
+- La Conspiración "Hugo Chávez"
+- La Muerte de Chávez y Las Guerras Silenciosas
+- La Ocupación U.S.A. de Venezuela ya Empezó - Es Energética y la Dirige ExxonMobil
+- Las Falsedades de la Prensa sobre la Elección Presidencial Venezolana 2024
+- Las Grandes Reservas de Gas en el Mundo
+- Le Grandi Riserve di Gas nel Mondo
+- ¿Le Hacen 'Bullying' Continental a Venezuela?
+- Lenta Recuperación de Hugo Chávez
+- Like in Kiev, U.S. Fomenting 'Slow Motion Coup' in Venezuela
+- Los intereses de EE.UU. y Elon Musk en Venezuela
+- Maduro asegura que Venezuela está preparada para Abastecer de Petróleo al Mundo
+- Maduro's Win - A Bright Spot in Dark Times
+- Maquiavelo en América Latina - Mentes Colonizadas: ¿La Estupidez es Lo Más Difícil de Combatir?
+- ¿Mató la NSA a Hugo Chávez?
+- Model Venezuelan Democracy vs. U.S. Imperial Lawlessness
+- Muerte de Chávez - Las Pistas de Un Asesinato Científico
+- Murió Chávez, El Gran Contrainformador
+- New WikiLeaks Cable Reveals U.S. Embassy Strategy to Destabilize Chavez Government
+- Nicolas Sarkozy Ordenó Asesinar al Presidente de Venezuela Hugo Chávez
+- ¡No a la Intervención Militar de Estados Unidos en Venezuela!
+- "Nobel Peace Prize Winner Barack Obama, is Preparing for War in South America" - Interview With Eva...
+- No Drinking Water in Venezuela Until Bankers Get Paid Back
+- No Es Un Delirio - La Muerte de Chávez Sí Fue un Complot
+- No Hay Dudas que Otto Reich, sí está Detrás del Plan de el Atentado Contra Capriles
+- Obispo Golpista en Venezuela - Las Fuerzas Contra Chávez - Archivo
+- Obama Declares Venezuela "A Threat to National Security" - Seeks Regime-Change
+- Perché gli Stati Uniti vogliono il Petrolio Venezuelano se Comprano già il 41% delle loro esportazioni Totali?
+- Perfil Estratégico de Chávez - Ni Tan Revolucionario ni Tan Demonio - La Suma De Los Factores
+- Periodistas se Ríen de la Vocera del Departamento de Estado cuando dijo que EE.UU. No Apoyaba...
+- Permanent Aggression - War on The Horizon in Latin America
+- Plan de Cambio de Régimen en Venezuela por EE.UU. - Apagones Eléctricos para 'Galvanizar Malestar Público'
+- Planting the Seeds of Regime Change - How GMO Seeds and Monsanto/Bayer's "RoundUp" are Driving US...
+- Political Observer Explains why Italy didn't Back Other EU States on Venezuela
+- ¿Porqué los Estados Unidos amenazan Venezuela y militarizan el Caribe?
+- ¿Porqué quiere Estados Unidos el Petróleo Venezolano si ya Compra el 41% de sus Exportaciones Totales?
+- ¿Porqué Venezuela y EE.UU. siguen siendo 'Importantes Socios Comerciales' pese a las Tensiones?
+- Post-Chavez Latin America Will Continue to Drift Away from The United States
+- 'President' Juan Guaidó - A Neocon Tool for Unlocking Venezuela's Vast Resources
+- ¿Pueden Venezuela y sus Vecinos Sobrevivir a la Guerra que ya se Anuncia?
+- ¿Puede Washington Derrocar Tres Gobiernos a la Vez?
+- ¿Quién es Realmente El Candidato Que Enfrentará a Nicolás Maduro en Las Elecciones del 14 de Abril...
+- ¿Quién Mató a Hugo Chávez?
+- Revolt In Libya - A Message to Chavez
+- Rusia sobre el Envío del Tu-160 a Venezuela
+- Saudi Arabia Declares Oil War on U.S. Fracking - Hits Railroads, Tank-Car Makers, Canada, Russia and...
+- ¿Se Apaga la Convocatoria de la Oposición Venezolana? - Protestas en Mengua
+- Sí es Posible Otro Mundo - Con Formas Diferentes de Gobernar y Ser Gobernados - CRÓNICA Desde...
+- Sigue la Mano Sucia de la NED en Venezuela
+- Steckt die USA hinter der Flut von Krebsfällen unter den Lateinamerikanischen Politikern? - Chavez
+- The "Electoral Integrity Project" - Implementing "Democracy" and Regime Change in "Enemy Countries"
+- The National Endowment for Democracy - A Trojan Horse
+- The Socialist Leader 'America Loves to Hate' wins Again - What now?
+- The Venezuela Gambit - Engineered Portal to Latin America?
+- The Venezuelan Disinformation Campaign
+- The Venezuelan "Petro" - Towards a New World Reserve Currency?
+- This is Not Journalism - Univision warps Reality to Push 'U.S. War Agenda' on Venezuela
+- Todo Lo Parecido al 2002 No es ninguna Coincidencia - Venezuela
+- Un Balance General sobre las Medidas de Reconversión Económica en Venezuela
+- U.S. and NATO Target Latin America - Rumors of Coups and War
+- U.S. Corporate Media are 'All-In' on Venezuela 'Regime Change'
+- U.S. Intelligence Terrorizes Venezuela
+- U.S. Occupation of Venezuela has Already Begun - Is being Conducted by ExxonMobil
+- U.S. Policymakers openly Plot Against Venezuela
+- U.S. "Regime Change" in Venezuela - The Documented Evidence
+- U.S. Southern Command in Colombia along the Border - Venezuela Military Moves, U.S. Pulls Out of INF...
+- Valuing Venezuela's Orinoco Oil Belt
+- Veinte Claves Para Entender la Guerra Psicológica contra Venezuela
+- Venezuela Ditches the U.S. Dollar and Prices its Oil in Chinese Yuan
+- Venezuela Ditches U.S. Dollar - Will use Euros for International Trade
+- Venezuela - Entre Elección y Elección, ¿Qué?
+- Venezuela is About to Ditch the Dollar in Major Blow to U.S. - Here's Why it Matters
+- Venezuela - La Agresión Permanente
+- Venezuela Launches the 'Petro' - Oil and Gold Backed Cryptocurrency to Fight U.S. Financial Blockade
+- Venezuela, Minneapolis, Iran, Europe - Trump's Last Gasps of 'Collapsing World Control'... Or is It?
+- Venezuelan Economic Crisis - The Real Cause is Not Socialism
+- Venezuela Passes National Anti-GMO and Anti-Patent Seed Law
+- Venezuela - Petro Sales Exceed $1 Billion in Just Two Days
+- Venezuela's Monetary Revolution Vis-à-vis Economic Sanctions
+- "Venezuela tiene una Capacidad Energética que le daría una fuerza importantísima a los BRICS"
+- Venezuela y OPEP coinciden en Mantener Estable el Precio del Crudo
+- 'Venezuela y Rusia en la Mira' - RT y Telesur Estrenan un Programa Conjunto
+- Venezuela y Twitter - La Orgía Desinformativa
+- Washington's Intent is Economic Destabilization and "Regime Change" in Venezuela
+- Was Hugo Chavez Right about HAARP and the Haiti Earthquake? - Is Weather Even Natural Anymore?
+- What Does the Sale of Venezuelan Oil in Currencies Other than the U.S. Dollar Mean?
+- When Washington Decides that 'Democracy is Dangerous' - Stoking Opposition in Venezuela and Syria
+- Who is Behind the Oil War, and How Low Will the Price of Crude Go in 2015?
+- Why is Venezuela in the White House's Crosshairs?
+- Why Venezuela Has Not Been Defeated
+- Why Washington Hates Hugo Chavez
+- WikiLeaks Tweets Army Manual detailing how U.S. weaponized Banking Cartel to Take Down Nations
+- Will Chavez Murder Be Finishing Touch For the Bush Administration?
+- Análisis del Escenario Geopolítico Actual - 2014
+- Crimen Económico - Venezuela en la Mira
+- El Despertar de Iberoamerica II - De Bolívar a Chávez
+- No Volverán - La Revolución Venezolana Ahora
+- Puente Llaguno - Claves de Una Masacre - Venezuela
+- Video que llevó María Corina a La OEA - Venezuela Hoy...
+- Geopolitics for Investors - by by Pippa Malmgren
+- The Infinite Leader - by Chris Lewis and Pippa Malmgren
+- Amazonia for Sale
+- Chevron vs. the Amazon
+- Desenmascarando al 'Foro de São Paulo'
+- El Imperio Americano - Intervensionismo Internacional, Guerra Psicológica y la CIA
+- El TPP y el Lobby Farmacéutico Industrial - Entrevista a Peter Maybarduk
+- "Honest Government" Ad - Julian Assange
+- La Distopía Posmoderna en America Latina - Los Alimentos
+- La Guerra Contra La Democracia
+- Las Papas Decimos NO al TPP
+- Latinoamérica - Cuestión de Soberanía
+- La Verdad de lo que pasó en Acapulco
+- Los Golpes Militares en America Latina y el Neoliberalismo - Entrevista con Michel Chossudovsky
+- Perú - Retrato de Una Contradicción
+- Pueblos Despiertos = Terror para la Elite Global
+- ¿Sabes lo que Implica la Ejecución de 'La Agenda 2030' en Paraguay y America Latina?
+- Sociopolítica Presente y Futura - La Mejor Entrevista a Daniel Estulin con Walter Martínez
+- Tambogrande - Mangos, Muerte, Minería
+- The TPP and Big Pharma - Interview to Peter Maybarduk
+- The War on Democracy
+- Una Mosca en Una Botella de Coca-Cola
+- Asia - The Reemerge of a Giant - Main File
+- CIA - The Central Intelligence Agency - Main File
+- Columbus - Last One in America - Main File
+- Global Upraising - Main File
+- Messages from Andean and American Civilizations - Main File
+- NATO - Powerful and Necessary, or Costly and Obsolete? - Main File
+- Russia and The EU - Main File
+- The North America Union - Main File
+- Trump - Main File
+Return to The Global Elite - The Transnational Capitalist Class
+Return to Temas / Main Files
+Return to The BRICS
